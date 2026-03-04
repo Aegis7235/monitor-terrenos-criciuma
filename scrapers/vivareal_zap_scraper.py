@@ -1,6 +1,5 @@
 import json, re, time, requests, os
 from datetime import datetime
-from bs4 import BeautifulSoup
 
 SCRAPERAPI_KEY = os.environ.get("SCRAPERAPI_KEY", "")
 
@@ -11,12 +10,12 @@ URLS = [
     ("https://www.zapimoveis.com.br/venda/terrenos-lotes-condominios/sc+nova-veneza/",      "ZAP"),
     ("https://www.zapimoveis.com.br/venda/terrenos-lotes-condominios/sc+cocal-do-sul/",     "ZAP"),
     ("https://www.zapimoveis.com.br/venda/terrenos-lotes-condominios/sc+morro-da-fumaca/",  "ZAP"),
-    ("https://www.vivareal.com.br/venda/santa-catarina/criciuma/lote-terreno_residencial/",       "VivaReal"),
-    ("https://www.vivareal.com.br/venda/santa-catarina/icara/lote-terreno_residencial/",          "VivaReal"),
-    ("https://www.vivareal.com.br/venda/santa-catarina/forquilhinha/lote-terreno_residencial/",   "VivaReal"),
-    ("https://www.vivareal.com.br/venda/santa-catarina/nova-veneza/lote-terreno_residencial/",    "VivaReal"),
-    ("https://www.vivareal.com.br/venda/santa-catarina/cocal-do-sul/lote-terreno_residencial/",   "VivaReal"),
-    ("https://www.vivareal.com.br/venda/santa-catarina/morro-da-fumaca/lote-terreno_residencial/","VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/criciuma/lote-terreno_residencial/",        "VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/icara/lote-terreno_residencial/",           "VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/forquilhinha/lote-terreno_residencial/",    "VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/nova-veneza/lote-terreno_residencial/",     "VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/cocal-do-sul/lote-terreno_residencial/",    "VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/morro-da-fumaca/lote-terreno_residencial/", "VivaReal"),
 ]
 
 CIDADES_REGIAO = {
@@ -43,50 +42,87 @@ def _cidade_ok(cidade):
     return any(c in cidade.lower() for c in CIDADES_REGIAO)
 
 
-def _parsear(listing, fonte):
-    try:
-        ld     = listing.get("listing") or listing
-        precos = ld.get("pricingInfos") or []
-        preco  = None
-        for p in precos:
-            raw = p.get("price") or p.get("businessPrice") or ""
-            if raw:
-                preco = int(re.sub(r"\D", "", str(raw)))
-                break
+def _total_paginas(html, por_pagina=30):
+    """Extrai total de itens da descrição do JSON-LD para calcular páginas."""
+    m = re.search(r'"numberOfItems"\s*:\s*(\d+)', html)
+    if m:
+        total = int(m.group(1))
+        return max(1, (total + por_pagina - 1) // por_pagina)
+    return 5  # fallback conservador
 
-        addr   = ld.get("address") or {}
-        cidade = addr.get("city") or addr.get("cityName") or ""
-        bairro = addr.get("neighborhood") or addr.get("neighborhoodName") or ""
 
-        if not _cidade_ok(cidade):
-            return None
+def parsear_jsonld(html, fonte):
+    """
+    Extrai anúncios do JSON-LD (application/ld+json) com schema.org/ItemList.
+    Estrutura confirmada no HTML real do ZAP/VivaReal:
+      - @id → ID
+      - name → título
+      - url → URL
+      - address.addressLocality → cidade
+      - address.neighborhood → bairro
+      - floorSize.value → área m²
+      - offers.price → preço
+    """
+    anuncios = []
 
-        areas = ld.get("usableAreas") or ld.get("totalAreas") or []
-        area  = int(areas[0]) if areas else None
+    # Pega todos os blocos JSON-LD da página
+    for m in re.finditer(
+        r'<script type="application/ld\+json">(.*?)</script>', html, re.S
+    ):
+        try:
+            data = json.loads(m.group(1))
+        except Exception:
+            continue
 
-        lid    = ld.get("id") or ld.get("listingId") or ""
-        titulo = ld.get("title") or f"Terreno em {cidade}"
-        desc   = ld.get("description") or ""
-        url    = (f"https://www.zapimoveis.com.br/imovel/{lid}/"
-                  if fonte == "ZAP"
-                  else f"https://www.vivareal.com.br/imovel/{lid}/")
+        if data.get("@type") != "ItemList":
+            continue
 
-        return {
-            "id":          f"zap_{lid}",
-            "titulo":      titulo[:120],
-            "preco":       preco,
-            "area_m2":     area,
-            "cidade":      cidade,
-            "bairro":      bairro,
-            "estado":      "SC",
-            "url":         url,
-            "fonte":       fonte,
-            "descricao":   desc[:400],
-            "data_coleta": datetime.now().isoformat(),
-        }
-    except Exception as e:
-        print(f"[{fonte}] Erro ao parsear: {e}")
-        return None
+        for item in data.get("itemListElement", []):
+            listing = item.get("item", {})
+            try:
+                lid    = str(listing.get("@id", ""))
+                titulo = listing.get("name", "")
+                url    = listing.get("url", "")
+
+                addr   = listing.get("address", {})
+                cidade = addr.get("addressLocality", "")
+                bairro = addr.get("neighborhood", "")
+
+                if not _cidade_ok(cidade):
+                    continue
+
+                area_obj = listing.get("floorSize", {})
+                area     = int(area_obj.get("value", 0)) or None
+
+                # Preço pode estar em offers{} ou offers[]
+                preco = None
+                offers = listing.get("offers", {})
+                if isinstance(offers, list):
+                    offers = offers[0] if offers else {}
+                preco_raw = offers.get("price")
+                if preco_raw:
+                    preco = int(re.sub(r"\D", "", str(preco_raw))) or None
+
+                if not lid:
+                    continue
+
+                anuncios.append({
+                    "id":          f"zap_{lid}",
+                    "titulo":      titulo[:120],
+                    "preco":       preco,
+                    "area_m2":     area,
+                    "cidade":      cidade,
+                    "bairro":      bairro,
+                    "estado":      "SC",
+                    "url":         url,
+                    "fonte":       fonte,
+                    "descricao":   "",
+                    "data_coleta": datetime.now().isoformat(),
+                })
+            except Exception as e:
+                print(f"[{fonte}] Erro ao parsear item: {e}")
+
+    return anuncios
 
 
 def scrape_vivareal_zap():
@@ -94,6 +130,8 @@ def scrape_vivareal_zap():
 
     for base_url, nome in URLS:
         print(f"[{nome}] Coletando: {base_url}")
+        total_pags = None
+
         for pagina in range(1, 6):
             url = f"{base_url}?pagina={pagina}" if pagina > 1 else base_url
             try:
@@ -102,29 +140,21 @@ def scrape_vivareal_zap():
                     print(f"[{nome}] HTTP {r.status_code} — pulando")
                     break
 
-                soup = BeautifulSoup(r.text, "lxml")
-                tag  = soup.find("script", {"id": "__NEXT_DATA__"})
-                if not tag:
-                    print(f"[{nome}] __NEXT_DATA__ ausente — pulando")
+                if total_pags is None:
+                    total_pags = _total_paginas(r.text)
+                    print(f"[{nome}] Total estimado de páginas: {total_pags}")
+
+                novos = parsear_jsonld(r.text, nome)
+                if not novos:
+                    print(f"[{nome}] Sem itens na página {pagina} — fim")
                     break
 
-                data     = json.loads(tag.string)
-                pp       = data.get("props", {}).get("pageProps", {})
-                listings = (
-                    pp.get("listings")
-                    or pp.get("search", {}).get("result", {}).get("listings")
-                    or []
-                )
-                if not listings:
-                    print(f"[{nome}] Sem listings na página {pagina}")
+                print(f"[{nome}] Página {pagina}: {len(novos)} anúncios")
+                anuncios.extend(novos)
+
+                if pagina >= total_pags:
                     break
 
-                for item in listings:
-                    a = _parsear(item, nome)
-                    if a and a["id"] != "zap_":
-                        anuncios.append(a)
-
-                print(f"[{nome}] Página {pagina}: {len(listings)} itens")
                 time.sleep(2)
 
             except Exception as e:
