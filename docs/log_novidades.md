@@ -4570,3 +4570,526 @@
   - 📍  — Morro da Fumaça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-alto-padrao-em-morro-da-fumaca-1432740538
 
+
+## 🆕 104 novos anúncios — 04/03/2026 23:52
+
+- **Terreno Plano com 1.525 m² em Paulo Lopes/SC  Acesso Asfaltado e Escri**
+  - 💰 R$ 280.000 | 📐 15000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-com-1-525-m-em-paulo-lopes-sc-acesso-asfaltado-e-escritura-1481414990
+
+- **Lote/Terreno para comprar com 420 m² em Vila Nova Esperança, Criciúma**
+  - 💰 R$ 110.000 | 📐 420 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-cozinha-vila-nova-esperanca-criciuma-420m2-id-2872618471/
+
+- **Lote/Terreno para comprar com 372 m² em Vila Nova Esperança, Criciúma**
+  - 💰 R$ 110.000 | 📐 372 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-cozinha-vila-nova-esperanca-criciuma-372m2-id-2872623473/
+
+- **Lote/Terreno para comprar com 329 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 135.000 | 📐 329 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-329m2-id-2862123961/
+
+- **Lote/Terreno para comprar com 7500 m² em Argentina, Criciúma**
+  - 💰 R$ 980.000 | 📐 7500 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-argentina-criciuma-7500m2-id-2824276131/
+
+- **Lote/Terreno para comprar com 592 m² em São Simão, Criciúma**
+  - 💰 R$ 195.000 | 📐 592 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-simao-criciuma-592m2-id-2863622104/
+
+- **Lote/Terreno para comprar com 364 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 116.000 | 📐 364 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-energia-eletrica-primeira-linha-criciuma-364m2-id-2872153205/
+
+- **Lote/Terreno para comprar com 591 m² em São Simão, Criciúma**
+  - 💰 R$ 195.000 | 📐 591 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-simao-criciuma-591m2-id-2863625255/
+
+- **Lote/Terreno para comprar com 495 m² em São Defende, Criciúma**
+  - 💰 R$ 177.850 | 📐 495 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-defende-criciuma-495m2-id-2868408760/
+
+- **Lote/Terreno para comprar com 380 m² em Archimedes Naspolini, Criciúma**
+  - 💰 R$ 166.059 | 📐 380 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-archimedes-naspolini-criciuma-380m2-id-2870330101/
+
+- **Lote/Terreno para comprar com 500 m² em Santo Antônio, Criciúma**
+  - 💰 R$ 175.000 | 📐 500 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-santo-antonio-criciuma-500m2-id-2563037025/
+
+- **Lote/Terreno para comprar com 490 m² em Vila Isabel, Criciúma**
+  - 💰 R$ 270.000 | 📐 490 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-vila-isabel-criciuma-490m2-id-2855663321/
+
+- **Lote/Terreno para comprar com 450 m² em Maria Céu, Criciúma**
+  - 💰 R$ 172.097 | 📐 450 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-maria-ceu-criciuma-450m2-id-2868408971/
+
+- **Lote/Terreno para comprar com 917 m² em Argentina, Criciúma**
+  - 💰 R$ 560.000 | 📐 917 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-argentina-criciuma-917m2-id-2725006600/
+
+- **Lote/Terreno para comprar com 360 m² em Rio Maina, Criciúma**
+  - 💰 R$ 187.194 | 📐 360 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-rio-maina-criciuma-360m2-id-2870330102/
+
+- **Lote/Terreno para comprar com 390 m² em Lote Seis, Criciúma**
+  - 💰 R$ 309.230 | 📐 390 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-lote-seis-criciuma-390m2-id-2872428424/
+
+- **Lote/Terreno para comprar com 360 m² em São Defende, Criciúma**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-defende-criciuma-360m2-id-2824277326/
+
+- **Lote/Terreno para comprar com 909 m² em Mãe Luzia, Criciúma**
+  - 💰 R$ 550.000 | 📐 909 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-mae-luzia-criciuma-909m2-id-2841794121/
+
+- **Lote/Terreno para comprar com 463 m² em Coloninha Zilli, Criciúma**
+  - 💰 R$ 245.333 | 📐 463 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-coloninha-zilli-criciuma-463m2-id-2868408957/
+
+- **Lote/Terreno para comprar com 420 m² em Mina do Mato, Criciúma**
+  - 💰 R$ 190.000 | 📐 420 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-mina-do-mato-criciuma-420m2-id-2844168516/
+
+- **Lote/Terreno para comprar com 361 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 190.000 | 📐 361 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-361m2-id-2651209681/
+
+- **Lote/Terreno para comprar com 379 m² em Laranjinha, Criciúma**
+  - 💰 R$ 135.000 | 📐 379 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-laranjinha-criciuma-379m2-id-2870308622/
+
+- **Lote/Terreno para comprar com 361 m², 1 quarto, 1 banheiro em São Defe**
+  - 💰 R$ 193.966 | 📐 361 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-1-quarto-sao-defende-criciuma-361m2-id-2867342456/
+
+- **Lote/Terreno para comprar com 368 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 150.000 | 📐 368 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-368m2-id-2869759829/
+
+- **Lote/Terreno para comprar com 246 m² em Vila Nova Esperança, Criciúma**
+  - 💰 R$ 111.930 | 📐 246 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-vila-nova-esperanca-criciuma-246m2-id-2871123158/
+
+- **Lote/Terreno para comprar com 360 m², 1 quarto, 1 banheiro em Vila Flo**
+  - 💰 R$ 176.102 | 📐 360 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-1-quarto-vila-floresta-ii-criciuma-360m2-id-2872151797/
+
+- **Lote/Terreno para comprar com 435 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 325.000 | 📐 435 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-435m2-id-2844168132/
+
+- **Lote/Terreno para comprar com 361 m² em Vila Floresta, Criciúma**
+  - 💰 R$ 150.000 | 📐 361 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-vila-floresta-criciuma-361m2-id-2824276362/
+
+- **Lote/Terreno para comprar com 801 m² em Argentina, Criciúma**
+  - 💰 R$ 547.955 | 📐 801 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-argentina-criciuma-801m2-id-2565180561/
+
+- **Lote/Terreno para comprar com 360 m² em Primeira Linha Pontilhão, Cric**
+  - 💰 R$ 117.650 | 📐 360 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-pontilhao-criciuma-360m2-id-2868409359/
+
+- **Lote/Terreno para comprar com 450 m² em Mina do Mato, Criciúma**
+  - 💰 R$ 190.000 | 📐 450 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-mina-do-mato-criciuma-450m2-id-2806730215/
+
+- **Lote/Terreno para comprar com 395 m² em Centro, Içara**
+  - 💰 R$ 174.950 | 📐 395 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-lixeira-de-reciclagem-centro-icara-395m2-id-2867765901/
+
+- **Lote/Terreno para comprar com 360 m² em Centro, Içara**
+  - 💰 R$ 179.900 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-infraestrutura-internet-centro-icara-360m2-id-2872303599/
+
+- **Lote/Terreno para comprar com 360 m² em Jardim Silvana, Içara**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-jardim-silvana-icara-360m2-id-2869133985/
+
+- **Lote/Terreno para comprar com 361 m² em , Içara**
+  - 💰 R$ 90.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-icara-361m2-id-2824274868/
+
+- **Lote/Terreno para comprar com 394 m² em , Içara**
+  - 💰 R$ 87.000 | 📐 394 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-icara-394m2-id-2869964492/
+
+- **Lote/Terreno para comprar com 360 m² em Liri, Içara**
+  - 💰 R$ 149.309 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-playground-liri-icara-360m2-id-2868408567/
+
+- **Lote/Terreno para comprar com 364 m² em Pedreiras, Balneário Rincão**
+  - 💰 R$ 105.000 | 📐 364 m²
+  - 📍  — Balneário Rincão
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-pedreiras-balneario-rincao-364m2-id-2871058413/
+
+- **Lote/Terreno para comprar com 361 m² em SEGUNDA LINHA, Içara**
+  - 💰 R$ 168.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-segunda-linha-icara-361m2-id-2869563776/
+
+- **Lote/Terreno para comprar com 362 m² em Boa Vista, Içara**
+  - 💰 R$ 120.000 | 📐 362 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-boa-vista-icara-362m2-id-2851157394/
+
+- **Lote/Terreno para comprar com 361 m² em Esplanada, Içara**
+  - 💰 R$ 89.570 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-esplanada-icara-361m2-id-2868409157/
+
+- **Lote/Terreno para comprar com 360 m² em Vila Nova, Içara**
+  - 💰 R$ 115.817 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-vila-nova-icara-360m2-id-2868408464/
+
+- **Lote/Terreno para comprar com 361 m² em , Içara**
+  - 💰 R$ 90.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-icara-361m2-id-2851159038/
+
+- **Lote/Terreno para comprar com 360 m² em Jardim Silvana, Içara**
+  - 💰 R$ 130.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-jardim-silvana-icara-360m2-id-2858031481/
+
+- **Lote/Terreno para comprar com 378 m² em , Içara**
+  - 💰 R$ 200.000 | 📐 378 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-icara-378m2-id-2844795721/
+
+- **Lote/Terreno para comprar com 565 m² em Dunas, Balneário Rincão**
+  - 💰 R$ 390.000 | 📐 565 m²
+  - 📍  — Balneário Rincão
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-dunas-balneario-rincao-565m2-id-2868409058/
+
+- **Lote/Terreno para comprar com 441 m² em Presidente Vargas, Içara**
+  - 💰 R$ 175.000 | 📐 441 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-presidente-vargas-icara-441m2-id-2824865891/
+
+- **Lote/Terreno para comprar com 425 m² em Raichaski, Içara**
+  - 💰 R$ 178.136 | 📐 425 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-raichaski-icara-425m2-id-2868408959/
+
+- **Lote/Terreno para comprar com 374 m², 1 quarto, 1 banheiro em Demboski**
+  - 💰 R$ 191.104 | 📐 374 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-1-quarto-demboski-icara-374m2-id-2865597754/
+
+- **Lote/Terreno para comprar com 445 m² em Demboski, Içara**
+  - 💰 R$ 140.000 | 📐 445 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-demboski-icara-445m2-id-2819529261/
+
+- **Lote/Terreno para comprar com 2881 m² em Tereza Cristina, Içara**
+  - 💰 R$ 886.143 | 📐 2881 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-tereza-cristina-icara-2881m2-id-2566096696/
+
+- **Lote/Terreno para comprar com 438 m² em Vila Nova, Içara**
+  - 💰 R$ 185.351 | 📐 438 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-vila-nova-icara-438m2-id-2662112977/
+
+- **Lote/Terreno para comprar com 360 m² em , Içara**
+  - 💰 R$ 169.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-icara-360m2-id-2831299723/
+
+- **Lote/Terreno para comprar com 402 m² em Presidente Vargas, Içara**
+  - 💰 R$ 385.000 | 📐 402 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-presidente-vargas-icara-402m2-id-2789164216/
+
+- **Lote/Terreno para comprar com 361 m² em Tereza Cristina, Içara**
+  - 💰 R$ 115.070 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-tereza-cristina-icara-361m2-id-2722527440/
+
+- **Lote/Terreno para comprar com 360 m² em Balneário Rincão, Içara**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-esgoto-balneario-rincao-icara-360m2-id-2846485825/
+
+- **Lote/Terreno para comprar com 1357 m² em Liri, Içara**
+  - 💰 R$ 800.000 | 📐 1357 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-liri-icara-1357m2-id-2817207784/
+
+- **Lote/Terreno para comprar com 2881 m² em Tereza Cristina, Içara**
+  - 💰 R$ 912.582 | 📐 2881 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-tereza-cristina-icara-2881m2-id-2566096785/
+
+- **Lote/Terreno para comprar com 360 m² em Liri, Içara**
+  - 💰 R$ 152.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-academia-liri-icara-360m2-id-2819777122/
+
+- **Lote/Terreno para comprar com 423 m² em Demboski, Içara**
+  - 💰 R$ 120.000 | 📐 423 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-demboski-icara-423m2-id-2819956014/
+
+- **Lote/Terreno para comprar com 364 m² em Liri, Içara**
+  - 💰 R$ 130.000 | 📐 364 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-liri-icara-364m2-id-2725008159/
+
+- **Lote/Terreno para comprar com 408 m² em Santa Cruz, Forquilhinha**
+  - 💰 R$ 179.000 | 📐 408 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-santa-cruz-forquilhinha-408m2-id-2868409260/
+
+- **Lote/Terreno para comprar com 360 m² em Santa Cruz, Forquilhinha**
+  - 💰 R$ 127.337 | 📐 360 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-santa-cruz-forquilhinha-360m2-id-2868409159/
+
+- **Lote/Terreno para comprar com 360 m² em Santa Cruz, Forquilhinha**
+  - 💰 R$ 121.000 | 📐 360 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-esgoto-santa-cruz-forquilhinha-360m2-id-2764775148/
+
+- **Lote/Terreno para comprar com 385 m² em Santa Ana, Forquilhinha**
+  - 💰 R$ 125.000 | 📐 385 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-santa-ana-forquilhinha-385m2-id-2844168914/
+
+- **Lote/Terreno para comprar com 1000 m² em Santa Cruz, Forquilhinha**
+  - 💰 R$ 300.000 | 📐 1000 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-santa-cruz-forquilhinha-1000m2-id-2734820444/
+
+- **Lote/Terreno para comprar com 364 m² em Santa Cruz, Forquilhinha**
+  - 💰 R$ 90.000 | 📐 364 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-santa-cruz-forquilhinha-364m2-id-2846839123/
+
+- **Lote/Terreno para comprar com 455 m² em Santa Líbera, Forquilhinha**
+  - 💰 R$ 80.000 | 📐 455 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-santa-libera-forquilhinha-455m2-id-2843714115/
+
+- **Lote/Terreno para comprar com 510 m² em Santa Cruz, Forquilhinha**
+  - 💰 R$ 146.700 | 📐 510 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-santa-cruz-forquilhinha-510m2-id-2745560329/
+
+- **Lote/Terreno para comprar com 384 m² em Santa Líbera, Forquilhinha**
+  - 💰 R$ 75.000 | 📐 384 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-santa-libera-forquilhinha-384m2-id-2687182418/
+
+- **Lote/Terreno para comprar com 30000 m² em Cidade Alta, Forquilhinha**
+  - 💰 R$ 600.000 | 📐 30000 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-cidade-alta-forquilhinha-30000m2-id-2851161425/
+
+- **Lote/Terreno para comprar com 576 m² em Centro, Nova Veneza**
+  - 💰 R$ 361.581 | 📐 576 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-centro-nova-veneza-576m2-id-2704501558/
+
+- **Lote/Terreno para comprar com 363 m² em Caravaggio, Nova Veneza**
+  - 💰 R$ 149.051 | 📐 363 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-caravaggio-nova-veneza-363m2-id-2868408068/
+
+- **Lote/Terreno para comprar com 565 m² em Centro, Nova Veneza**
+  - 💰 R$ 168.000 | 📐 565 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-esgoto-centro-nova-veneza-565m2-id-2784747716/
+
+- **Lote/Terreno para comprar com 364 m² em São Bento Alto, Nova Veneza**
+  - 💰 R$ 130.000 | 📐 364 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-bento-alto-nova-veneza-364m2-id-2851160715/
+
+- **Lote/Terreno para comprar com 549 m² em BORTOLOTTO, Nova Veneza**
+  - 💰 R$ 500.000 | 📐 549 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-bortolotto-nova-veneza-549m2-id-2662031471/
+
+- **Lote/Terreno para comprar com 1496 m² em São Bento Baixo, Nova Veneza**
+  - 💰 R$ 165.000 | 📐 1496 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-bento-baixo-nova-veneza-1496m2-id-2819657189/
+
+- **Lote/Terreno para comprar com 546 m² em Centro, Nova Veneza**
+  - 💰 R$ 252.000 | 📐 546 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-academia-centro-nova-veneza-546m2-id-2858033254/
+
+- **Lote/Terreno para comprar com 363 m² em Nossa Senhora de Caravaggio, N**
+  - 💰 R$ 149.000 | 📐 363 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-energia-eletrica-nossa-senhora-de-caravaggio-nova-veneza-363m2-id-2851110319/
+
+- **Lote/Terreno para comprar com 549 m² em Bortolotto, Nova Veneza**
+  - 💰 R$ 500.000 | 📐 549 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-bortolotto-nova-veneza-549m2-id-2662031076/
+
+- **Lote/Terreno para comprar com 40000 m² em Centro, Nova Veneza**
+  - 💰 R$ 8.000.000 | 📐 40000 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-centro-nova-veneza-40000m2-id-2872484400/
+
+- **Lote/Terreno para comprar com 73333 m² em PICADÃO, Nova Veneza**
+  - 💰 R$ 2.150.000 | 📐 73333 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-picadao-nova-veneza-73333m2-id-2863976654/
+
+- **Lote/Terreno para comprar com 360 m² em Centro, Nova Veneza**
+  - 💰 R$ 231.000 | 📐 360 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-jardim-centro-nova-veneza-360m2-id-2842646179/
+
+- **Lote/Terreno para comprar com 558 m² em Centro, Nova Veneza**
+  - 💰 R$ 370.000 | 📐 558 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-centro-nova-veneza-558m2-id-2865272257/
+
+- **Lote/Terreno para comprar com 270000 m² em São Bento Baixo, Nova Venez**
+  - 💰 R$ 1.420.000 | 📐 270000 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-bento-baixo-nova-veneza-270000m2-id-2851157402/
+
+- **Lote/Terreno para comprar com 364 m² em São Bento Alto, Nova Veneza**
+  - 💰 R$ 130.000 | 📐 364 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-bento-alto-nova-veneza-364m2-id-2828703331/
+
+- **Lote/Terreno para comprar com 6670 m² em Centro, Nova Veneza**
+  - 💰 R$ 850.000 | 📐 6670 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-centro-nova-veneza-6670m2-id-2873507088/
+
+- **Lote/Terreno para comprar com 420 m² em Horizonte, Cocal do Sul**
+  - 💰 R$ 220.000 | 📐 420 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-cozinha-horizonte-cocal-do-sul-420m2-id-2872620928/
+
+- **Lote/Terreno para comprar com 1160 m² em , Cocal do Sul**
+  - 💰 R$ 679.980 | 📐 1160 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-cocal-do-sul-1160m2-id-2778972037/
+
+- **Lote/Terreno para comprar com 365 m² em Jardim das Palmeiras, Cocal do**
+  - 💰 R$ 192.000 | 📐 365 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-jardim-das-palmeiras-cocal-do-sul-365m2-id-2868408465/
+
+- **Lote/Terreno para comprar com 514 m² em Jardim das Palmeiras, Cocal do**
+  - 💰 R$ 520.000 | 📐 514 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-jardim-das-palmeiras-cocal-do-sul-514m2-id-2868408280/
+
+- **Lote/Terreno para comprar com 365 m² em , Cocal do Sul**
+  - 💰 R$ 119.000 | 📐 365 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-cocal-do-sul-365m2-id-2868408969/
+
+- **Lote/Terreno para comprar com 1343 m² em , Cocal do Sul**
+  - 💰 R$ 526.234 | 📐 1343 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-cocal-do-sul-1343m2-id-2671245102/
+
+- **Lote/Terreno para comprar com 365 m² em Centro, Cocal do Sul**
+  - 💰 R$ 190.000 | 📐 365 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-centro-cocal-do-sul-365m2-id-2859660701/
+
+- **Lote/Terreno para comprar com 381 m² em JARDIM DAS PALMEIRAS, Cocal do**
+  - 💰 R$ 198.390 | 📐 381 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-jardim-das-palmeiras-cocal-do-sul-381m2-id-2662031472/
+
+- **Lote/Terreno para comprar com 570 m² em Centro, Cocal do Sul**
+  - 💰 R$ 114.000 | 📐 570 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-centro-cocal-do-sul-570m2-id-2835004221/
+
+- **Lote/Terreno para comprar com 1115 m² em , Cocal do Sul**
+  - 💰 R$ 435.000 | 📐 1115 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-cocal-do-sul-1115m2-id-2677317019/
+
+- **Lote/Terreno para comprar com 487 m² em Cocal do Sul, Cocal do Sul**
+  - 💰 R$ 165.000 | 📐 487 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-cocal-do-sul-cocal-do-sul-487m2-id-2734409233/
+
+- **Lote/Terreno para comprar com 365 m² em Cocal do Sul, Cocal do Sul**
+  - 💰 R$ 155.000 | 📐 365 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-cocal-do-sul-cocal-do-sul-365m2-id-2734409622/
+
+- **Lote/Terreno para comprar com 2400 m² em Centro, Cocal do Sul**
+  - 💰 R$ 600.000 | 📐 2400 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-centro-cocal-do-sul-2400m2-id-2702944177/
+
+- **Lote/Terreno para comprar com 651 m² em , Cocal do Sul**
+  - 💰 R$ 425.000 | 📐 651 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-cocal-do-sul-651m2-id-2851160654/
+
+- **Lote/Terreno para comprar com 130 m² em Cristo Rei, Cocal do Sul**
+  - 💰 R$ 170.000 | 📐 130 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-cristo-rei-cocal-do-sul-130m2-id-2873562006/
+
+- **Lote/Terreno para comprar com 21270 m² em LINHA TORRENS, Morro da Fuma**
+  - 💰 R$ 890.000 | 📐 21270 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-linha-torrens-morro-da-fumaca-21270m2-id-2868408288/
+
+- **Lote/Terreno para comprar com 508 m² em Morro da Fumaça, Morro da Fuma**
+  - 💰 R$ 550.000 | 📐 508 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-morro-da-fumaca-morro-da-fumaca-508m2-id-2870485678/
+
