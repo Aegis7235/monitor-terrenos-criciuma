@@ -25,33 +25,70 @@ def _get(url):
     return r
 
 
-def extrair_next_data(html):
-    soup = BeautifulSoup(html, "lxml")
-    tag = soup.find("script", {"id": "__NEXT_DATA__"})
-    if tag:
-        try:
-            return json.loads(tag.string)
-        except Exception:
-            pass
-    return None
-
-
-def parsear_anuncio(item):
+def _total_paginas(soup):
+    """Extrai total de anúncios do datalayer para calcular páginas."""
     try:
-        preco_raw = item.get("price") or item.get("priceValue") or ""
-        preco = int(re.sub(r"\D", "", str(preco_raw))) if preco_raw else None
+        dl = soup.find("script", {"id": "datalayer"})
+        if dl:
+            m = re.search(r'"totalOfAds"\s*:\s*(\d+)', dl.string or "")
+            if m:
+                total = int(m.group(1))
+                return max(1, (total + 24) // 25)
+    except Exception:
+        pass
+    return 10
 
-        loc    = item.get("location") or {}
-        cidade = (loc.get("municipality") or loc.get("city") or {}).get("label", "")
-        bairro = (loc.get("neighbourhood") or loc.get("neighborhood") or {}).get("label", "")
 
-        titulo = item.get("subject") or item.get("title") or ""
-        desc   = item.get("body") or item.get("description") or ""
-        m      = re.search(r"(\d[\d\.]*)\s*m[²2]", titulo + " " + desc, re.I)
-        area   = int(re.sub(r"\.", "", m.group(1))) if m else None
+def parsear_card(section):
+    """
+    Parseia um <section class="olx-adcard ..."> do HTML renderizado.
+    Seletores confirmados no HTML real retornado pelo ScraperAPI.
+    """
+    try:
+        # URL e ID — <a data-testid="adcard-link">
+        link = section.find("a", attrs={"data-testid": "adcard-link"})
+        if not link:
+            return None
+        url = link.get("href", "")
+        id_match = re.search(r'-(\d{7,})$', url.rstrip("/"))
+        anuncio_id = id_match.group(1) if id_match else ""
+        if not anuncio_id:
+            return None
 
-        anuncio_id = str(item.get("listId") or item.get("pk") or item.get("id") or "")
-        url        = item.get("url") or f"https://www.olx.com.br/anuncio/{anuncio_id}"
+        # Título — <h2 class="... olx-adcard__title ...">
+        titulo = ""
+        titulo_tag = section.find("h2", class_=re.compile(r"olx-adcard__title"))
+        if titulo_tag:
+            titulo = titulo_tag.get_text(strip=True)
+
+        # Preço — <h3 class="... olx-adcard__price ...">
+        preco = None
+        preco_tag = section.find("h3", class_=re.compile(r"olx-adcard__price"))
+        if preco_tag:
+            nums = re.sub(r"\D", "", preco_tag.get_text(strip=True))
+            preco = int(nums) if nums else None
+
+        # Localização — <p class="... olx-adcard__location">
+        # Texto: "Criciúma, Vila Floresta"
+        cidade, bairro = "", ""
+        loc_tag = section.find("p", class_=re.compile(r"olx-adcard__location"))
+        if loc_tag:
+            partes = [p.strip() for p in loc_tag.get_text(strip=True).split(",")]
+            cidade = partes[0] if partes else ""
+            bairro = partes[1] if len(partes) > 1 else ""
+
+        # Área — aria-label="578 metros quadrados" no div olx-adcard__detail
+        area = None
+        detail = section.find("div", class_=re.compile(r"olx-adcard__detail"), attrs={"aria-label": True})
+        if detail:
+            m = re.search(r'(\d+)\s*metros quadrados', detail["aria-label"], re.I)
+            if m:
+                area = int(m.group(1))
+        # Fallback: busca m² no texto geral
+        if area is None:
+            m = re.search(r'(\d[\d\.]*)\s*m[²2]', section.get_text(" ", strip=True), re.I)
+            if m:
+                area = int(re.sub(r"\.", "", m.group(1)))
 
         return {
             "id":          f"olx_{anuncio_id}",
@@ -63,11 +100,11 @@ def parsear_anuncio(item):
             "estado":      "SC",
             "url":         url,
             "fonte":       "OLX",
-            "descricao":   desc[:400],
+            "descricao":   "",
             "data_coleta": datetime.now().isoformat(),
         }
     except Exception as e:
-        print(f"[OLX] Erro ao parsear: {e}")
+        print(f"[OLX] Erro ao parsear card: {e}")
         return None
 
 
@@ -75,6 +112,8 @@ def scrape_olx():
     anuncios = []
 
     for base_url in OLX_URLS:
+        total_pags = None
+
         for pagina in range(1, 11):
             url = f"{base_url}?o={pagina}" if pagina > 1 else base_url
             print(f"[OLX] Página {pagina}: {url}")
@@ -84,34 +123,25 @@ def scrape_olx():
                     print(f"[OLX] HTTP {r.status_code} — encerrando")
                     break
 
-                data = extrair_next_data(r.text)
-                if not data:
-                    print("[OLX] __NEXT_DATA__ não encontrado")
+                soup = BeautifulSoup(r.text, "lxml")
+
+                if total_pags is None:
+                    total_pags = _total_paginas(soup)
+                    print(f"[OLX] Total estimado de páginas: {total_pags}")
+
+                # Cada anúncio é um <section class="olx-adcard ...">
+                cards = soup.find_all("section", class_=re.compile(r"olx-adcard"))
+                if not cards:
+                    print(f"[OLX] Nenhum card na página {pagina} — fim")
                     break
 
-                pp       = data.get("props", {}).get("pageProps", {})
-                listings = (
-                    pp.get("listings")
-                    or pp.get("ads")
-                    or pp.get("searchData", {}).get("listings")
-                    or []
-                )
-                if not listings:
-                    print(f"[OLX] Sem listagens na página {pagina} — fim")
-                    break
-
-                for item in listings:
-                    raw = item.get("listing") or item.get("ad") or item
-                    a   = parsear_anuncio(raw)
-                    if a and a["id"] != "olx_":
+                print(f"[OLX] Página {pagina}: {len(cards)} cards")
+                for card in cards:
+                    a = parsear_card(card)
+                    if a:
                         anuncios.append(a)
 
-                total_pags = (
-                    pp.get("pageInfo", {}).get("totalPages")
-                    or pp.get("totalPages")
-                    or 1
-                )
-                if pagina >= int(total_pags):
+                if pagina >= total_pags:
                     break
 
                 time.sleep(2)
