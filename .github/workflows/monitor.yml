@@ -2,7 +2,6 @@ name: Monitor de Terrenos — Criciúma/SC
 
 on:
   schedule:
-    # 06h, 12h, 18h, 00h horário de Brasília (UTC-3)
     - cron: "0 3,9,15,21 * * *"
   workflow_dispatch:
 
