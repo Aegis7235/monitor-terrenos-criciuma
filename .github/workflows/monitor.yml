@@ -1,0 +1,37 @@
+name: Monitor de Terrenos — Criciúma/SC
+
+on:
+  schedule:
+    # 06h, 12h, 18h, 00h horário de Brasília (UTC-3)
+    - cron: "0 3,9,15,21 * * *"
+  workflow_dispatch:
+
+jobs:
+  monitorar:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+
+    steps:
+      - name: Checkout
+        uses: actions/checkout@v4
+
+      - name: Python 3.11
+        uses: actions/setup-python@v5
+        with:
+          python-version: "3.11"
+          cache: pip
+
+      - name: Instalar dependências
+        run: pip install -r requirements.txt
+
+      - name: Executar monitor
+        run: python main.py
+
+      - name: Commit resultados
+        run: |
+          git config user.email "bot@monitor-terrenos"
+          git config user.name "Monitor Bot"
+          git add docs/ anuncios.db
+          git diff-index --quiet HEAD || \
+            git commit -m "🔄 Atualização $(date -u '+%d/%m/%Y %H:%M') UTC" && git push
