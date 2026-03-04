@@ -1,17 +1,23 @@
-"""
-Scraper VivaReal / ZAP Imóveis — usa cloudscraper para bypass Cloudflare.
-Ambos os portais pertencem ao Grupo OLX e têm estrutura Next.js similar.
-"""
-import json, re, time
+import json, re, time, requests, os
 from datetime import datetime
 from bs4 import BeautifulSoup
 
-try:
-    import cloudscraper
-    _OK = True
-except ImportError:
-    _OK = False
-    print("[ZAP/VR] cloudscraper não instalado — portais desativados")
+SCRAPERAPI_KEY = os.environ.get("SCRAPERAPI_KEY", "")
+
+URLS = [
+    ("https://www.zapimoveis.com.br/venda/terrenos-lotes-condominios/sc+criciuma/",         "ZAP"),
+    ("https://www.zapimoveis.com.br/venda/terrenos-lotes-condominios/sc+icara/",            "ZAP"),
+    ("https://www.zapimoveis.com.br/venda/terrenos-lotes-condominios/sc+forquilhinha/",     "ZAP"),
+    ("https://www.zapimoveis.com.br/venda/terrenos-lotes-condominios/sc+nova-veneza/",      "ZAP"),
+    ("https://www.zapimoveis.com.br/venda/terrenos-lotes-condominios/sc+cocal-do-sul/",     "ZAP"),
+    ("https://www.zapimoveis.com.br/venda/terrenos-lotes-condominios/sc+morro-da-fumaca/",  "ZAP"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/criciuma/lote-terreno_residencial/",       "VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/icara/lote-terreno_residencial/",          "VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/forquilhinha/lote-terreno_residencial/",   "VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/nova-veneza/lote-terreno_residencial/",    "VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/cocal-do-sul/lote-terreno_residencial/",   "VivaReal"),
+    ("https://www.vivareal.com.br/venda/santa-catarina/morro-da-fumaca/lote-terreno_residencial/","VivaReal"),
+]
 
 CIDADES_REGIAO = {
     "criciúma","criciuma","içara","icara","forquilhinha",
@@ -20,23 +26,28 @@ CIDADES_REGIAO = {
     "sangão","sangao","balneário rincão","balneario rincao",
 }
 
-URLS = [
-    ("https://www.zapimoveis.com.br/venda/terrenos-lotes-condominios/sc+criciuma/", "ZAP"),
-    ("https://www.vivareal.com.br/venda/santa-catarina/criciuma/lote-terreno_residencial/", "VivaReal"),
-]
+
+def _get(url):
+    payload = {
+        "api_key":      SCRAPERAPI_KEY,
+        "url":          url,
+        "country_code": "br",
+        "render":       "false",
+    }
+    return requests.get("https://api.scraperapi.com/", params=payload, timeout=60)
 
 
 def _cidade_ok(cidade):
     if not cidade:
         return True
-    return cidade.lower() in CIDADES_REGIAO or any(c in cidade.lower() for c in CIDADES_REGIAO)
+    return any(c in cidade.lower() for c in CIDADES_REGIAO)
 
 
 def _parsear(listing, fonte):
     try:
-        ld = listing.get("listing") or listing
+        ld     = listing.get("listing") or listing
         precos = ld.get("pricingInfos") or []
-        preco = None
+        preco  = None
         for p in precos:
             raw = p.get("price") or p.get("businessPrice") or ""
             if raw:
@@ -53,23 +64,24 @@ def _parsear(listing, fonte):
         areas = ld.get("usableAreas") or ld.get("totalAreas") or []
         area  = int(areas[0]) if areas else None
 
-        lid   = ld.get("id") or ld.get("listingId") or ""
+        lid    = ld.get("id") or ld.get("listingId") or ""
         titulo = ld.get("title") or f"Terreno em {cidade}"
         desc   = ld.get("description") or ""
-        url    = f"https://www.zapimoveis.com.br/imovel/{lid}/" if fonte == "ZAP" \
-                 else f"https://www.vivareal.com.br/imovel/{lid}/"
+        url    = (f"https://www.zapimoveis.com.br/imovel/{lid}/"
+                  if fonte == "ZAP"
+                  else f"https://www.vivareal.com.br/imovel/{lid}/")
 
         return {
-            "id": f"zap_{lid}",
-            "titulo": titulo[:120],
-            "preco": preco,
-            "area_m2": area,
-            "cidade": cidade,
-            "bairro": bairro,
-            "estado": "SC",
-            "url": url,
-            "fonte": fonte,
-            "descricao": desc[:400],
+            "id":          f"zap_{lid}",
+            "titulo":      titulo[:120],
+            "preco":       preco,
+            "area_m2":     area,
+            "cidade":      cidade,
+            "bairro":      bairro,
+            "estado":      "SC",
+            "url":         url,
+            "fonte":       fonte,
+            "descricao":   desc[:400],
             "data_coleta": datetime.now().isoformat(),
         }
     except Exception as e:
@@ -78,20 +90,14 @@ def _parsear(listing, fonte):
 
 
 def scrape_vivareal_zap():
-    if not _OK:
-        return []
-
     anuncios = []
-    scraper = cloudscraper.create_scraper(
-        browser={"browser": "chrome", "platform": "windows", "mobile": False}
-    )
 
     for base_url, nome in URLS:
-        print(f"[{nome}] Iniciando...")
+        print(f"[{nome}] Coletando: {base_url}")
         for pagina in range(1, 6):
             url = f"{base_url}?pagina={pagina}" if pagina > 1 else base_url
             try:
-                r = scraper.get(url, timeout=20)
+                r = _get(url)
                 if r.status_code != 200:
                     print(f"[{nome}] HTTP {r.status_code} — pulando")
                     break
@@ -102,14 +108,15 @@ def scrape_vivareal_zap():
                     print(f"[{nome}] __NEXT_DATA__ ausente — pulando")
                     break
 
-                data = json.loads(tag.string)
-                pp   = data.get("props", {}).get("pageProps", {})
+                data     = json.loads(tag.string)
+                pp       = data.get("props", {}).get("pageProps", {})
                 listings = (
                     pp.get("listings")
                     or pp.get("search", {}).get("result", {}).get("listings")
                     or []
                 )
                 if not listings:
+                    print(f"[{nome}] Sem listings na página {pagina}")
                     break
 
                 for item in listings:
@@ -118,7 +125,7 @@ def scrape_vivareal_zap():
                         anuncios.append(a)
 
                 print(f"[{nome}] Página {pagina}: {len(listings)} itens")
-                time.sleep(3)
+                time.sleep(2)
 
             except Exception as e:
                 print(f"[{nome}] Erro: {e}")
