@@ -5765,3 +5765,41 @@
   - 📍  — Morro da Fumaça
   - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-morro-da-fumaca-morro-da-fumaca-360m2-id-2869364682/
 
+
+## 🆕 7 novos anúncios — 05/03/2026 11:10
+
+- **Terreno frente Leste bairro Xangri-lá dos Mares**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-leste-bairro-xangri-la-dos-mares-1483122333
+
+- **Oportunidade Terreno com localização Estratégica**
+  - 💰 R$ 115.000 | 📐 342 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-com-localizacao-estrategica-1483120810
+
+- **Lote/Terreno para comprar com 641 m² em Santo Antônio, Criciúma**
+  - 💰 R$ 240.000 | 📐 641 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-santo-antonio-criciuma-641m2-id-2855771721/
+
+- **Lote/Terreno para comprar com 420 m² em Lote Seis, Criciúma**
+  - 💰 R$ 350.000 | 📐 420 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-energia-eletrica-lote-seis-criciuma-420m2-id-2570014218/
+
+- **Lote/Terreno para comprar com 367 m² em Santa Luzia, Criciúma**
+  - 💰 R$ 121.000 | 📐 367 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-energia-eletrica-santa-luzia-criciuma-367m2-id-2872151762/
+
+- **Lote/Terreno para comprar com 392 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 235.000 | 📐 392 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-392m2-id-2844168613/
+
+- **Lote/Terreno para comprar com 385 m² em Demboski, Içara**
+  - 💰 R$ 150.000 | 📐 385 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-demboski-icara-385m2-id-2860340468/
+
