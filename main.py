@@ -14,7 +14,8 @@ from utils.geocoder import geocodificar_anuncios
 from utils.map_generator import gerar_mapa
 
 LOG = "docs/log_novidades.md"
-LIMITE_PENDENTES = 50  # Se houver mais que isso sem coordenadas, pula o scraping
+LIMITE_PENDENTES = 50   # Se houver mais que isso sem coordenadas, pula o scraping
+GEO_POR_RODADA   = 100  # Quantos anúncios geocodificar por execução
 
 
 def escrever_log(novos):
@@ -66,9 +67,10 @@ def main():
         print(f"  🆕 Novos: {len(novos)}")
 
         # Recarrega pendentes após salvar os novos
-        pendentes = carregar_sem_coordenadas(LIMITE_PENDENTES)
+        pendentes = carregar_sem_coordenadas(GEO_POR_RODADA)
 
     # 5. Geocodifica pendentes
+    pendentes = carregar_sem_coordenadas(GEO_POR_RODADA)
     if pendentes:
         print(f"\n▶ Geocodificando {len(pendentes)} anúncios...")
         geocodificar_anuncios(pendentes, atualizar_coordenadas)
