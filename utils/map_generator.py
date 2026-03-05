@@ -1,23 +1,21 @@
 """
-Gera mapa HTML interativo com Leaflet + filtros dinâmicos.
-- Filtro de área mínima (slider)
-- Filtro de apenas novos anúncios (toggle)
-- Painel fixo no canto inferior esquerdo
+Gera mapa HTML interativo — dark mode, foto no popup,
+painel de filtros, sidebar retrátil com listagens.
 """
-import os, json
+import os, json, re
 from datetime import datetime
 
 CRICIUMA = (-28.6808, -49.3697)
 
 def _cor_hex(preco):
-    if preco is None:   return "#95a5a6"  # cinza
-    if preco < 100_000: return "#27ae60"  # verde
-    if preco < 300_000: return "#2980b9"  # azul
-    if preco < 600_000: return "#e67e22"  # laranja
-    return "#e74c3c"                      # vermelho
+    if preco is None:   return "#64748b"
+    if preco < 100_000: return "#22c55e"
+    if preco < 300_000: return "#3b82f6"
+    if preco < 600_000: return "#f97316"
+    return "#ef4444"
 
 def _fmt(preco):
-    if preco is None: return "Preço não informado"
+    if preco is None: return "Não informado"
     return "R$ {:,.0f}".format(preco).replace(",", ".")
 
 def _historico_html(hist_json):
@@ -31,10 +29,9 @@ def _historico_html(hist_json):
             f"<tr><td>{h['data'][:10]}</td><td>{_fmt(h['preco'])}</td></tr>"
             for h in sorted(hist, key=lambda x: x["data"])
         )
-        return f"""
-        <details>
-          <summary style="cursor:pointer;color:#3498db;font-size:12px">📈 Histórico de preço</summary>
-          <table style="font-size:11px;width:100%;margin-top:4px">
+        return f"""<details class="hist-details">
+          <summary>📈 Histórico de preço</summary>
+          <table class="hist-table">
             <tr><th>Data</th><th>Preço</th></tr>{linhas}
           </table>
         </details>"""
@@ -46,49 +43,43 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
     os.makedirs(os.path.dirname(output), exist_ok=True)
     novos_ids = set(novos_ids or [])
 
-    # Serializa anúncios para JS — apenas os que têm coordenadas
     dados_js = []
     area_max = 0
+    preco_max = 0
+
     for a in anuncios:
         if not a.get("lat") or not a.get("lon"):
             continue
-        area = a.get("area_m2") or 0
-        if area > area_max:
-            area_max = area
-        eh_novo = a["id"] in novos_ids
+        area  = a.get("area_m2") or 0
+        preco = a.get("preco") or 0
+        if area  > area_max:  area_max  = area
+        if preco > preco_max: preco_max = preco
+
+        eh_novo  = a["id"] in novos_ids
         hist_html = _historico_html(a.get("historico"))
-        badge = '<span style="background:#e74c3c;color:#fff;padding:2px 7px;border-radius:3px;font-size:11px;font-weight:bold">🆕 NOVO</span><br><br>' if eh_novo else ""
-        bairro_cidade = (a.get("bairro") or "") + (" — " if a.get("bairro") else "") + (a.get("cidade") or "")
-        popup = f"""<div style="font-family:Arial,sans-serif;min-width:230px;max-width:280px">
-          {badge}
-          <b style="font-size:14px">{(a.get('titulo') or 'Terreno à venda')[:70]}</b>
-          <hr style="margin:6px 0">
-          💰 <b>{_fmt(a.get('preco'))}</b><br>
-          📐 {a.get('area_m2') or '?'} m²<br>
-          📍 {bairro_cidade}<br>
-          🏢 <small style="color:#666">{a.get('fonte','')}</small><br>
-          📅 <small>Detectado: {(a.get('primeira_vez') or '')[:10]}</small><br>
-          {hist_html}
-          <a href="{a.get('url','#')}" target="_blank"
-             style="display:block;margin-top:8px;padding:6px;background:#2980b9;color:#fff;
-                    text-align:center;border-radius:5px;text-decoration:none;font-size:13px">
-            Ver anúncio ↗
-          </a>
-        </div>"""
+        bairro_cidade = (a.get("bairro") or "") + (" · " if a.get("bairro") else "") + (a.get("cidade") or "")
+        foto = a.get("foto") or ""
 
         dados_js.append({
             "lat":    a["lat"],
             "lon":    a["lon"],
             "area":   area,
-            "preco":  a.get("preco"),
+            "preco":  preco,
             "novo":   eh_novo,
-            "cor":    "#c0392b" if eh_novo else _cor_hex(a.get("preco")),
-            "icone":  "★" if eh_novo else "⌂",
-            "tooltip": f"{'🆕 ' if eh_novo else ''}{_fmt(a.get('preco'))} | {a.get('cidade','')}",
-            "popup":  popup,
+            "cor":    "#f43f5e" if eh_novo else _cor_hex(a.get("preco")),
+            "titulo": (a.get("titulo") or "Terreno à venda")[:70],
+            "preco_fmt": _fmt(a.get("preco")),
+            "area_fmt":  f"{area} m²" if area else "? m²",
+            "loc":    bairro_cidade,
+            "fonte":  a.get("fonte") or "",
+            "url":    a.get("url") or "#",
+            "foto":   foto,
+            "data":   (a.get("primeira_vez") or "")[:10],
+            "hist":   hist_html,
         })
 
-    area_max = min(area_max or 1000, 5000)  # cap razoável para o slider
+    area_max  = min(area_max or 2000, 5000)
+    preco_max = min(preco_max or 1_000_000, 5_000_000)
     agora = datetime.now().strftime("%d/%m/%Y %H:%M")
     dados_json = json.dumps(dados_js, ensure_ascii=False)
 
@@ -98,236 +89,646 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
   <meta charset="UTF-8">
   <meta name="viewport" content="width=device-width, initial-scale=1.0">
   <title>Monitor de Terrenos — Criciúma/SC</title>
+  <link rel="preconnect" href="https://fonts.googleapis.com">
+  <link href="https://fonts.googleapis.com/css2?family=DM+Sans:wght@300;400;500;600&family=DM+Mono:wght@400;500&display=swap" rel="stylesheet">
   <link rel="stylesheet" href="https://cdn.jsdelivr.net/npm/leaflet@1.9.3/dist/leaflet.css"/>
   <link rel="stylesheet" href="https://cdnjs.cloudflare.com/ajax/libs/leaflet.markercluster/1.1.0/MarkerCluster.css"/>
   <link rel="stylesheet" href="https://cdnjs.cloudflare.com/ajax/libs/leaflet.markercluster/1.1.0/MarkerCluster.Default.css"/>
   <script src="https://cdn.jsdelivr.net/npm/leaflet@1.9.3/dist/leaflet.js"></script>
   <script src="https://cdnjs.cloudflare.com/ajax/libs/leaflet.markercluster/1.1.0/leaflet.markercluster.js"></script>
   <style>
+    :root {{
+      --bg:        #0f1117;
+      --surface:   #1a1d27;
+      --surface2:  #22263a;
+      --border:    #2e3248;
+      --text:      #e2e8f0;
+      --muted:     #64748b;
+      --accent:    #6366f1;
+      --accent2:   #818cf8;
+      --green:     #22c55e;
+      --blue:      #3b82f6;
+      --orange:    #f97316;
+      --red:       #ef4444;
+      --new:       #f43f5e;
+      --radius:    12px;
+      --sidebar-w: 360px;
+    }}
     * {{ box-sizing: border-box; margin: 0; padding: 0; }}
-    html, body, #map {{ width: 100%; height: 100%; }}
+    body {{ font-family: 'DM Sans', sans-serif; background: var(--bg); color: var(--text); overflow: hidden; }}
+    html, body {{ width: 100%; height: 100%; }}
 
-    /* Painel de filtros — canto inferior esquerdo */
+    /* ── MAP ── */
+    #map {{ position: fixed; inset: 0; z-index: 1; }}
+
+    /* dark tiles override */
+    .leaflet-tile {{ filter: brightness(0.85) saturate(0.7); }}
+
+    /* cluster */
+    .marker-cluster-small,
+    .marker-cluster-medium,
+    .marker-cluster-large {{ background: rgba(99,102,241,.25) !important; }}
+    .marker-cluster-small div,
+    .marker-cluster-medium div,
+    .marker-cluster-large div {{
+      background: rgba(99,102,241,.7) !important;
+      color: #fff !important;
+      font-family: 'DM Mono', monospace;
+      font-size: 11px;
+      font-weight: 500;
+    }}
+
+    /* ── PAINEL FILTROS (esquerda) ── */
     #painel {{
       position: fixed;
-      bottom: 30px;
-      left: 10px;
-      z-index: 9999;
-      background: white;
-      padding: 14px 16px;
-      border-radius: 12px;
-      box-shadow: 0 2px 14px rgba(0,0,0,.22);
-      font-family: Arial, sans-serif;
-      font-size: 13px;
-      min-width: 220px;
-      max-width: 260px;
+      bottom: 24px;
+      left: 16px;
+      z-index: 900;
+      background: var(--surface);
+      border: 1px solid var(--border);
+      border-radius: var(--radius);
+      padding: 16px;
+      width: 240px;
+      box-shadow: 0 8px 32px rgba(0,0,0,.5);
+      backdrop-filter: blur(10px);
     }}
     #painel h4 {{
-      font-size: 14px;
-      margin-bottom: 10px;
-      color: #2c3e50;
+      font-size: 12px;
+      font-weight: 600;
+      letter-spacing: .08em;
+      text-transform: uppercase;
+      color: var(--accent2);
+      margin-bottom: 14px;
     }}
-    .filtro-bloco {{
-      margin-bottom: 12px;
+    .f-block {{ margin-bottom: 14px; }}
+    .f-label {{
+      display: flex;
+      justify-content: space-between;
+      font-size: 12px;
+      color: var(--muted);
+      margin-bottom: 6px;
     }}
-    .filtro-bloco label {{
-      display: block;
-      font-weight: bold;
-      margin-bottom: 4px;
-      color: #34495e;
-    }}
-    #area-slider {{
+    .f-label span {{ color: var(--text); font-family: 'DM Mono', monospace; font-size: 11px; }}
+    input[type=range] {{
+      -webkit-appearance: none;
       width: 100%;
-      accent-color: #2980b9;
+      height: 4px;
+      border-radius: 2px;
+      background: var(--border);
+      outline: none;
     }}
-    #area-valor {{
+    input[type=range]::-webkit-slider-thumb {{
+      -webkit-appearance: none;
+      width: 14px; height: 14px;
+      border-radius: 50%;
+      background: var(--accent);
+      cursor: pointer;
+      transition: transform .15s;
+    }}
+    input[type=range]::-webkit-slider-thumb:hover {{ transform: scale(1.3); }}
+
+    /* toggle */
+    .toggle-row {{ display: flex; align-items: center; gap: 10px; font-size: 12px; color: var(--muted); }}
+    .sw {{ position: relative; width: 36px; height: 20px; flex-shrink: 0; }}
+    .sw input {{ opacity: 0; width: 0; height: 0; }}
+    .sw-track {{
+      position: absolute; inset: 0;
+      background: var(--border);
+      border-radius: 20px;
+      cursor: pointer;
+      transition: background .2s;
+    }}
+    .sw-track:before {{
+      content: "";
+      position: absolute;
+      width: 14px; height: 14px;
+      left: 3px; top: 3px;
+      background: white;
+      border-radius: 50%;
+      transition: transform .2s;
+    }}
+    .sw input:checked + .sw-track {{ background: var(--new); }}
+    .sw input:checked + .sw-track:before {{ transform: translateX(16px); }}
+
+    /* legenda */
+    .legenda {{ margin-top: 14px; padding-top: 12px; border-top: 1px solid var(--border); }}
+    .leg-title {{ font-size: 11px; font-weight: 600; color: var(--muted); letter-spacing:.06em; text-transform:uppercase; margin-bottom: 8px; }}
+    .leg-item {{ display: flex; align-items: center; gap: 8px; font-size: 11px; color: var(--muted); margin: 4px 0; }}
+    .leg-dot {{ width: 10px; height: 10px; border-radius: 50%; flex-shrink: 0; }}
+
+    /* contador */
+    #contador {{
+      margin-top: 12px;
+      padding-top: 10px;
+      border-top: 1px solid var(--border);
+      font-size: 11px;
+      color: var(--muted);
+      text-align: center;
+    }}
+    #contador b {{ color: var(--accent2); font-family: 'DM Mono', monospace; }}
+    #atualizado {{ font-size: 10px; color: #3a3f58; margin-top: 3px; }}
+
+    /* ── SIDEBAR (direita) ── */
+    #sidebar {{
+      position: fixed;
+      top: 0; right: 0;
+      width: var(--sidebar-w);
+      height: 100%;
+      z-index: 800;
+      background: var(--surface);
+      border-left: 1px solid var(--border);
+      display: flex;
+      flex-direction: column;
+      transform: translateX(100%);
+      transition: transform .3s cubic-bezier(.4,0,.2,1);
+      box-shadow: -8px 0 32px rgba(0,0,0,.4);
+    }}
+    #sidebar.open {{ transform: translateX(0); }}
+
+    #sidebar-header {{
+      padding: 16px;
+      border-bottom: 1px solid var(--border);
+      display: flex;
+      align-items: center;
+      justify-content: space-between;
+      flex-shrink: 0;
+    }}
+    #sidebar-header h3 {{ font-size: 13px; font-weight: 600; color: var(--text); }}
+    #sidebar-count {{ font-size: 11px; color: var(--muted); font-family: 'DM Mono', monospace; }}
+
+    #sidebar-search {{
+      margin: 12px 16px;
+      padding: 8px 12px;
+      background: var(--surface2);
+      border: 1px solid var(--border);
+      border-radius: 8px;
+      color: var(--text);
+      font-family: 'DM Sans', sans-serif;
+      font-size: 12px;
+      outline: none;
+      width: calc(100% - 32px);
+      flex-shrink: 0;
+    }}
+    #sidebar-search::placeholder {{ color: var(--muted); }}
+    #sidebar-search:focus {{ border-color: var(--accent); }}
+
+    #sidebar-list {{
+      flex: 1;
+      overflow-y: auto;
+      padding: 0 12px 12px;
+    }}
+    #sidebar-list::-webkit-scrollbar {{ width: 4px; }}
+    #sidebar-list::-webkit-scrollbar-track {{ background: transparent; }}
+    #sidebar-list::-webkit-scrollbar-thumb {{ background: var(--border); border-radius: 2px; }}
+
+    .listing-card {{
+      background: var(--surface2);
+      border: 1px solid var(--border);
+      border-radius: 10px;
+      margin-bottom: 8px;
+      overflow: hidden;
+      cursor: pointer;
+      transition: border-color .15s, transform .15s;
+    }}
+    .listing-card:hover {{ border-color: var(--accent); transform: translateX(-2px); }}
+    .listing-card.novo {{ border-color: var(--new); }}
+
+    .card-img {{
+      width: 100%;
+      height: 120px;
+      object-fit: cover;
+      display: block;
+      background: var(--border);
+    }}
+    .card-no-img {{
+      width: 100%;
+      height: 60px;
+      background: var(--surface2);
+      display: flex;
+      align-items: center;
+      justify-content: center;
+      font-size: 22px;
+      color: var(--border);
+    }}
+    .card-body {{ padding: 10px 12px; }}
+    .card-novo-badge {{
       display: inline-block;
-      margin-top: 3px;
-      color: #2980b9;
-      font-weight: bold;
+      background: var(--new);
+      color: white;
+      font-size: 9px;
+      font-weight: 700;
+      letter-spacing: .06em;
+      padding: 2px 6px;
+      border-radius: 4px;
+      margin-bottom: 5px;
+      text-transform: uppercase;
     }}
-    .toggle-row {{
+    .card-titulo {{
+      font-size: 12px;
+      font-weight: 500;
+      color: var(--text);
+      line-height: 1.4;
+      margin-bottom: 6px;
+      display: -webkit-box;
+      -webkit-line-clamp: 2;
+      -webkit-box-orient: vertical;
+      overflow: hidden;
+    }}
+    .card-preco {{
+      font-size: 14px;
+      font-weight: 600;
+      color: var(--accent2);
+      font-family: 'DM Mono', monospace;
+      margin-bottom: 4px;
+    }}
+    .card-meta {{
+      display: flex;
+      gap: 10px;
+      font-size: 11px;
+      color: var(--muted);
+      flex-wrap: wrap;
+    }}
+    .card-fonte {{
+      font-size: 10px;
+      color: var(--muted);
+      margin-top: 4px;
+      text-align: right;
+    }}
+
+    /* botão abrir sidebar */
+    #btn-sidebar {{
+      position: fixed;
+      top: 50%;
+      right: 0;
+      transform: translateY(-50%);
+      z-index: 850;
+      background: var(--surface);
+      border: 1px solid var(--border);
+      border-right: none;
+      border-radius: 10px 0 0 10px;
+      padding: 12px 8px;
+      cursor: pointer;
+      color: var(--accent2);
+      font-size: 18px;
+      writing-mode: vertical-rl;
+      letter-spacing: .05em;
+      font-size: 11px;
+      font-weight: 600;
+      text-transform: uppercase;
       display: flex;
       align-items: center;
       gap: 8px;
+      transition: background .2s, right .3s cubic-bezier(.4,0,.2,1);
+      box-shadow: -4px 0 16px rgba(0,0,0,.3);
     }}
-    /* Toggle switch */
-    .switch {{
-      position: relative;
+    #btn-sidebar.shifted {{ right: var(--sidebar-w); }}
+    #btn-sidebar:hover {{ background: var(--surface2); }}
+    #btn-icon {{ font-size: 14px; writing-mode: horizontal-tb; }}
+
+    /* ── POPUP ── */
+    .leaflet-popup-content-wrapper {{
+      background: var(--surface) !important;
+      border: 1px solid var(--border) !important;
+      border-radius: var(--radius) !important;
+      box-shadow: 0 8px 32px rgba(0,0,0,.6) !important;
+      padding: 0 !important;
+      overflow: hidden;
+    }}
+    .leaflet-popup-tip-container {{ display: none; }}
+    .leaflet-popup-content {{ margin: 0 !important; width: 280px !important; }}
+    .leaflet-popup-close-button {{
+      color: var(--muted) !important;
+      top: 8px !important;
+      right: 8px !important;
+      font-size: 18px !important;
+      z-index: 10;
+    }}
+
+    .popup-img {{
+      width: 100%;
+      height: 150px;
+      object-fit: cover;
+      display: block;
+    }}
+    .popup-no-img {{
+      width: 100%;
+      height: 60px;
+      background: var(--surface2);
+      display: flex;
+      align-items: center;
+      justify-content: center;
+      font-size: 28px;
+    }}
+    .popup-body {{ padding: 12px 14px; }}
+    .popup-novo {{
       display: inline-block;
-      width: 38px;
-      height: 22px;
-      flex-shrink: 0;
+      background: var(--new);
+      color: white;
+      font-size: 10px;
+      font-weight: 700;
+      padding: 2px 8px;
+      border-radius: 4px;
+      margin-bottom: 8px;
+      letter-spacing: .05em;
     }}
-    .switch input {{ opacity: 0; width: 0; height: 0; }}
-    .slider-sw {{
-      position: absolute;
-      cursor: pointer;
-      top: 0; left: 0; right: 0; bottom: 0;
-      background: #ccc;
-      border-radius: 22px;
-      transition: .3s;
+    .popup-titulo {{
+      font-size: 13px;
+      font-weight: 600;
+      color: var(--text);
+      margin-bottom: 8px;
+      line-height: 1.4;
     }}
-    .slider-sw:before {{
-      position: absolute;
-      content: "";
-      height: 16px; width: 16px;
-      left: 3px; bottom: 3px;
-      background: white;
-      border-radius: 50%;
-      transition: .3s;
+    .popup-preco {{
+      font-size: 18px;
+      font-weight: 700;
+      color: var(--accent2);
+      font-family: 'DM Mono', monospace;
+      margin-bottom: 8px;
     }}
-    input:checked + .slider-sw {{ background: #e74c3c; }}
-    input:checked + .slider-sw:before {{ transform: translateX(16px); }}
-
-    /* Legenda */
-    #legenda {{
-      margin-top: 10px;
-      padding-top: 10px;
-      border-top: 1px solid #eee;
-      font-size: 12px;
-      color: #555;
+    .popup-grid {{
+      display: grid;
+      grid-template-columns: 1fr 1fr;
+      gap: 6px;
+      margin-bottom: 10px;
     }}
-    #legenda b {{ color: #2c3e50; }}
-    .leg-item {{ margin: 2px 0; }}
-
-    #contador {{
-      margin-top: 8px;
-      padding-top: 8px;
-      border-top: 1px solid #eee;
-      font-size: 12px;
-      color: #666;
+    .popup-pill {{
+      background: var(--surface2);
+      border: 1px solid var(--border);
+      border-radius: 6px;
+      padding: 5px 8px;
+      font-size: 11px;
+      color: var(--muted);
+    }}
+    .popup-pill b {{ color: var(--text); display: block; font-size: 12px; }}
+    .popup-link {{
+      display: block;
+      width: 100%;
+      padding: 8px;
+      background: var(--accent);
+      color: white;
       text-align: center;
+      border-radius: 8px;
+      text-decoration: none;
+      font-size: 12px;
+      font-weight: 600;
+      margin-top: 8px;
+      transition: background .15s;
     }}
-    #contador b {{ color: #2980b9; }}
+    .popup-link:hover {{ background: var(--accent2); }}
+    .hist-details {{
+      margin-top: 8px;
+      font-size: 11px;
+    }}
+    .hist-details summary {{
+      cursor: pointer;
+      color: var(--accent2);
+      font-size: 11px;
+      padding: 4px 0;
+    }}
+    .hist-table {{
+      width: 100%;
+      font-size: 11px;
+      margin-top: 4px;
+      border-collapse: collapse;
+      color: var(--muted);
+    }}
+    .hist-table th, .hist-table td {{
+      text-align: left;
+      padding: 3px 4px;
+      border-bottom: 1px solid var(--border);
+    }}
   </style>
 </head>
 <body>
-  <div id="map"></div>
 
-  <!-- Painel de filtros -->
-  <div id="painel">
-    <h4>🔍 Filtros</h4>
+<div id="map"></div>
 
-    <div class="filtro-bloco">
-      <label>📐 Área mínima</label>
-      <input type="range" id="area-slider" min="0" max="{area_max}" step="50" value="0">
-      <div>A partir de <span id="area-valor">0</span> m²</div>
-    </div>
+<!-- Painel de filtros -->
+<div id="painel">
+  <h4>⬡ Filtros</h4>
 
-    <div class="filtro-bloco">
-      <div class="toggle-row">
-        <label class="switch">
-          <input type="checkbox" id="toggle-novos">
-          <span class="slider-sw"></span>
-        </label>
-        <span>Apenas novos anúncios</span>
-      </div>
-    </div>
+  <div class="f-block">
+    <div class="f-label">Área mínima <span id="lbl-area">0 m²</span></div>
+    <input type="range" id="sl-area" min="0" max="{area_max}" step="50" value="0">
+  </div>
 
-    <div id="legenda">
-      <b>🏡 Legenda — Preço</b><br>
-      <div class="leg-item"><span style="color:#27ae60">●</span> Até R$ 100k</div>
-      <div class="leg-item"><span style="color:#2980b9">●</span> R$ 100k – R$ 300k</div>
-      <div class="leg-item"><span style="color:#e67e22">●</span> R$ 300k – R$ 600k</div>
-      <div class="leg-item"><span style="color:#e74c3c">●</span> Acima de R$ 600k</div>
-      <div class="leg-item"><span style="color:#95a5a6">●</span> Preço não informado</div>
-      <div class="leg-item"><span style="color:#c0392b">★</span> <b>Novo anúncio</b></div>
-    </div>
+  <div class="f-block">
+    <div class="f-label">Preço máximo <span id="lbl-preco">Todos</span></div>
+    <input type="range" id="sl-preco" min="0" max="{preco_max}" step="10000" value="{preco_max}">
+  </div>
 
-    <div id="contador">
-      Exibindo <b id="n-visiveis">0</b> de <b>{len(dados_js)}</b> anúncios<br>
-      <small style="color:#aaa">Atualizado: {agora}</small>
+  <div class="f-block">
+    <div class="toggle-row">
+      <label class="sw">
+        <input type="checkbox" id="tog-novos">
+        <span class="sw-track"></span>
+      </label>
+      <span>Apenas novos anúncios</span>
     </div>
   </div>
 
+  <div class="legenda">
+    <div class="leg-title">Preço</div>
+    <div class="leg-item"><div class="leg-dot" style="background:var(--green)"></div> Até R$ 100k</div>
+    <div class="leg-item"><div class="leg-dot" style="background:var(--blue)"></div> R$ 100k – R$ 300k</div>
+    <div class="leg-item"><div class="leg-dot" style="background:var(--orange)"></div> R$ 300k – R$ 600k</div>
+    <div class="leg-item"><div class="leg-dot" style="background:var(--red)"></div> Acima de R$ 600k</div>
+    <div class="leg-item"><div class="leg-dot" style="background:var(--muted)"></div> Não informado</div>
+    <div class="leg-item"><div class="leg-dot" style="background:var(--new)"></div> <b style="color:var(--text)">Novo</b></div>
+  </div>
+
+  <div id="contador">
+    <b id="n-vis">0</b> de <b>{len(dados_js)}</b> anúncios visíveis
+    <div id="atualizado">Atualizado: {agora}</div>
+  </div>
+</div>
+
+<!-- Botão sidebar -->
+<div id="btn-sidebar" onclick="toggleSidebar()">
+  <span id="btn-icon">☰</span>
+  Listagens
+</div>
+
+<!-- Sidebar -->
+<div id="sidebar">
+  <div id="sidebar-header">
+    <h3>📋 Listagens visíveis</h3>
+    <span id="sidebar-count">0 anúncios</span>
+  </div>
+  <input type="text" id="sidebar-search" placeholder="Buscar por título ou localização...">
+  <div id="sidebar-list"></div>
+</div>
+
 <script>
 const DADOS = {dados_json};
+const PRECO_MAX = {preco_max};
 
-// Mapa
-const map = L.map('map').setView([{CRICIUMA[0]}, {CRICIUMA[1]}], 12);
-L.tileLayer('https://{{s}}.basemaps.cartocdn.com/light_all/{{z}}/{{x}}/{{y}}{{r}}.png', {{
+// ── Mapa ──
+const map = L.map('map', {{ zoomControl: false }}).setView([{CRICIUMA[0]}, {CRICIUMA[1]}], 12);
+L.control.zoom({{ position: 'topleft' }}).addTo(map);
+
+L.tileLayer('https://{{s}}.basemaps.cartocdn.com/dark_all/{{z}}/{{x}}/{{y}}{{r}}.png', {{
   attribution: '© OpenStreetMap © CARTO',
   maxZoom: 20
 }}).addTo(map);
 
-// Raio 30km
 L.circle([{CRICIUMA[0]}, {CRICIUMA[1]}], {{
   radius: 30000,
-  color: '#2980b9',
+  color: '#6366f1',
   fill: true,
-  fillOpacity: 0.06,
-  weight: 1.5
+  fillOpacity: 0.04,
+  weight: 1,
+  dashArray: '6 4'
 }}).bindTooltip('Raio de 30km').addTo(map);
 
-// Marcador central
-L.marker([{CRICIUMA[0]}, {CRICIUMA[1]}])
-  .bindTooltip('Criciúma (centro)')
-  .addTo(map);
-
-// Cluster
-let cluster = L.markerClusterGroup({{ chunkedLoading: true }});
+// ── Marcadores ──
+let cluster = L.markerClusterGroup({{ chunkedLoading: true, maxClusterRadius: 50 }});
 map.addLayer(cluster);
 
-// Cria marcadores com ícone colorido
 function criarIcone(d) {{
-  const bg = d.novo ? '#c0392b' : d.cor;
   return L.divIcon({{
     className: '',
     html: `<div style="
-      background:${{bg}};
-      color:white;
+      background:${{d.cor}};
       border-radius:50%;
-      width:28px;height:28px;
+      width:26px;height:26px;
       display:flex;align-items:center;justify-content:center;
-      font-size:14px;
-      box-shadow:0 1px 4px rgba(0,0,0,.4);
-      border:2px solid rgba(255,255,255,.8);
-    ">${{d.icone}}</div>`,
-    iconSize: [28, 28],
-    iconAnchor: [14, 14],
-    popupAnchor: [0, -16],
+      font-size:12px;
+      box-shadow:0 2px 8px rgba(0,0,0,.5);
+      border:2px solid rgba(255,255,255,.15);
+      transition:transform .15s;
+    ">${{d.novo ? '★' : '⌂'}}</div>`,
+    iconSize: [26,26],
+    iconAnchor: [13,13],
+    popupAnchor: [0,-16],
   }});
+}}
+
+function buildPopup(d) {{
+  const img = d.foto
+    ? `<img class="popup-img" src="${{d.foto}}" alt="" onerror="this.style.display='none'">`
+    : `<div class="popup-no-img">🏡</div>`;
+  const badge = d.novo ? `<div class="popup-novo">🆕 NOVO</div>` : '';
+  return `<div>
+    ${{img}}
+    <div class="popup-body">
+      ${{badge}}
+      <div class="popup-titulo">${{d.titulo}}</div>
+      <div class="popup-preco">${{d.preco_fmt}}</div>
+      <div class="popup-grid">
+        <div class="popup-pill"><b>${{d.area_fmt}}</b>Área</div>
+        <div class="popup-pill"><b>${{d.loc || '—'}}</b>Local</div>
+        <div class="popup-pill"><b>${{d.fonte}}</b>Fonte</div>
+        <div class="popup-pill"><b>${{d.data || '—'}}</b>Detectado</div>
+      </div>
+      ${{d.hist}}
+      <a class="popup-link" href="${{d.url}}" target="_blank">Ver anúncio ↗</a>
+    </div>
+  </div>`;
 }}
 
 const marcadores = DADOS.map(d => {{
   const m = L.marker([d.lat, d.lon], {{ icon: criarIcone(d) }});
-  m.bindPopup(d.popup, {{ maxWidth: 300 }});
-  m.bindTooltip(d.tooltip);
-  m._dados = d;
+  m.bindPopup(buildPopup(d), {{ maxWidth: 300, minWidth: 280 }});
+  m.bindTooltip(`${{d.novo ? '🆕 ' : ''}}${{d.preco_fmt}} · ${{d.area_fmt}}`);
+  m._d = d;
   return m;
 }});
 
-// Aplica filtros
-function aplicarFiltros() {{
-  const areaMin  = parseInt(document.getElementById('area-slider').value) || 0;
-  const soNovos  = document.getElementById('toggle-novos').checked;
+// ── Sidebar ──
+let sidebarOpen = false;
+
+function toggleSidebar() {{
+  sidebarOpen = !sidebarOpen;
+  document.getElementById('sidebar').classList.toggle('open', sidebarOpen);
+  document.getElementById('btn-sidebar').classList.toggle('shifted', sidebarOpen);
+  document.getElementById('btn-icon').textContent = sidebarOpen ? '✕' : '☰';
+}}
+
+let visiveis = [];
+
+function buildSidebar(lista) {{
+  const q = document.getElementById('sidebar-search').value.toLowerCase();
+  const filtrados = q ? lista.filter(d =>
+    d.titulo.toLowerCase().includes(q) || d.loc.toLowerCase().includes(q)
+  ) : lista;
+
+  document.getElementById('sidebar-count').textContent = filtrados.length + ' anúncios';
+  const el = document.getElementById('sidebar-list');
+  el.innerHTML = '';
+
+  filtrados.forEach((d, i) => {{
+    const card = document.createElement('div');
+    card.className = 'listing-card' + (d.novo ? ' novo' : '');
+    const img = d.foto
+      ? `<img class="card-img" src="${{d.foto}}" alt="" loading="lazy" onerror="this.style.display='none'">`
+      : `<div class="card-no-img">🏡</div>`;
+    const badge = d.novo ? `<div class="card-novo-badge">🆕 novo</div>` : '';
+    card.innerHTML = `
+      ${{img}}
+      <div class="card-body">
+        ${{badge}}
+        <div class="card-titulo">${{d.titulo}}</div>
+        <div class="card-preco">${{d.preco_fmt}}</div>
+        <div class="card-meta">
+          <span>📐 ${{d.area_fmt}}</span>
+          <span>📍 ${{d.loc}}</span>
+        </div>
+        <div class="card-fonte">${{d.fonte}}</div>
+      </div>`;
+    card.addEventListener('click', () => {{
+      map.setView([d.lat, d.lon], 16);
+      // encontra o marcador e abre o popup
+      marcadores.forEach(m => {{
+        if (m._d === d) {{
+          cluster.zoomToShowLayer(m, () => m.openPopup());
+        }}
+      }});
+    }});
+    el.appendChild(card);
+  }});
+}}
+
+// ── Filtros ──
+function aplicar() {{
+  const areaMin  = parseInt(document.getElementById('sl-area').value) || 0;
+  const precoMax = parseInt(document.getElementById('sl-preco').value) || PRECO_MAX;
+  const soNovos  = document.getElementById('tog-novos').checked;
 
   cluster.clearLayers();
-  let visiveis = 0;
+  visiveis = [];
 
   marcadores.forEach(m => {{
-    const d = m._dados;
-    const areaOk = areaMin === 0 || (d.area && d.area >= areaMin);
-    const novoOk = !soNovos || d.novo;
-    if (areaOk && novoOk) {{
+    const d = m._d;
+    const areaOk  = areaMin === 0 || (d.area && d.area >= areaMin);
+    const precoOk = d.preco === 0 || d.preco <= precoMax;
+    const novoOk  = !soNovos || d.novo;
+    if (areaOk && precoOk && novoOk) {{
       cluster.addLayer(m);
-      visiveis++;
+      visiveis.push(d);
     }}
   }});
 
-  document.getElementById('n-visiveis').textContent = visiveis;
+  document.getElementById('n-vis').textContent = visiveis.length;
+  buildSidebar(visiveis);
 }}
 
-// Eventos dos filtros
-document.getElementById('area-slider').addEventListener('input', function() {{
-  document.getElementById('area-valor').textContent = this.value;
-  aplicarFiltros();
+// Labels dos sliders
+document.getElementById('sl-area').addEventListener('input', function() {{
+  document.getElementById('lbl-area').textContent = (+this.value).toLocaleString('pt-BR') + ' m²';
+  aplicar();
 }});
-document.getElementById('toggle-novos').addEventListener('change', aplicarFiltros);
+document.getElementById('sl-preco').addEventListener('input', function() {{
+  const v = +this.value;
+  document.getElementById('lbl-preco').textContent =
+    v >= PRECO_MAX ? 'Todos' : 'R$ ' + v.toLocaleString('pt-BR');
+  aplicar();
+}});
+document.getElementById('tog-novos').addEventListener('change', aplicar);
+document.getElementById('sidebar-search').addEventListener('input', () => buildSidebar(visiveis));
 
-// Inicializa
-aplicarFiltros();
+// Init
+aplicar();
 </script>
 </body>
 </html>"""
