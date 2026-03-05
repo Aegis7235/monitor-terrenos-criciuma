@@ -98,11 +98,11 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
   <script src="https://cdnjs.cloudflare.com/ajax/libs/leaflet.markercluster/1.1.0/leaflet.markercluster.js"></script>
   <style>
     :root {{
-      --bg:        #0f1117;
-      --surface:   #1a1d27;
-      --surface2:  #22263a;
-      --border:    #2e3248;
-      --text:      #e2e8f0;
+      --bg:        #f1f5f9;
+      --surface:   #ffffff;
+      --surface2:  #f8fafc;
+      --border:    #e2e8f0;
+      --text:      #1e293b;
       --muted:     #64748b;
       --accent:    #6366f1;
       --accent2:   #818cf8;
@@ -121,8 +121,8 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
     /* ── MAP ── */
     #map {{ position: fixed; inset: 0; z-index: 1; }}
 
-    /* dark tiles override */
-    .leaflet-tile {{ filter: brightness(0.85) saturate(0.7); }}
+    /* dark tiles override — inativo por padrão (modo claro) */
+    .leaflet-tile {{ filter: none; }}
 
     /* cluster */
     .marker-cluster-small,
@@ -359,7 +359,7 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
     #btn-theme {{
       position: fixed;
       top: 16px;
-      left: 16px;
+      right: 70px;
       z-index: 900;
       background: var(--surface);
       border: 1px solid var(--border);
@@ -591,31 +591,30 @@ const DADOS = {dados_json};
 const PRECO_MAX = {preco_max};
 
 // ── Tema ──
-let isDark = true;
+let isDark = false;
 function toggleTheme() {{
   isDark = !isDark;
   const r = document.documentElement;
-  if (!isDark) {{
-    r.style.setProperty('--bg',       '#f1f5f9');
-    r.style.setProperty('--surface',  '#ffffff');
-    r.style.setProperty('--surface2', '#f8fafc');
-    r.style.setProperty('--border',   '#e2e8f0');
-    r.style.setProperty('--text',     '#1e293b');
-    r.style.setProperty('--muted',    '#64748b');
-    document.getElementById('btn-theme').textContent = '☀️';
-    // tiles claros
-    tileLayer.setUrl('https://{{s}}.basemaps.cartocdn.com/light_all/{{z}}/{{x}}/{{y}}{{r}}.png');
-    document.querySelectorAll('.leaflet-tile').forEach(t => t.style.filter = '');
-  }} else {{
+  if (isDark) {{
     r.style.setProperty('--bg',       '#0f1117');
     r.style.setProperty('--surface',  '#1a1d27');
     r.style.setProperty('--surface2', '#22263a');
     r.style.setProperty('--border',   '#2e3248');
     r.style.setProperty('--text',     '#e2e8f0');
     r.style.setProperty('--muted',    '#64748b');
-    document.getElementById('btn-theme').textContent = '🌙';
+    document.getElementById('btn-theme').textContent = '☀️';
     tileLayer.setUrl('https://{{s}}.basemaps.cartocdn.com/dark_all/{{z}}/{{x}}/{{y}}{{r}}.png');
     document.querySelectorAll('.leaflet-tile').forEach(t => t.style.filter = 'brightness(0.85) saturate(0.7)');
+  }} else {{
+    r.style.setProperty('--bg',       '#f1f5f9');
+    r.style.setProperty('--surface',  '#ffffff');
+    r.style.setProperty('--surface2', '#f8fafc');
+    r.style.setProperty('--border',   '#e2e8f0');
+    r.style.setProperty('--text',     '#1e293b');
+    r.style.setProperty('--muted',    '#64748b');
+    document.getElementById('btn-theme').textContent = '🌙';
+    tileLayer.setUrl('https://{{s}}.basemaps.cartocdn.com/light_all/{{z}}/{{x}}/{{y}}{{r}}.png');
+    document.querySelectorAll('.leaflet-tile').forEach(t => t.style.filter = '');
   }}
 }}
 
@@ -623,7 +622,7 @@ function toggleTheme() {{
 const map = L.map('map', {{ zoomControl: false }}).setView([{CRICIUMA[0]}, {CRICIUMA[1]}], 12);
 L.control.zoom({{ position: 'topleft' }}).addTo(map);
 
-const tileLayer = L.tileLayer('https://{{s}}.basemaps.cartocdn.com/dark_all/{{z}}/{{x}}/{{y}}{{r}}.png', {{
+const tileLayer = L.tileLayer('https://{{s}}.basemaps.cartocdn.com/light_all/{{z}}/{{x}}/{{y}}{{r}}.png', {{
   attribution: '© OpenStreetMap © CARTO',
   maxZoom: 20
 }});
