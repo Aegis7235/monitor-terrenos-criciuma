@@ -14,6 +14,7 @@ from utils.geocoder import geocodificar_anuncios
 from utils.map_generator import gerar_mapa
 
 LOG = "docs/log_novidades.md"
+LIMITE_PENDENTES = 50  # Se houver mais que isso sem coordenadas, pula o scraping
 
 
 def escrever_log(novos):
@@ -42,31 +43,43 @@ def main():
     # 1. Banco
     init_db()
 
-    # 2. Coleta
-    print("\n▶ Coletando OLX...")
-    olx = scrape_olx()
-    print("\n▶ Coletando ZAP/VivaReal...")
-    zap = scrape_vivareal_zap()
-    todos = olx + zap
-    print(f"\n  Total coletado: {len(todos)} anúncios")
+    # 2. Verifica pendentes antes de gastar créditos da API
+    pendentes = carregar_sem_coordenadas(LIMITE_PENDENTES + 1)
+    novos = []
 
-    # 3. Salva / detecta novos
-    novos = salvar_anuncios(todos)
-    print(f"  🆕 Novos: {len(novos)}")
+    if len(pendentes) > LIMITE_PENDENTES:
+        print(f"\n⏭️  {len(pendentes)} anúncios pendentes de geocodificação.")
+        print(f"   Scraping pulado para economizar créditos da API.")
+    else:
+        print(f"\n  Pendentes: {len(pendentes)} — abaixo do limite, iniciando scraping...")
 
-    # 4. Geocodifica pendentes
-    pendentes = carregar_sem_coordenadas(50)
+        # 3. Coleta
+        print("\n▶ Coletando OLX...")
+        olx = scrape_olx()
+        print("\n▶ Coletando ZAP/VivaReal...")
+        zap = scrape_vivareal_zap()
+        todos = olx + zap
+        print(f"\n  Total coletado: {len(todos)} anúncios")
+
+        # 4. Salva / detecta novos
+        novos = salvar_anuncios(todos)
+        print(f"  🆕 Novos: {len(novos)}")
+
+        # Recarrega pendentes após salvar os novos
+        pendentes = carregar_sem_coordenadas(LIMITE_PENDENTES)
+
+    # 5. Geocodifica pendentes
     if pendentes:
         print(f"\n▶ Geocodificando {len(pendentes)} anúncios...")
         geocodificar_anuncios(pendentes, atualizar_coordenadas)
 
-    # 5. Mapa (todos os anúncios, novos em destaque)
+    # 6. Mapa
     print("\n▶ Gerando mapa...")
     todos_coords = carregar_todos()
     novos_ids = [a["id"] for a in novos]
     gerar_mapa(todos_coords, novos_ids=novos_ids)
 
-    # 6. Log
+    # 7. Log
     escrever_log(novos)
 
     print(f"\n{sep}")
