@@ -22,6 +22,7 @@ def init_db():
             url           TEXT,
             fonte         TEXT,
             descricao     TEXT,
+            foto          TEXT,
             lat           REAL,
             lon           REAL,
             primeira_vez  TEXT,
@@ -35,12 +36,17 @@ def init_db():
             data       TEXT
         );
     """)
+    # Migração: adiciona coluna foto se não existir (banco legado)
+    try:
+        c.execute("ALTER TABLE anuncios ADD COLUMN foto TEXT")
+        con.commit()
+    except Exception:
+        pass
     con.commit()
     con.close()
 
 
 def salvar_anuncios(anuncios):
-    """Salva/atualiza anúncios. Retorna lista dos novos."""
     con = sqlite3.connect(DB)
     c   = con.cursor()
     novos = []
@@ -55,24 +61,24 @@ def salvar_anuncios(anuncios):
             c.execute("""
                 INSERT INTO anuncios
                   (id,titulo,preco,area_m2,cidade,bairro,estado,url,fonte,
-                   descricao,lat,lon,primeira_vez,ultima_coleta,ativo)
-                VALUES (?,?,?,?,?,?,?,?,?,?,NULL,NULL,?,?,1)
+                   descricao,foto,lat,lon,primeira_vez,ultima_coleta,ativo)
+                VALUES (?,?,?,?,?,?,?,?,?,?,?,NULL,NULL,?,?,1)
             """, (a["id"], a.get("titulo"), a.get("preco"), a.get("area_m2"),
                   a.get("cidade"), a.get("bairro"), a.get("estado"),
-                  a.get("url"), a.get("fonte"), a.get("descricao"), agora, agora))
+                  a.get("url"), a.get("fonte"), a.get("descricao"),
+                  a.get("foto"), agora, agora))
             if a.get("preco"):
                 c.execute("INSERT INTO historico_preco (anuncio_id,preco,data) VALUES (?,?,?)",
                           (a["id"], a["preco"], agora))
         else:
-            # Detecta mudança de preço
             preco_anterior = row[1]
             if a.get("preco") and a["preco"] != preco_anterior:
                 c.execute("INSERT INTO historico_preco (anuncio_id,preco,data) VALUES (?,?,?)",
                           (a["id"], a["preco"], agora))
             c.execute("""
-                UPDATE anuncios SET ultima_coleta=?, preco=?, ativo=1
+                UPDATE anuncios SET ultima_coleta=?, preco=?, foto=COALESCE(foto, ?), ativo=1
                 WHERE id=?
-            """, (agora, a.get("preco"), a["id"]))
+            """, (agora, a.get("preco"), a.get("foto"), a["id"]))
 
     con.commit()
     con.close()
@@ -80,7 +86,6 @@ def salvar_anuncios(anuncios):
 
 
 def carregar_todos():
-    """Retorna todos os anúncios com coordenadas."""
     con = sqlite3.connect(DB)
     con.row_factory = sqlite3.Row
     c = con.cursor()
@@ -101,7 +106,7 @@ def carregar_todos():
     return rows
 
 
-def carregar_sem_coordenadas(limite=50):
+def carregar_sem_coordenadas(limite=100):
     con = sqlite3.connect(DB)
     con.row_factory = sqlite3.Row
     c = con.cursor()
