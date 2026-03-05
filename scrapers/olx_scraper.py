@@ -88,8 +88,8 @@ def parsear_card(section):
         media = section.find("div", class_=re.compile(r"olx-adcard__media"))
         if media:
             source = media.find("source", attrs={"type": "image/webp"})
-            if source and source.get("srcSet"):
-                foto = source["srcSet"].split(",")[0].strip().split(" ")[0]
+            if source and (source.get("srcset") or source.get("srcSet")):
+                foto = (source.get("srcset") or source.get("srcSet") or "").split(",")[0].strip().split(" ")[0]
 
         return {
             "id":          f"olx_{anuncio_id}",
