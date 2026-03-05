@@ -5204,3 +5204,81 @@
 
 ## ✅ Sem novidades — 05/03/2026 00:24
 
+
+## 🆕 15 novos anúncios — 05/03/2026 01:04
+
+- **Terreno condomínio fechado primeira linha criciúma ACEITA ENTRADA E PA**
+  - 💰 R$ 390.000 | 📐 450 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-fechado-primeira-linha-criciuma-aceita-entrada-e-parcelamento-direto-1398930732
+
+- **Terreno Condomínio mais próximo ao centro de Criciúma APENAS 2,5km do **
+  - 💰 R$ 450.000 | 📐 480 m²
+  - 📍 Bosque do Repouso — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-mais-proximo-ao-centro-de-criciuma-apenas-2-5km-do-estadio-do-tigre-1400121735
+
+- **Loteamento Reserva do Lago  Viva o melhor da vida todos os dias!**
+  - 💰 R$ 255.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-reserva-do-lago-viva-o-melhor-da-vida-todos-os-dias-1483049667
+
+- **SITIO IMARUÍ ( RIO D"UNA )-SC**
+  - 💰 R$ 950.000 | 📐 116000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-imarui-rio-d-una-sc-1440609276
+
+- **Terreno em Tubarão/SC - Bairro Santo Antônio de Pádua**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-tubarao-sc-bairro-santo-antonio-de-padua-1437708564
+
+- **Ótimo Terreno em Garopaba - Bairro Encantada 200 m. da Sc 434.**
+  - 💰 R$ 300.000 | 📐 315 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-em-garopaba-bairro-encantada-200-m-da-sc-434-1483024159
+
+- **Lote/Terreno para comprar com 368 m² em Vila Nova, Içara**
+  - 💰 R$ 154.888 | 📐 368 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-vila-nova-icara-368m2-id-2662115662/
+
+- **Lote/Terreno para comprar com 374 m², 1 quarto, 1 banheiro em Demboski**
+  - 💰 R$ 191.104 | 📐 374 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-1-quarto-demboski-icara-374m2-id-2864918374/
+
+- **Lote/Terreno para comprar com 392 m² em Pedreiras, Balneário Rincão**
+  - 💰 R$ 78.000 | 📐 392 m²
+  - 📍  — Balneário Rincão
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-pedreiras-balneario-rincao-392m2-id-2683579328/
+
+- **Lote/Terreno para comprar com 420 m² em , Içara**
+  - 💰 R$ 359.000 | 📐 420 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-icara-420m2-id-2772914617/
+
+- **Lote/Terreno para comprar com 368 m² em Renascer, Criciúma**
+  - 💰 R$ 160.000 | 📐 368 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.vivareal.com.br/imovel/lote-terreno-renascer-criciuma-368m2-venda-RS160000-id-2869659698/
+
+- **Lote/Terreno para comprar com 364 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 187.717 | 📐 364 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.vivareal.com.br/imovel/lote-terreno-primeira-linha-criciuma-364m2-venda-RS187717-id-2868408466/
+
+- **Lote/Terreno para comprar com 1005 m² em Quarta Linha, Criciúma**
+  - 💰 R$ 324.271 | 📐 1005 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.vivareal.com.br/imovel/lote-terreno-quarta-linha-criciuma-1005m2-venda-RS324271-id-2868408471/
+
+- **Lote/Terreno para comprar com 336 m² em Laranjinha, Criciúma**
+  - 💰 R$ 130.000 | 📐 336 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.vivareal.com.br/imovel/lote-terreno-laranjinha-criciuma-336m2-venda-RS130000-id-2868408572/
+
+- **Lote/Terreno para comprar com 722 m² em Paraíso, Criciúma**
+  - 💰 R$ 250.000 | 📐 722 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.vivareal.com.br/imovel/lote-terreno-paraiso-criciuma-722m2-venda-RS250000-id-2572601927/
+
