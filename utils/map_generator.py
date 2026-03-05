@@ -355,6 +355,24 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
       text-align: right;
     }}
 
+    /* botão tema */
+    #btn-theme {{
+      position: fixed;
+      top: 16px;
+      left: 16px;
+      z-index: 900;
+      background: var(--surface);
+      border: 1px solid var(--border);
+      border-radius: 8px;
+      width: 36px; height: 36px;
+      font-size: 16px;
+      cursor: pointer;
+      box-shadow: 0 2px 8px rgba(0,0,0,.3);
+      transition: background .2s;
+      display: flex; align-items: center; justify-content: center;
+    }}
+    #btn-theme:hover {{ background: var(--surface2); }}
+
     /* botão abrir sidebar */
     #btn-sidebar {{
       position: fixed;
@@ -463,18 +481,24 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
     .popup-link {{
       display: block;
       width: 100%;
-      padding: 8px;
-      background: var(--accent);
-      color: white;
+      padding: 9px;
+      background: #4f46e5 !important;
+      color: #ffffff !important;
       text-align: center;
       border-radius: 8px;
-      text-decoration: none;
+      text-decoration: none !important;
       font-size: 12px;
-      font-weight: 600;
+      font-weight: 700;
       margin-top: 8px;
       transition: background .15s;
+      letter-spacing: .02em;
     }}
-    .popup-link:hover {{ background: var(--accent2); }}
+    .popup-link:hover {{ background: #4338ca !important; color: #ffffff !important; }}
+    .leaflet-popup-content a.popup-link,
+    .leaflet-popup-content a.popup-link:visited,
+    .leaflet-popup-content a.popup-link:hover {{
+      color: #ffffff !important;
+    }}
     .hist-details {{
       margin-top: 8px;
       font-size: 11px;
@@ -543,6 +567,9 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
   </div>
 </div>
 
+<!-- Toggle dark/light -->
+<button id="btn-theme" onclick="toggleTheme()" title="Alternar tema">🌙</button>
+
 <!-- Botão sidebar -->
 <div id="btn-sidebar" onclick="toggleSidebar()">
   <span id="btn-icon">☰</span>
@@ -563,14 +590,44 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
 const DADOS = {dados_json};
 const PRECO_MAX = {preco_max};
 
+// ── Tema ──
+let isDark = true;
+function toggleTheme() {{
+  isDark = !isDark;
+  const r = document.documentElement;
+  if (!isDark) {{
+    r.style.setProperty('--bg',       '#f1f5f9');
+    r.style.setProperty('--surface',  '#ffffff');
+    r.style.setProperty('--surface2', '#f8fafc');
+    r.style.setProperty('--border',   '#e2e8f0');
+    r.style.setProperty('--text',     '#1e293b');
+    r.style.setProperty('--muted',    '#64748b');
+    document.getElementById('btn-theme').textContent = '☀️';
+    // tiles claros
+    tileLayer.setUrl('https://{{s}}.basemaps.cartocdn.com/light_all/{{z}}/{{x}}/{{y}}{{r}}.png');
+    document.querySelectorAll('.leaflet-tile').forEach(t => t.style.filter = '');
+  }} else {{
+    r.style.setProperty('--bg',       '#0f1117');
+    r.style.setProperty('--surface',  '#1a1d27');
+    r.style.setProperty('--surface2', '#22263a');
+    r.style.setProperty('--border',   '#2e3248');
+    r.style.setProperty('--text',     '#e2e8f0');
+    r.style.setProperty('--muted',    '#64748b');
+    document.getElementById('btn-theme').textContent = '🌙';
+    tileLayer.setUrl('https://{{s}}.basemaps.cartocdn.com/dark_all/{{z}}/{{x}}/{{y}}{{r}}.png');
+    document.querySelectorAll('.leaflet-tile').forEach(t => t.style.filter = 'brightness(0.85) saturate(0.7)');
+  }}
+}}
+
 // ── Mapa ──
 const map = L.map('map', {{ zoomControl: false }}).setView([{CRICIUMA[0]}, {CRICIUMA[1]}], 12);
 L.control.zoom({{ position: 'topleft' }}).addTo(map);
 
-L.tileLayer('https://{{s}}.basemaps.cartocdn.com/dark_all/{{z}}/{{x}}/{{y}}{{r}}.png', {{
+const tileLayer = L.tileLayer('https://{{s}}.basemaps.cartocdn.com/dark_all/{{z}}/{{x}}/{{y}}{{r}}.png', {{
   attribution: '© OpenStreetMap © CARTO',
   maxZoom: 20
-}}).addTo(map);
+}});
+tileLayer.addTo(map);
 
 L.circle([{CRICIUMA[0]}, {CRICIUMA[1]}], {{
   radius: 30000,
