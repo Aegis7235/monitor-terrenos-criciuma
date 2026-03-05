@@ -5848,3 +5848,11 @@
 
 ## ✅ Sem novidades — 05/03/2026 13:57
 
+
+## 🆕 1 novos anúncios — 05/03/2026 14:12
+
+- **Lote/Terreno para comprar com 560 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 420.000 | 📐 560 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-primeira-linha-criciuma-560m2-id-2844168518/
+
