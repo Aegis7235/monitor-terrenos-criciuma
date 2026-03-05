@@ -5093,3 +5093,111 @@
   - 📍  — Morro da Fumaça
   - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-morro-da-fumaca-morro-da-fumaca-508m2-id-2870485678/
 
+
+## 🆕 21 novos anúncios — 05/03/2026 00:05
+
+- **Terreno de leilão em SAO DEFENDE / CRICIUMA / SC | Leilão SFI - Edital**
+  - 💰 R$ 193.967 | 📐 361 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-sao-defende-criciuma-sc-leilao-sfi-edital-unico-1482489137
+
+- **Sitio em Alfredo Wagner**
+  - 💰 R$ 300.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-680276399
+
+- **Terreno de leilão em Centro / IMARUI / SC | Venda Direta Online**
+  - 💰 R$ 985.154 | 📐 715100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-centro-imarui-sc-venda-direta-online-1482487590
+
+- **Lote/Terreno para comprar com 520 m² em São Simão, Criciúma**
+  - 💰 R$ 504.000 | 📐 520 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-simao-criciuma-520m2-id-2567563465/
+
+- **Lote/Terreno para comprar com 436 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 179.767 | 📐 436 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-436m2-id-2647390812/
+
+- **Lote/Terreno para comprar com 406 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 145.925 | 📐 406 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-406m2-id-2814819417/
+
+- **Lote/Terreno para comprar com 416 m² em Comerciário, Criciúma**
+  - 💰 R$ 350.000 | 📐 416 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-comerciario-criciuma-416m2-id-2494046918/
+
+- **Lote/Terreno para comprar com 1000 m² em Dagostin, Criciúma**
+  - 💰 R$ 389.000 | 📐 1000 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-dagostin-criciuma-1000m2-id-2868407879/
+
+- **Lote/Terreno para comprar com 348 m² em São Defende, Criciúma**
+  - 💰 R$ 110.000 | 📐 348 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-defende-criciuma-348m2-id-2868005254/
+
+- **Lote/Terreno para comprar com 759 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 399.830 | 📐 759 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-piscina-primeira-linha-criciuma-759m2-id-2868494483/
+
+- **Lote/Terreno para comprar com 392 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 235.000 | 📐 392 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-392m2-id-2844168514/
+
+- **Lote/Terreno para comprar com 446 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 320.000 | 📐 446 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-446m2-id-2844167831/
+
+- **Lote/Terreno para comprar com 368 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 160.000 | 📐 368 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-368m2-id-2844168717/
+
+- **Lote/Terreno para comprar com 511 m² em Maria Céu, Criciúma**
+  - 💰 R$ 140.000 | 📐 511 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-maria-ceu-criciuma-511m2-id-2565022230/
+
+- **Lote/Terreno para comprar com 360 m² em Primeira Linha, Criciúma**
+  - 💰 R$ 209.000 | 📐 360 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-primeira-linha-criciuma-360m2-id-2868409158/
+
+- **Lote/Terreno para comprar com 360 m² em Linha Batista, Criciúma**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-com-energia-eletrica-linha-batista-criciuma-360m2-id-2859644954/
+
+- **Lote/Terreno para comprar com 420 m² em Mina do Mato, Criciúma**
+  - 💰 R$ 180.000 | 📐 420 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-mina-do-mato-criciuma-420m2-id-2565022580/
+
+- **Lote/Terreno para comprar com 431 m² em Raichaski, Içara**
+  - 💰 R$ 180.000 | 📐 431 m²
+  - 📍  — Içara
+  - 🔗 https://www.vivareal.com.br/imovel/lote-terreno-raichaski-icara-431m2-venda-RS180000-id-2851159253/
+
+- **Lote/Terreno para comprar com 364 m² em Pedreiras, Balneário Rincão**
+  - 💰 R$ 78.000 | 📐 364 m²
+  - 📍  — Balneário Rincão
+  - 🔗 https://www.vivareal.com.br/imovel/lote-terreno-pedreiras-balneario-rincao-364m2-venda-RS78000-id-2683579327/
+
+- **Lote/Terreno para comprar com 360 m² em Centro, Içara**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://www.vivareal.com.br/imovel/lote-terreno-centro-icara-360m2-venda-RS150000-id-2800423238/
+
+- **Lote/Terreno para comprar com 378 m² em Cristo Rei, Içara**
+  - 💰 R$ 140.000 | 📐 378 m²
+  - 📍  — Içara
+  - 🔗 https://www.vivareal.com.br/imovel/lote-terreno-cristo-rei-icara-378m2-venda-RS140000-id-2850314360/
+
