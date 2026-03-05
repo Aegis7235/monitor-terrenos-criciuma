@@ -5803,3 +5803,6 @@
   - 📍  — Içara
   - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-demboski-icara-385m2-id-2860340468/
 
+
+## ✅ Sem novidades — 05/03/2026 13:04
+
