@@ -49,7 +49,7 @@ def main():
     pendentes = carregar_sem_coordenadas(LIMITE_PENDENTES + 1)
     novos = []
 
-    if len(pendentes) > LIMITE_PENDENTES:
+    if len(pendentes) > LIMITE_PENDENTES and not FORCAR_SCRAPING:
         print(f"\n⏭️  {len(pendentes)} anúncios pendentes de geocodificação.")
         print(f"   Scraping pulado para economizar créditos da API.")
     else:
