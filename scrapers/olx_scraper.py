@@ -26,7 +26,6 @@ def _get(url):
 
 
 def _total_paginas(soup):
-    """Extrai total de anúncios do datalayer para calcular páginas."""
     try:
         dl = soup.find("script", {"id": "datalayer"})
         if dl:
@@ -40,12 +39,8 @@ def _total_paginas(soup):
 
 
 def parsear_card(section):
-    """
-    Parseia um <section class="olx-adcard ..."> do HTML renderizado.
-    Seletores confirmados no HTML real retornado pelo ScraperAPI.
-    """
     try:
-        # URL e ID — <a data-testid="adcard-link">
+        # URL e ID
         link = section.find("a", attrs={"data-testid": "adcard-link"})
         if not link:
             return None
@@ -55,21 +50,20 @@ def parsear_card(section):
         if not anuncio_id:
             return None
 
-        # Título — <h2 class="... olx-adcard__title ...">
+        # Título
         titulo = ""
         titulo_tag = section.find("h2", class_=re.compile(r"olx-adcard__title"))
         if titulo_tag:
             titulo = titulo_tag.get_text(strip=True)
 
-        # Preço — <h3 class="... olx-adcard__price ...">
+        # Preço
         preco = None
         preco_tag = section.find("h3", class_=re.compile(r"olx-adcard__price"))
         if preco_tag:
             nums = re.sub(r"\D", "", preco_tag.get_text(strip=True))
             preco = int(nums) if nums else None
 
-        # Localização — <p class="... olx-adcard__location">
-        # Texto: "Criciúma, Vila Floresta"
+        # Localização
         cidade, bairro = "", ""
         loc_tag = section.find("p", class_=re.compile(r"olx-adcard__location"))
         if loc_tag:
@@ -77,18 +71,25 @@ def parsear_card(section):
             cidade = partes[0] if partes else ""
             bairro = partes[1] if len(partes) > 1 else ""
 
-        # Área — aria-label="578 metros quadrados" no div olx-adcard__detail
+        # Área
         area = None
         detail = section.find("div", class_=re.compile(r"olx-adcard__detail"), attrs={"aria-label": True})
         if detail:
             m = re.search(r'(\d+)\s*metros quadrados', detail["aria-label"], re.I)
             if m:
                 area = int(m.group(1))
-        # Fallback: busca m² no texto geral
         if area is None:
             m = re.search(r'(\d[\d\.]*)\s*m[²2]', section.get_text(" ", strip=True), re.I)
             if m:
                 area = int(re.sub(r"\.", "", m.group(1)))
+
+        # Foto — primeiro <source srcSet="...webp"> dentro de olx-adcard__media
+        foto = None
+        media = section.find("div", class_=re.compile(r"olx-adcard__media"))
+        if media:
+            source = media.find("source", attrs={"type": "image/webp"})
+            if source and source.get("srcSet"):
+                foto = source["srcSet"].split(",")[0].strip().split(" ")[0]
 
         return {
             "id":          f"olx_{anuncio_id}",
@@ -100,6 +101,7 @@ def parsear_card(section):
             "estado":      "SC",
             "url":         url,
             "fonte":       "OLX",
+            "foto":        foto,
             "descricao":   "",
             "data_coleta": datetime.now().isoformat(),
         }
@@ -129,7 +131,6 @@ def scrape_olx():
                     total_pags = _total_paginas(soup)
                     print(f"[OLX] Total estimado de páginas: {total_pags}")
 
-                # Cada anúncio é um <section class="olx-adcard ...">
                 cards = soup.find_all("section", class_=re.compile(r"olx-adcard"))
                 if not cards:
                     print(f"[OLX] Nenhum card na página {pagina} — fim")

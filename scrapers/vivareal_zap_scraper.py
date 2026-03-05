@@ -43,29 +43,16 @@ def _cidade_ok(cidade):
 
 
 def _total_paginas(html, por_pagina=30):
-    """Extrai total de itens da descrição do JSON-LD para calcular páginas."""
     m = re.search(r'"numberOfItems"\s*:\s*(\d+)', html)
     if m:
         total = int(m.group(1))
         return max(1, (total + por_pagina - 1) // por_pagina)
-    return 5  # fallback conservador
+    return 5
 
 
 def parsear_jsonld(html, fonte):
-    """
-    Extrai anúncios do JSON-LD (application/ld+json) com schema.org/ItemList.
-    Estrutura confirmada no HTML real do ZAP/VivaReal:
-      - @id → ID
-      - name → título
-      - url → URL
-      - address.addressLocality → cidade
-      - address.neighborhood → bairro
-      - floorSize.value → área m²
-      - offers.price → preço
-    """
     anuncios = []
 
-    # Pega todos os blocos JSON-LD da página
     for m in re.finditer(
         r'<script type="application/ld\+json">(.*?)</script>', html, re.S
     ):
@@ -94,7 +81,6 @@ def parsear_jsonld(html, fonte):
                 area_obj = listing.get("floorSize", {})
                 area     = int(area_obj.get("value", 0)) or None
 
-                # Preço pode estar em offers{} ou offers[]
                 preco = None
                 offers = listing.get("offers", {})
                 if isinstance(offers, list):
@@ -102,6 +88,14 @@ def parsear_jsonld(html, fonte):
                 preco_raw = offers.get("price")
                 if preco_raw:
                     preco = int(re.sub(r"\D", "", str(preco_raw))) or None
+
+                # Foto — primeiro item de "image"
+                foto = None
+                imagens = listing.get("image", [])
+                if isinstance(imagens, list) and imagens:
+                    foto = imagens[0]
+                elif isinstance(imagens, str):
+                    foto = imagens
 
                 if not lid:
                     continue
@@ -116,6 +110,7 @@ def parsear_jsonld(html, fonte):
                     "estado":      "SC",
                     "url":         url,
                     "fonte":       fonte,
+                    "foto":        foto,
                     "descricao":   "",
                     "data_coleta": datetime.now().isoformat(),
                 })
