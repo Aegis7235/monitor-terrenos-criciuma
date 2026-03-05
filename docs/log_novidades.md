@@ -5812,3 +5812,36 @@
 
 ## ✅ Sem novidades — 05/03/2026 13:31
 
+
+## 🆕 6 novos anúncios — 05/03/2026 13:46
+
+- **Terreno para Venda em Balneário Gaivota, Santa Fé II**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-santa-fe-ii-1483144331
+
+- **Terreno com galpão e vista para o mar e lagoa  Ribeirão Grande, Paulo **
+  - 💰 R$ 650.000 | 📐 748 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-galpao-e-vista-para-o-mar-e-lagoa-ribeirao-grande-paulo-lopes-1483141551
+
+- **Lote/Terreno para comprar com 375 m² em Próspera, Criciúma**
+  - 💰 R$ 530.000 | 📐 375 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-prospera-criciuma-375m2-id-2851157663/
+
+- **Lote/Terreno para comprar com 366 m² em São Defende, Criciúma**
+  - 💰 R$ 110.000 | 📐 366 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-sao-defende-criciuma-366m2-id-2851161114/
+
+- **Lote/Terreno para comprar com 764 m² em Mina do Mato, Criciúma**
+  - 💰 R$ 240.000 | 📐 764 m²
+  - 📍  — Criciúma
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-mina-do-mato-criciuma-764m2-id-2576391400/
+
+- **Lote/Terreno para comprar com 361 m² em Cristo Rei, Içara**
+  - 💰 R$ 115.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://www.zapimoveis.com.br/imovel/venda-terreno-lote-condominio-cristo-rei-icara-361m2-id-2851157383/
+
