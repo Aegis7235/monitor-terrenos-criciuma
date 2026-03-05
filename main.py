@@ -15,7 +15,7 @@ from utils.map_generator import gerar_mapa
 
 LOG = "docs/log_novidades.md"
 LIMITE_PENDENTES = 50
-FORCAR_SCRAPING   = True   # Mude para False após rodar uma vez   # Se houver mais que isso sem coordenadas, pula o scraping
+FORCAR_SCRAPING   = False   # Mude para False após rodar uma vez   # Se houver mais que isso sem coordenadas, pula o scraping
 GEO_POR_RODADA   = 100  # Quantos anúncios geocodificar por execução
 
 
