@@ -522,6 +522,29 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
       border-bottom: 1px solid var(--border);
     }}
 
+    /* ── ABAS VIZINHOS NA POPUP ── */
+    .popup-abas {{
+      display: flex;
+      flex-wrap: wrap;
+      gap: 5px;
+      margin-top: 10px;
+      padding-top: 10px;
+      border-top: 1px solid var(--border);
+    }}
+    .popup-aba {{
+      width: 28px; height: 28px;
+      border-radius: 50%;
+      background: var(--surface2);
+      border: 1px solid var(--border);
+      display: flex; align-items: center; justify-content: center;
+      font-size: 11px; font-weight: 600;
+      cursor: pointer;
+      color: var(--muted);
+      transition: all .15s;
+    }}
+    .popup-aba:hover {{ background: var(--accent); color: white; border-color: var(--accent); }}
+    .popup-aba.ativa {{ background: var(--accent); color: white; border-color: var(--accent); }}
+
     /* ── MOBILE ── */
     @media (max-width: 640px) {{
       /* Painel de filtros vira bottom sheet deslizável */
@@ -771,11 +794,26 @@ function criarIcone(d) {{
   }});
 }}
 
-function buildPopup(d) {{
+function buildPopup(lista, idx) {{
+  const d = lista[idx];
   const img = d.foto
     ? `<img class="popup-img" src="${{d.foto}}" alt="" onerror="this.style.display='none'">`
     : `<div class="popup-no-img">🏡</div>`;
   const badge = d.novo ? `<div class="popup-novo">🆕 NOVO</div>` : '';
+
+  // Abas de vizinhos
+  let abas = '';
+  if (lista.length > 1) {{
+    abas = `<div class="popup-abas">` +
+      lista.map((v, i) => `
+        <div class="popup-aba ${{i === idx ? 'ativa' : ''}}"
+             onclick="trocarAba(this, ${{i}})"
+             title="${{v.preco_fmt}}">
+          ${{i + 1}}
+        </div>`).join('') +
+      `</div>`;
+  }}
+
   return `<div>
     ${{img}}
     <div class="popup-body">
@@ -790,14 +828,66 @@ function buildPopup(d) {{
       </div>
       ${{d.hist}}
       <a class="popup-link" href="${{d.url}}" target="_blank">Ver anúncio ↗</a>
+      ${{abas}}
     </div>
   </div>`;
 }}
 
+// Raio para agrupar vizinhos na popup (graus ~200m)
+const RAIO_VIZINHOS = 0.002;
+let _popupAtual = null; // {{ lista, marker }}
+
+function abrirPopupAgrupada(marcadorClicado) {{
+  const d0 = marcadorClicado._d;
+
+  // Encontra todos os marcadores próximos visíveis
+  const lista = marcadores.filter(m => {{
+    if (!m._d) return false;
+    const dlat = m._d.lat - d0.lat;
+    const dlon = m._d.lon - d0.lon;
+    return Math.sqrt(dlat*dlat + dlon*dlon) <= RAIO_VIZINHOS;
+  }}).map(m => m._d);
+
+  // Ordena: o clicado primeiro, resto por preço
+  lista.sort((a, b) => {{
+    if (a === d0) return -1;
+    if (b === d0) return 1;
+    return (a.preco || 0) - (b.preco || 0);
+  }});
+
+  _popupAtual = {{ lista, marker: marcadorClicado }};
+
+  const popup = L.popup({{ maxWidth: 300, minWidth: 280, closeButton: true }})
+    .setLatLng(marcadorClicado.getLatLng())
+    .setContent(buildPopup(lista, 0))
+    .openOn(map);
+
+  // Botão voltar mobile fecha popup
+  history.pushState({{ popup: true }}, '');
+  window.onpopstate = (e) => {{
+    if (map.isPopupOpen()) {{
+      map.closePopup();
+      history.replaceState(null, '');
+    }}
+  }};
+}}
+
+// Troca aba dentro da popup
+function trocarAba(el, idx) {{
+  if (!_popupAtual) return;
+  map.openPopup(
+    L.popup({{ maxWidth: 300, minWidth: 280, closeButton: true }})
+      .setLatLng(_popupAtual.marker.getLatLng())
+      .setContent(buildPopup(_popupAtual.lista, idx))
+  );
+  // Reaplica estado do histórico
+  history.replaceState({{ popup: true }}, '');
+}}
+
 const marcadores = DADOS.map(d => {{
   const m = L.marker([d.lat, d.lon], {{ icon: criarIcone(d) }});
-  m.bindPopup(buildPopup(d), {{ maxWidth: 300, minWidth: 280 }});
   m.bindTooltip(`${{d.novo ? '🆕 ' : ''}}${{d.preco_fmt}} · ${{d.area_fmt}}`);
+  m.on('click', () => abrirPopupAgrupada(m));
   m._d = d;
   return m;
 }});
@@ -845,10 +935,9 @@ function buildSidebar(lista) {{
       </div>`;
     card.addEventListener('click', () => {{
       map.setView([d.lat, d.lon], 16);
-      // encontra o marcador e abre o popup
       marcadores.forEach(m => {{
         if (m._d === d) {{
-          cluster.zoomToShowLayer(m, () => m.openPopup());
+          cluster.zoomToShowLayer(m, () => abrirPopupAgrupada(m));
         }}
       }});
     }});
