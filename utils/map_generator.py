@@ -745,8 +745,25 @@ tileLayer.addTo(map);
 
 
 // ── Marcadores ──
-const ZOOM_FOTO = 14; // zoom mínimo para mostrar fotos
-const MAX_FOTOS = 10; // máximo de fotos visíveis ao mesmo tempo
+const ZOOM_FOTO = 12; // zoom para aparecer fotos (mais cedo)
+const MAX_FOTOS = 10;
+
+// Dispersa marcadores com mesma coordenada para não empilhar
+(function dispersarDuplicados() {{
+  const vistos = {{}};
+  DADOS.forEach(d => {{
+    const chave = `${{d.lat.toFixed(4)}},${{d.lon.toFixed(4)}}`;
+    vistos[chave] = (vistos[chave] || 0) + 1;
+    const n = vistos[chave];
+    if (n > 1) {{
+      // Espalha em espiral ao redor do ponto original
+      const angulo = (n - 1) * 2.4; // ângulo em radianos (espiral áurea)
+      const raio   = 0.0003 * Math.sqrt(n - 1);
+      d.lat = d.lat + raio * Math.cos(angulo);
+      d.lon = d.lon + raio * Math.sin(angulo);
+    }}
+  }});
+}})();
 
 let cluster = L.markerClusterGroup({{
   chunkedLoading: true,
@@ -779,10 +796,10 @@ function criarIconeFoto(d) {{
     return L.divIcon({{
       className: '',
       html: `<div style="
-        width:52px; height:52px;
-        border-radius:8px;
+        width:104px; height:104px;
+        border-radius:12px;
         border:3px solid ${{borda}};
-        box-shadow:0 3px 12px rgba(0,0,0,.6);
+        box-shadow:0 4px 16px rgba(0,0,0,.7);
         overflow:hidden;
         background:#1a1d27;
         cursor:pointer;
@@ -790,11 +807,11 @@ function criarIconeFoto(d) {{
       ">
         <img src="${{d.foto}}" style="width:100%;height:100%;object-fit:cover;"
           onerror="this.parentElement.innerHTML='🏡'">
-        ${{d.novo ? '<div style="position:absolute;top:2px;right:2px;background:#f43f5e;color:white;font-size:7px;font-weight:700;padding:1px 3px;border-radius:3px;">NEW</div>' : ''}}
+        ${{d.novo ? '<div style="position:absolute;top:3px;right:3px;background:#f43f5e;color:white;font-size:9px;font-weight:700;padding:2px 5px;border-radius:4px;">NEW</div>' : ''}}
       </div>`,
-      iconSize: [52,52],
-      iconAnchor: [26,26],
-      popupAnchor: [0,-30],
+      iconSize: [104,104],
+      iconAnchor: [52,52],
+      popupAnchor: [0,-56],
     }});
   }}
   // Sem foto: bolinha maior
