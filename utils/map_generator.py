@@ -521,6 +521,121 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
       padding: 3px 4px;
       border-bottom: 1px solid var(--border);
     }}
+
+    /* ── MOBILE ── */
+    @media (max-width: 640px) {{
+      /* Painel de filtros vira bottom sheet deslizável */
+      #painel {{
+        left: 0;
+        right: 0;
+        bottom: 0;
+        width: 100%;
+        border-radius: var(--radius) var(--radius) 0 0;
+        padding: 12px 16px 20px;
+        max-height: 55vh;
+        overflow-y: auto;
+        transform: translateY(calc(100% - 48px));
+        transition: transform .3s cubic-bezier(.4,0,.2,1);
+        box-shadow: 0 -8px 32px rgba(0,0,0,.3);
+      }}
+      #painel.expanded {{ transform: translateY(0); }}
+      #painel h4 {{
+        display: flex;
+        align-items: center;
+        justify-content: space-between;
+        margin-bottom: 0;
+        cursor: pointer;
+        padding-bottom: 12px;
+      }}
+      #painel h4::after {{
+        content: '▲';
+        font-size: 10px;
+        transition: transform .3s;
+      }}
+      #painel.expanded h4::after {{ transform: rotate(180deg); }}
+      #painel .f-block,
+      #painel .legenda,
+      #painel #contador {{
+        display: none;
+      }}
+      #painel.expanded .f-block,
+      #painel.expanded .legenda,
+      #painel.expanded #contador {{
+        display: block;
+      }}
+
+      /* Sidebar vira bottom sheet full width */
+      #sidebar {{
+        top: auto;
+        bottom: 0;
+        left: 0;
+        right: 0;
+        width: 100%;
+        height: 70vh;
+        border-left: none;
+        border-top: 1px solid var(--border);
+        border-radius: var(--radius) var(--radius) 0 0;
+        transform: translateY(100%);
+        box-shadow: 0 -8px 32px rgba(0,0,0,.4);
+      }}
+      #sidebar.open {{ transform: translateY(0); }}
+
+      /* Botão sidebar fica na parte inferior */
+      #btn-sidebar {{
+        top: auto;
+        bottom: 56px;
+        right: 12px;
+        transform: none;
+        writing-mode: horizontal-tb;
+        border-radius: var(--radius);
+        border: 1px solid var(--border);
+        padding: 10px 14px;
+        font-size: 12px;
+        box-shadow: 0 4px 16px rgba(0,0,0,.3);
+      }}
+      #btn-sidebar.shifted {{ right: 12px; bottom: calc(70vh + 8px); }}
+
+      /* Botão tema */
+      #btn-theme {{
+        top: 12px;
+        right: 12px;
+      }}
+
+      /* Popup mais largo no mobile */
+      .leaflet-popup-content {{ width: calc(100vw - 48px) !important; max-width: 340px !important; }}
+
+      /* Thumb dos sliders maior para toque */
+      input[type=range]::-webkit-slider-thumb {{
+        width: 22px;
+        height: 22px;
+      }}
+
+      /* Cards da sidebar com layout horizontal */
+      .listing-card {{
+        display: flex;
+        flex-direction: row;
+        height: 90px;
+      }}
+      .card-img {{
+        width: 90px;
+        height: 90px;
+        flex-shrink: 0;
+        border-radius: 0;
+      }}
+      .card-no-img {{
+        width: 70px;
+        height: 90px;
+        flex-shrink: 0;
+      }}
+      .card-body {{
+        padding: 8px 10px;
+        overflow: hidden;
+      }}
+      .card-titulo {{
+        font-size: 11px;
+        -webkit-line-clamp: 1;
+      }}
+    }}
   </style>
 </head>
 <body>
@@ -785,6 +900,16 @@ document.getElementById('sidebar-search').addEventListener('input', () => buildS
 
 // Init
 aplicar();
+
+// ── Mobile: painel expande ao clicar no título ──
+if (window.innerWidth <= 640) {{
+  const painel = document.getElementById('painel');
+  painel.querySelector('h4').addEventListener('click', () => {{
+    painel.classList.toggle('expanded');
+  }});
+  // Fecha painel ao arrastar o mapa
+  map.on('dragstart', () => painel.classList.remove('expanded'));
+}}
 </script>
 </body>
 </html>"""
