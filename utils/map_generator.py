@@ -851,12 +851,9 @@ function abrirPopupAgrupada(marcadorClicado) {{
 
   // visiveis é preenchido pela função aplicar() — filtra por área/preço/novo
   // Usa os IDs dos marcadores que estão no cluster (passaram nos filtros)
-  const idsNoCluster = new Set();
-  cluster.eachLayer(m => {{ if (m._d) idsNoCluster.add(m._d.id); }});
-
   const lista = marcadores.filter(m => {{
     if (!m._d) return false;
-    if (!idsNoCluster.has(m._d.id)) return false;
+    if (!_idsAtivos.has(m._d.id)) return false;
     const dlat = m._d.lat - d0.lat;
     const dlon = m._d.lon - d0.lon;
     return Math.sqrt(dlat*dlat + dlon*dlon) <= RAIO_VIZINHOS;
@@ -918,6 +915,7 @@ function toggleSidebar() {{
 }}
 
 let visiveis = [];
+let _idsAtivos = new Set(); // IDs que passaram nos filtros — fonte de verdade para popup
 
 function buildSidebar(lista) {{
   const q = document.getElementById('sidebar-search').value.toLowerCase();
@@ -968,6 +966,7 @@ function aplicar() {{
 
   cluster.clearLayers();
   visiveis = [];
+  _idsAtivos = new Set();
 
   marcadores.forEach(m => {{
     const d = m._d;
@@ -977,6 +976,7 @@ function aplicar() {{
     if (areaOk && precoOk && novoOk) {{
       cluster.addLayer(m);
       visiveis.push(d);
+      _idsAtivos.add(d.id);
     }}
   }});
 
