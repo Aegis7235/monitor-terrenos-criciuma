@@ -50,30 +50,28 @@ def main():
 
     if APENAS_MAPA:
         print("\n🗺️  Modo APENAS_MAPA — pulando scraping e geocodificação...")
+        novos = []
     else:
         # 2. Verifica pendentes
-    pendentes = carregar_sem_coordenadas(LIMITE_PENDENTES + 1)
-    novos = []
+        pendentes = carregar_sem_coordenadas(LIMITE_PENDENTES + 1)
+        novos = []
 
-    if len(pendentes) > LIMITE_PENDENTES and not FORCAR_SCRAPING:
-        print(f"\n⏭️  {len(pendentes)} anúncios pendentes de geocodificação.")
-        print(f"   Scraping pulado — geocodificando primeiro.")
-    else:
-        print(f"\n  Pendentes: {len(pendentes)} — iniciando scraping...")
+        if len(pendentes) > LIMITE_PENDENTES and not FORCAR_SCRAPING:
+            print(f"\n⏭️  {len(pendentes)} anúncios pendentes de geocodificação.")
+            print(f"   Scraping pulado — geocodificando primeiro.")
+        else:
+            print(f"\n  Pendentes: {len(pendentes)} — iniciando scraping...")
 
-        # 3. Coleta OLX
-        print("\n▶ Coletando OLX...")
-        olx = scrape_olx()
-        print(f"\n  Total coletado: {len(olx)} anúncios")
+            # 3. Coleta OLX
+            print("\n▶ Coletando OLX...")
+            olx = scrape_olx()
+            print(f"\n  Total coletado: {len(olx)} anúncios")
 
-        # 4. Salva / detecta novos
-        novos = salvar_anuncios(olx)
-        print(f"  🆕 Novos: {len(novos)}")
+            # 4. Salva / detecta novos
+            novos = salvar_anuncios(olx)
+            print(f"  🆕 Novos: {len(novos)}")
 
-        pendentes = carregar_sem_coordenadas(GEO_POR_RODADA)
-
-    # 5. Geocodifica pendentes
-    if not APENAS_MAPA:
+        # 5. Geocodifica pendentes
         pendentes = carregar_sem_coordenadas(GEO_POR_RODADA)
         if pendentes:
             print(f"\n▶ Geocodificando {len(pendentes)} anúncios...")
