@@ -841,8 +841,6 @@ function buildPopup(lista, idx) {{
   </div>`;
 }}
 
-// Raio para agrupar vizinhos na popup (graus ~200m)
-const RAIO_VIZINHOS = 0.002;
 let _popupAtual = null;
 let _popupObj = null; // referência direta ao objeto popup aberto
 
@@ -851,13 +849,8 @@ function abrirPopupAgrupada(marcadorClicado) {{
 
   // visiveis é preenchido pela função aplicar() — filtra por área/preço/novo
   // Usa os IDs dos marcadores que estão no cluster (passaram nos filtros)
-  const lista = marcadores.filter(m => {{
-    if (!m._d) return false;
-    if (!_idsAtivos.has(m._d.id)) return false;
-    const dlat = m._d.lat - d0.lat;
-    const dlon = m._d.lon - d0.lon;
-    return Math.sqrt(dlat*dlat + dlon*dlon) <= RAIO_VIZINHOS;
-  }}).map(m => m._d);
+  // Busca outros terrenos da mesma cidade dentro dos filtros ativos
+  const lista = visiveis.filter(d => d.loc === d0.loc);
 
   lista.sort((a, b) => {{
     if (a === d0) return -1;
@@ -915,7 +908,6 @@ function toggleSidebar() {{
 }}
 
 let visiveis = [];
-let _idsAtivos = new Set(); // IDs que passaram nos filtros — fonte de verdade para popup
 
 function buildSidebar(lista) {{
   const q = document.getElementById('sidebar-search').value.toLowerCase();
@@ -966,7 +958,6 @@ function aplicar() {{
 
   cluster.clearLayers();
   visiveis = [];
-  _idsAtivos = new Set();
 
   marcadores.forEach(m => {{
     const d = m._d;
@@ -976,7 +967,6 @@ function aplicar() {{
     if (areaOk && precoOk && novoOk) {{
       cluster.addLayer(m);
       visiveis.push(d);
-      _idsAtivos.add(d.id);
     }}
   }});
 
