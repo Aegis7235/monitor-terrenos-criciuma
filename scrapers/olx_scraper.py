@@ -1,8 +1,6 @@
 """
-OLX Scraper — cloudscraper com fallback ScraperAPI
-Logs explícitos de qual método foi usado em cada página.
-Usa URL regional SC para pegar todas as cidades de uma vez,
-mais URLs específicas para cidades menores com menos anúncios.
+OLX Scraper — Sul Catarinense
+cloudscraper com fallback ScraperAPI. Logs explícitos de custo por página.
 """
 import time, re, os
 from bs4 import BeautifulSoup
@@ -23,26 +21,40 @@ SCRAPERAPI_KEY = os.environ.get("SCRAPERAPI_KEY", "")
 BASE = "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao"
 
 OLX_URLS = [
-    # URL regional — pega TODOS os terrenos da região de uma vez
-    # Inclui Criciúma, Içara, Tubarão, Araranguá e todas as cidades automaticamente
+    # ── URL regional — pega todas as cidades grandes de uma vez ───────────────
+    # Criciúma, Içara, Tubarão, Araranguá, Forquilhinha, Orleans etc já vêm aqui
     f"{BASE}",
 
-    # Cidades menores que podem não aparecer na busca regional
-    f"{BASE}/outras-cidades/nova-veneza",
-    f"{BASE}/outras-cidades/cocal-do-sul",
-    f"{BASE}/outras-cidades/morro-da-fumaca",
+    # ── Região de Turvo e entorno ─────────────────────────────────────────────
+    f"{BASE}/outras-cidades/turvo",
+    f"{BASE}/outras-cidades/meleiro",
+    f"{BASE}/outras-cidades/ermo",
+    f"{BASE}/outras-cidades/morro-grande",
+
+    # ── Extremo Sul SC ────────────────────────────────────────────────────────
+    f"{BASE}/outras-cidades/sombrio",
+    f"{BASE}/outras-cidades/santa-rosa-do-sul",
+    f"{BASE}/outras-cidades/sao-joao-do-sul",
+    f"{BASE}/outras-cidades/passo-de-torres",
+    f"{BASE}/outras-cidades/balneario-gaivota",
+    f"{BASE}/outras-cidades/praia-grande",
+    f"{BASE}/outras-cidades/timbe-do-sul",
+    f"{BASE}/outras-cidades/jacinto-machado",
+
+    # ── Serra / Transição ─────────────────────────────────────────────────────
+    f"{BASE}/outras-cidades/lauro-muller",
     f"{BASE}/outras-cidades/sideropolis",
     f"{BASE}/outras-cidades/treviso",
     f"{BASE}/outras-cidades/urussanga",
-    f"{BASE}/outras-cidades/lauro-muller",
+    f"{BASE}/outras-cidades/nova-veneza",
+    f"{BASE}/outras-cidades/cocal-do-sul",
+    f"{BASE}/outras-cidades/morro-da-fumaca",
+
+    # ── Litoral Sul ───────────────────────────────────────────────────────────
+    f"{BASE}/outras-cidades/balneario-rincao",
+    f"{BASE}/outras-cidades/jaguaruna",
     f"{BASE}/outras-cidades/sangao",
     f"{BASE}/outras-cidades/maracaja",
-    f"{BASE}/outras-cidades/jaguaruna",
-    f"{BASE}/outras-cidades/turvo",
-    f"{BASE}/outras-cidades/jacinto-machado",
-    f"{BASE}/outras-cidades/sombrio",
-    f"{BASE}/outras-cidades/santa-rosa-do-sul",
-    f"{BASE}/outras-cidades/praia-grande",
 ]
 
 HEADERS = {
@@ -56,7 +68,6 @@ HEADERS = {
     "Referer": "https://www.olx.com.br/",
 }
 
-# Contadores para resumo no final
 _stats = {"cloudscraper": 0, "scraperapi": 0, "falhou": 0}
 
 
@@ -236,7 +247,7 @@ def scrape_olx():
     vistos = set()
     unicos = [a for a in anuncios if a["id"] not in vistos and not vistos.add(a["id"])]
 
-    print(f"\n[OLX] ── Resumo de requisições ──")
+    print(f"\n[OLX] ── Resumo ──")
     print(f"[OLX] ✅ Grátis (cloudscraper): {_stats['cloudscraper']} páginas")
     print(f"[OLX] ⚠️  Pago  (ScraperAPI):   {_stats['scraperapi']} páginas")
     print(f"[OLX] ❌ Falhou:                {_stats['falhou']} páginas")
