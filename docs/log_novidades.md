@@ -11182,3 +11182,7221 @@
   - 📍  — Praia Grande
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-praia-grande-sc-brasil-1011827349
 
+
+## 🆕 1443 novos anúncios — 07/03/2026 20:10
+
+- **OPORTUNIDADE! Terreno para venda no Jardim Atlântico - Florianópolis -**
+  - 💰 R$ 475.000 | 📐 395 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-para-venda-no-jardim-atlantico-florianopolis-sc-1483836296
+
+- **Oportunidade:Lote/ terreno de frente para ageral!!<br><br>Lote/ terren**
+  - 💰 R$ 329.000 | 📐 250 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-lote-terreno-de-frente-para-ageral-br-br-lote-terreno-de-frente-para-ageral-1450229885
+
+- **Excelente para construir  galpaoVendo lote plano com 660 m² no Sertão **
+  - 💰 R$ 660.000 | 📐 660 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-para-construir-galpaovendo-lote-plano-com-660-m-no-sertao-do-maruim-sao-jose-1451148335
+
+- **Vendo chácara em águas mornas.**
+  - 💰 R$ 590.000 | 📐 1800 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-chacara-em-aguas-mornas-1434489074
+
+- **Terreno na Alameda Rio Vermelho**
+  - 💰 R$ 420.000 | 📐 398 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-alameda-rio-vermelho-1483819856
+
+- **OPORTUNIDADE TERRENO EXCELENTE LOCALIZAÇÃO**
+  - 💰 R$ 290.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-excelente-localizacao-1455489099
+
+- **Sítio com casa à venda em São Pedro de Alcântara**
+  - 💰 R$ 850.000 | 📐 116 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-a-venda-em-sao-pedro-de-alcantara-1483817585
+
+- **OPORTUNIDE Terreno pronto para construir no Loteamento Real Parque**
+  - 💰 R$ 439.000 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunide-terreno-pronto-para-construir-no-loteamento-real-parque-1483612124
+
+- **Terreno com viabilidade para prédio - Trindade - Fpolis - SC**
+  - 💰 R$ 11.000.000 | 📐 835 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-para-predio-trindade-fpolis-sc-1483809908
+
+- **Vende-se sítio, com área 6.000m² - Meleiro - SC**
+  - 💰 R$ 1.000.000 | 📐 247 m²
+  - 📍  — Meleiro
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-sitio-com-area-6-000m-meleiro-sc-1380601968
+
+- **Terreno à Venda  Humaitá de Cima, Tubarão/SC**
+  - 💰 R$ 250.000 | 📐 310 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-humaita-de-cima-tubarao-sc-1481476968
+
+- **Terreno com 4500m2 com vista para a Lago, frente a SC 437 em Imaruí/SC**
+  - 💰 R$ 250.000 | 📐 4500 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-4500m2-com-vista-para-a-lago-frente-a-sc-437-em-imarui-sc-1481408731
+
+- **TERRENO PEDRA BRANCA - GAROPABA**
+  - 💰 R$ 510.000 | 📐 409 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pedra-branca-garopaba-1481376111
+
+- **Seu lote a 500m do mar em Balneário Gaivota - 300m² - Aceito Troca**
+  - 💰 R$ 80.000 | 📐 280 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-lote-a-500m-do-mar-em-balneario-gaivota-300m-aceito-troca-1481327578
+
+- **FAZENDA À VENDA EM TIJUCAS**
+  - 💰 Não informado | 📐 666000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-venda-em-tijucas-1467808530
+
+- **TERRENO À VENDA - 12.000m² - TERRA NOVA - TIJUCAS/SC**
+  - 💰 R$ 250.000 | 📐 12000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-12-000m-terra-nova-tijucas-sc-1481301390
+
+- **Terreno de 3 Hectares com Vista para a Pedra Branca  Alfredo Wagner, S**
+  - 💰 R$ 250.000 | 📐 30000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-3-hectares-com-vista-para-a-pedra-branca-alfredo-wagner-sc-1481300667
+
+- **Terreno na Várzea das Canoas - Gravatal**
+  - 💰 R$ 200.000 | 📐 4900 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-varzea-das-canoas-gravatal-1481277140
+
+- **Terreno bem localizado na Praia do Sol (Laguna) próximo a rotatória ! **
+  - 💰 R$ 280.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bem-localizado-na-praia-do-sol-laguna-proximo-a-rotatoria-1481273773
+
+- **Terreno para chácara * Aceita parcelamento**
+  - 💰 R$ 245.000 | 📐 18000 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-chacara-aceita-parcelamento-1414555041
+
+- **Fazenda em Alfredo Wagner 113 hectares**
+  - 💰 R$ 7.200.000 | 📐 1130000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-em-alfredo-wagner-113-hectares-1481196646
+
+- **Oportunidade Única: Terreno de Esquina no Jardim Ultramar**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-de-esquina-no-jardim-ultramar-1481189406
+
+- **Terreno à venda, 955 m² por R$ 445.000,00 - Urussanguinha - Araranguá/**
+  - 💰 R$ 445.000 | 📐 955 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-955-m-por-r-445-000-00-urussanguinha-ararangua-sc-1481189461
+
+- **OPORTUNIDADE DE INVESTIMENTO, A 100M DA PRAIA**
+  - 💰 R$ 365.560 | 📐 590 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-a-100m-da-praia-1481185909
+
+- **Terreno amplo à 750m do mar escriturado em Vila Nova em Imbituba SC**
+  - 💰 R$ 900.000 | 📐 75 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-a-750m-do-mar-escriturado-em-vila-nova-em-imbituba-sc-1481185369
+
+- **Terreno Loteamento São José**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-sao-jose-1481185345
+
+- **Terreno próximo da Lagoa de Ibiraquera**
+  - 💰 R$ 230.000 | 📐 324 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-da-lagoa-de-ibiraquera-1481184906
+
+- **Terreno à Venda 480 m2 | Condomínio Náutico Ho'okipa | Estrutura Home **
+  - 💰 R$ 415.000 | 📐 480 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-480-m2-condominio-nautico-ho-okipa-estrutura-home-club-imbituba-sc-1481184140
+
+- **TERRENO FINANCIÁVEL 400M² PRÓXIMO A LAGOA DE IBIRAQUERA - IMBITUBA**
+  - 💰 R$ 250.000 | 📐 400 m²
+  - 📍 Alto Arroio — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-financiavel-400m-proximo-a-lagoa-de-ibiraquera-imbituba-1481184112
+
+- **VENDO OU TROCO SÍTIO EM ALFREDO WAGNER.**
+  - 💰 R$ 425.000 | 📐 10000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-sitio-em-alfredo-wagner-1481160912
+
+- **Lote**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-1481141040
+
+- **Lote na praia**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-praia-1481129815
+
+- **Terreno de Esquina no Village Dunas  300m² a 750m da Praia, Ótimo Preç**
+  - 💰 R$ 169.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-village-dunas-300m-a-750m-da-praia-otimo-preco-para-construir-ou-1481090954
+
+- **Sítio São Bento  Um Refúgio Natural com Estrutura Completa e Vocação p**
+  - 💰 R$ 660.000 | 📐 180 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-sao-bento-um-refugio-natural-com-estrutura-completa-e-vocacao-para-grandes-projetos-1481086571
+
+- **Imóvel para venda tem 402 metros quadrados em Termas do Gravatal - Gra**
+  - 💰 R$ 180.000 | 📐 402 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-402-metros-quadrados-em-termas-do-gravatal-gravatal-sc-1481070033
+
+- **TERRENO A VENDA PRÓXIMO AO CLUBE 29**
+  - 💰 R$ 175.000 | 📐 260 m²
+  - 📍 Passagem — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-proximo-ao-clube-29-1481068913
+
+- **? TERRENO À VENDA - BALNEÁRIO ARROIO DO SILVA/SC ?**
+  - 💰 R$ 45.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-balneario-arroio-do-silva-sc-1481061428
+
+- **Terreno em Imarui - Figueira Grande 15x30**
+  - 💰 R$ 75.000 | 📐 450 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imarui-figueira-grande-15x30-1479211474
+
+- **Terreno 300 m quadrados Barbada**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300-m-quadrados-barbada-1481048208
+
+- **LANÇAMENTO - LOTEAMENTO VIVENDA PESCARIA - PESCARIA BRAVA/SC**
+  - 💰 R$ 170.025 | 📐 450 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lancamento-loteamento-vivenda-pescaria-pescaria-brava-sc-1173872867
+
+- **Terreno - Moradas da Guarda - Tubarão/SC**
+  - 💰 R$ 122.002 | 📐 322 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-moradas-da-guarda-tubarao-sc-985221816
+
+- **Terreno para Venda em Balneário Gaivota, Balneário das Furnas**
+  - 💰 R$ 150.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-balneario-das-furnas-1480962972
+
+- **Terreno Comercial/Industrial, para Grande Empreendimentos, frente BR-1**
+  - 💰 R$ 11.890.000 | 📐 41184 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-industrial-para-grande-empreendimentos-frente-br-101-em-laguna-sc-1480956942
+
+- **Terreno para Venda em São João Batista, São João Batista**
+  - 💰 R$ 850.000 | 📐 65228 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-sao-joao-batista-sao-joao-batista-1480941256
+
+- **Chácara 2.000m² a 2 min do centro  Alfredo Wagner**
+  - 💰 R$ 477.000 | 📐 2000 m²
+  - 📍 Centro — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-2-000m-a-2-min-do-centro-alfredo-wagner-1480916368
+
+- **Terreno à venda em Imbituba-SC, 4.330,65 m² de área! As margens da lag**
+  - 💰 R$ 3.000.000 | 📐 4330 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-sc-4-330-65-m-de-area-as-margens-da-lagoa-de-ibiraquera-pr-1480909175
+
+- **Terreno à venda, 650 m² por R$ 450.000,00 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 450.000 | 📐 650 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-650-m-por-r-450-000-00-campo-duna-garopaba-sc-1480907532
+
+- **Imóvel para venda possui 72 metros quadrados em Centro - Laguna - SC**
+  - 💰 R$ 75.000 | 📐 72 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-72-metros-quadrados-em-centro-laguna-sc-1480902626
+
+- **BELLATORRES - PASSO DE TORRES/SC | QUADRA INTEIRA | 6.077m² | PÉ NA AR**
+  - 💰 R$ 7.420.000 | 📐 6077 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/bellatorres-passo-de-torres-sc-quadra-inteira-6-077m-pe-na-areia-1480901181
+
+- **Terreno próximo ao Jardim América em Passo de Torres/SC**
+  - 💰 R$ 105.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-ao-jardim-america-em-passo-de-torres-sc-1480900008
+
+- **Barbada! Vendo lote/ terreno em Pescaria/ Laguna de 200 m2 , com escri**
+  - 💰 R$ 8.280 | 📐 200 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lote-terreno-em-pescaria-laguna-de-200-m2-com-escritura-1464835822
+
+- **Terreno a venda no bairro São Tomás - Imbituba - SC**
+  - 💰 R$ 160.000 | 📐 264 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-sao-tomas-imbituba-sc-1480892872
+
+- **? 1.400m² nas Montanhas de Nova Trento - Seu Refúgio com Apenas R$ 80 **
+  - 💰 R$ 200.000 | 📐 1400 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/1-400m-nas-montanhas-de-nova-trento-seu-refugio-com-apenas-r-80-mil-de-entrada-1480890929
+
+- **Terreno na Praia do Sol - Laguna/SC**
+  - 💰 R$ 180.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-do-sol-laguna-sc-1480890811
+
+- **Área de compensação Ambiental**
+  - 💰 R$ 315.000 | 📐 315007000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-de-compensacao-ambiental-1480886980
+
+- **Terreno à Venda em Centro, Tijucas - SC**
+  - 💰 R$ 220.000 | 📐 1000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-centro-tijucas-sc-1480886143
+
+- **Vendo terreno para sítio**
+  - 💰 R$ 330.000 | 📐 20000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-para-sitio-1480878177
+
+- **Lote 505m² com MATRICULA (escritura pública) - Morro do Freitas em Pau**
+  - 💰 R$ 140.000 | 📐 505 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-505m-com-matricula-escritura-publica-morro-do-freitas-em-paulo-lopes-1480877738
+
+- **Terreno na Costa do Macacu 5.024,91m²**
+  - 💰 R$ 1.000.000 | 📐 5024 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-costa-do-macacu-5-024-91m-1480877268
+
+- **Terreno à venda em Areias, Tijucas - SC | Loteamento Galápagos**
+  - 💰 R$ 450.000 | 📐 451 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-areias-tijucas-sc-loteamento-galapagos-1480863746
+
+- **Área Rural 2 Hectares em Imaruí/SC com Vista para a Lagoa**
+  - 💰 R$ 300.000 | 📐 20000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-2-hectares-em-imarui-sc-com-vista-para-a-lagoa-1480858789
+
+- **Terreno de 20.000 m² em Imaruí/SC  Pronto para Construir ou Investir**
+  - 💰 R$ 300.000 | 📐 20000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-20-000-m-em-imarui-sc-pronto-para-construir-ou-investir-1480855154
+
+- **LINDO 2 HECTARES ESCRITURADO E COM LUZ!**
+  - 💰 R$ 150.000 | 📐 20000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-2-hectares-escriturado-e-com-luz-1473493713
+
+- **Terreno (Em condomínio) à Venda, 617m² - Bairro Lagoa da Serra em Arar**
+  - 💰 R$ 447.400 | 📐 617 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-617m-bairro-lagoa-da-serra-em-ararangua-1480724458
+
+- **OPORTUNIDADE NO BALNEÁRIO GAIVOTAS! ?**
+  - 💰 R$ 200.000 | 📐 260 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-no-balneario-gaivotas-1480705961
+
+- **Ótima oportunidade!!!**
+  - 💰 R$ 360.000 | 📐 33000000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-1480665712
+
+- **Terreno com casa à 750m do mar com escritura publica bairro Vila Nova **
+  - 💰 R$ 450.000 | 📐 75 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-a-750m-do-mar-com-escritura-publica-bairro-vila-nova-em-imbituba-sc-1480599927
+
+- **Chácara em Canelinha sc**
+  - 💰 R$ 750.000 | 📐 1000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-canelinha-sc-1480541825
+
+- **Terreno à Venda  Loteamento Três Caminhos  Tubarão/SC**
+  - 💰 R$ 135.000 | 📐 252 m²
+  - 📍 Santa Luzia — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-tres-caminhos-tubarao-sc-1480483707
+
+- **Terreno à Venda  Loteamento Três Caminhos  Tubarão/SC**
+  - 💰 R$ 135.000 | 📐 252 m²
+  - 📍 Santa Luzia — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-tres-caminhos-tubarao-sc-1480483535
+
+- **Excelente sítio a venda em São João Batista.**
+  - 💰 R$ 2.600.000 | 📐 12500 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-sitio-a-venda-em-sao-joao-batista-1480470147
+
+- **Terreno à venda, 1200 m² por R$ 549.000,00 - Macacú - Garopaba/SC**
+  - 💰 R$ 549.000 | 📐 1200 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1200-m-por-r-549-000-00-macacu-garopaba-sc-1480459295
+
+- **Vendo lotes no maior bairro cidade do sul Brasil (Flores de Sal)**
+  - 💰 R$ 295.000 | 📐 255 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lotes-no-maior-bairro-cidade-do-sul-brasil-flores-de-sal-1480457377
+
+- **Terrenos na Praia em  Santa Catarina , Sulmar Balneário Gaivota SC**
+  - 💰 R$ 399.000 | 📐 1500 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-na-praia-em-santa-catarina-sulmar-balneario-gaivota-sc-1480456243
+
+- **Terreno**
+  - 💰 R$ 85.000 | 📐 ? m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1480443999
+
+- **Terrenos Financiáveis a partir de 300m² | Próx. ao Centro  Paulo Lopes**
+  - 💰 R$ 195.000 | 📐 300 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-financiaveis-a-partir-de-300m-prox-ao-centro-paulo-lopes-sc-1480417723
+
+- **Terreno de 550m2 em excelente localização - região central de Tubarão**
+  - 💰 R$ 550.000 | 📐 555 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-550m2-em-excelente-localizacao-regiao-central-de-tubarao-1459920793
+
+- **Terreno á venda com 300m² no bairro Areias Claras em Balneário Gaivota**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-areias-claras-em-balneario-gaivota-sc-1480372821
+
+- **Terreno em estância velha bairro sol nascente**
+  - 💰 R$ 165.000 | 📐 324 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-estancia-velha-bairro-sol-nascente-1480327660
+
+- **Terreno na Penha de Paulo Lopes 450 metros quadrados**
+  - 💰 R$ 75.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-penha-de-paulo-lopes-450-metros-quadrados-1480320211
+
+- **Terreno Residencial em Ibiraquera**
+  - 💰 R$ 950.000 | 📐 1493 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-ibiraquera-1480319017
+
+- **Terreno Praia do Rosa**
+  - 💰 R$ 450.000 | 📐 351 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-do-rosa-1480297917
+
+- **Terreno com CACHOEIRA no quintal - Serra Catarinense**
+  - 💰 R$ 444.000 | 📐 60000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-cachoeira-no-quintal-serra-catarinense-1480284335
+
+- **SITIO EM ORLEANS SC**
+  - 💰 R$ 295.000 | 📐 25000 m²
+  - 📍  — Orleans
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-orleans-sc-1480281689
+
+- **Lote Escriturado com 450 m² em Ibiraquera, Imbituba - SC**
+  - 💰 R$ 320.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-escriturado-com-450-m-em-ibiraquera-imbituba-sc-1480207931
+
+- **Terreno pronto para construir**
+  - 💰 R$ 60.000 | 📐 240 m²
+  - 📍 Santiago — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-1480179949
+
+- **Oportunidade de terreno em Araranguá**
+  - 💰 R$ 87.490 | 📐 300 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-terreno-em-ararangua-1480163587
+
+- **Terreno Exclusivo às Margens da Lagoa de Fora  Balneário Gaivotas SC**
+  - 💰 R$ 2.300.000 | 📐 29000 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-as-margens-da-lagoa-de-fora-balneario-gaivotas-sc-1480150856
+
+- **Sítio com 6 Hectares em Nova Trento REF: OU 2972**
+  - 💰 R$ 1.200.000 | 📐 60000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-6-hectares-em-nova-trento-ref-ou-2972-1480121927
+
+- **Chácara com rio e natureza exuberante**
+  - 💰 R$ 300.000 | 📐 6240 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-rio-e-natureza-exuberante-1352799096
+
+- **Oportunidade: Terreno em Garopaba, Areias de Palhocinha - Venda REF: 3**
+  - 💰 R$ 380.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-garopaba-areias-de-palhocinha-venda-ref-349689699-1480114021
+
+- **VENDO TERRENO EM AREAIS - PAULO LOPES/SC**
+  - 💰 R$ 180.000 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-areais-paulo-lopes-sc-1480101455
+
+- **LOTE A VENDA PASSO DO GADO EM TUBARÃO**
+  - 💰 R$ 170.000 | 📐 274 m²
+  - 📍 Passo do Gado — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-passo-do-gado-em-tubarao-1480099473
+
+- **Terreno à venda em Imbituba-SC, bairro Ibiraquera, com 881,96 m² de ár**
+  - 💰 R$ 650.000 | 📐 881 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-sc-bairro-ibiraquera-com-881-96-m-de-area-venha-conferir-1480087055
+
+- **Sitio com produção de MARACUJÁ**
+  - 💰 R$ 797.000 | 📐 42000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-producao-de-maracuja-1480086354
+
+- **Terreno à venda, 600 m² por R$ 583.000,00 - Centro - Garopaba/SC**
+  - 💰 R$ 583.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-583-000-00-centro-garopaba-sc-1480085668
+
+- **Terrenos no Loteamento Raízes da Pedra Branca - Areias da Palhocinha -**
+  - 💰 R$ 450.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-loteamento-raizes-da-pedra-branca-areias-da-palhocinha-garopaba-sc-1479994966
+
+- **Terreno ( Em loteamento) à Venda, 322m² - Bairro Caverazinho em Araran**
+  - 💰 R$ 98.332 | 📐 322 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-322m-bairro-caverazinho-em-ararangua-1479954182
+
+- **Terreno para sítio**
+  - 💰 R$ 420.000 | 📐 6560 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-1480049139
+
+- **Terreno no Loteamento Alínea Vivenda Pescaria**
+  - 💰 R$ 90.000 | 📐 200 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-alinea-vivenda-pescaria-1479969662
+
+- **Barbada - Terreno em Imbituba**
+  - 💰 R$ 58.000 | 📐 ? m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-em-imbituba-1475995374
+
+- **Loteamento Três Caminhos Financia Lote + Construção com entrada a part**
+  - 💰 R$ 125.000 | 📐 ? m²
+  - 📍 São Clemente — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-tres-caminhos-financia-lote-construcao-com-entrada-a-partir-de-r-10-000-00-1479904436
+
+- **Terreno em condomínio de sítio (Único)**
+  - 💰 R$ 325.000 | 📐 1053 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-de-sitio-unico-1479900839
+
+- **CHÁCARAS MARAVILHOSAS no Mampituba P Torres na beira do rio Mampituba,**
+  - 💰 R$ 199.000 | 📐 1500 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacaras-maravilhosas-no-mampituba-p-torres-na-beira-do-rio-mampituba-passo-de-torres-1419216229
+
+- **Terreno com vista para lagoa Imbituba sc**
+  - 💰 R$ 90.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-lagoa-imbituba-sc-1453689789
+
+- **Terreno Segunda Quadra do Mar**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-segunda-quadra-do-mar-1479870808
+
+- **Terreno vende-se parcelado**
+  - 💰 R$ 109.000 | 📐 300 m²
+  - 📍 Sanga da Toca — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vende-se-parcelado-1479870485
+
+- **Lote/Terreno para venda com 6643 metros quadrados em Ouvidor - Garopab**
+  - 💰 R$ 7.900.000 | 📐 6643 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-venda-com-6643-metros-quadrados-em-ouvidor-garopaba-santa-catarina-1469869499
+
+- **Terreno em imarui cangueri de fora**
+  - 💰 R$ 130.000 | 📐 2980 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imarui-cangueri-de-fora-1479836074
+
+- **Terreno no Condomínio Lagoa Azul, Praia do Rosa, direto com proprietár**
+  - 💰 R$ 730.000 | 📐 803530 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-lagoa-azul-praia-do-rosa-direto-com-proprietario-800m2-1479835533
+
+- **Terreno a venda * RESIDENCIAL Minatti**
+  - 💰 R$ 225.000 | 📐 392 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-residencial-minatti-1430601194
+
+- **Terreno na Praia do Sol a 30 metros do mar**
+  - 💰 R$ 190.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-do-sol-a-30-metros-do-mar-1401634282
+
+- **Oportunidade Exclusiva - Área com fundos para a Lagoa do Rio Novo!**
+  - 💰 R$ 600.000 | 📐 7500 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-exclusiva-area-com-fundos-para-a-lagoa-do-rio-novo-1479829187
+
+- **Terrenos parcelados na Praia Sulmar em Balneário Gaivota -SC**
+  - 💰 R$ 30.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-na-praia-sulmar-em-balneario-gaivota-sc-1479825934
+
+- **Terrenos parcelados na Praia do Arpoador em Bal. Arroio do Silva**
+  - 💰 R$ 12.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-na-praia-do-arpoador-em-bal-arroio-do-silva-1479823079
+
+- ***Lugar para investir ou morar**
+  - 💰 R$ 600.000 | 📐 44000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lugar-para-investir-ou-morar-1430600322
+
+- **Sítio com escritura (1,5km do centro)**
+  - 💰 R$ 470.000 | 📐 31000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-1-5km-do-centro-1413960028
+
+- **Terreno Com vista para lagoa de Imarui SC**
+  - 💰 R$ 190.000 | 📐 15 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-lagoa-de-imarui-sc-1418473739
+
+- **Chácara à venda na Penha de Paulo Lopes - 5,5km da BR**
+  - 💰 R$ 870.000 | 📐 13000 m²
+  - 📍 Penha — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-na-penha-de-paulo-lopes-5-5km-da-br-1479768416
+
+- **Terreno 330m2, em oficinas.**
+  - 💰 R$ 265.000 | 📐 330 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-330m2-em-oficinas-1476623205
+
+- **Terreno à Venda Imbituba SC - 351m² - Legalizado - Vista Panorâmica da**
+  - 💰 R$ 119.000 | 📐 351 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-imbituba-sc-351m-legalizado-vista-panoramica-da-lagoa-1479732642
+
+- **Lote 21, de 1644 m², no The Eko Ibiraquera**
+  - 💰 R$ 630.000 | 📐 1644 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-21-de-1644-m-no-the-eko-ibiraquera-1472524259
+
+- **Imóvel para venda tem 100000 metros quadrados em Pedra Branca - Alfred**
+  - 💰 R$ 495.000 | 📐 100000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-100000-metros-quadrados-em-pedra-branca-alfredo-wagner-sc-1479713772
+
+- **Terra AGRICULTURA**
+  - 💰 R$ 3.000 | 📐 100000 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terra-agricultura-1479679917
+
+- **Terreno Ribeirão de Imarui - Vista pra Lagoa**
+  - 💰 R$ 70.000 | 📐 1116 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ribeirao-de-imarui-vista-pra-lagoa-1479667670
+
+- **? OPORTUNIDADE IMPERDÍVEL ? SÍTIO DE ARROZ À VENDA! ?**
+  - 💰 R$ 1.600.000 | 📐 3000 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-imperdivel-sitio-de-arroz-venda-1479628983
+
+- **Lote / Terreno à venda, Village Dunas Norte - Balneário Gaivota/SC**
+  - 💰 R$ 189.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-a-venda-village-dunas-norte-balneario-gaivota-sc-1479618192
+
+- **Terreno à venda, 450 m² por R$ 1.737.000,00 - Barra - Garopaba/SC**
+  - 💰 R$ 1.737.000 | 📐 451 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-1-737-000-00-barra-garopaba-sc-1479571806
+
+- **Terreno à venda, 578 m² por R$ 2.230.000,00 - Barra - Garopaba/SC**
+  - 💰 R$ 2.230.000 | 📐 579 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-578-m-por-r-2-230-000-00-barra-garopaba-sc-1479571848
+
+- **Terreno à venda, 542 m² por R$ 2.419.000,00 - Barra - Garopaba/SC**
+  - 💰 R$ 2.419.000 | 📐 542 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-542-m-por-r-2-419-000-00-barra-garopaba-sc-1479571816
+
+- **Terreno 718 m2 em Garopaba**
+  - 💰 R$ 600.000 | 📐 718 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-718-m2-em-garopaba-1479562264
+
+- **Terreno com cachoeira**
+  - 💰 R$ 95.000 | 📐 4000 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-cachoeira-1479522069
+
+- **Terreno para Venda, Paulo Lopes / SC**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-paulo-lopes-sc-1479505371
+
+- **Laje pronta para construir, 800m da Praia da Vila - Vila Nova, Imbitub**
+  - 💰 R$ 150.000 | 📐 367 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/laje-pronta-para-construir-800m-da-praia-da-vila-vila-nova-imbituba-santa-catarina-1479496539
+
+- **Oportunidade! Terreno Condomínio Moradas Da Guarda**
+  - 💰 R$ 109.000 | 📐 252 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-condominio-moradas-da-guarda-1479471461
+
+- **Sítio com Chalé em Alfredo Wagner - 3 minutos da BR-282**
+  - 💰 R$ 290.000 | 📐 5000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-chale-em-alfredo-wagner-3-minutos-da-br-282-1471065467
+
+- **Terreno de 1.800 m² à venda no Morro do Siriú | Lote 12  Praia do Siri**
+  - 💰 R$ 700.000 | 📐 1800 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1-800-m-a-venda-no-morro-do-siriu-lote-12-praia-do-siriu-garopaba-sc-1479441763
+
+- **Terreno de 562,70 m² à venda no Morro do Siriú | Lote 10  Praia do Sir**
+  - 💰 R$ 350.000 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-562-70-m-a-venda-no-morro-do-siriu-lote-10-praia-do-siriu-garopaba-sc-1479439358
+
+- **Loteamento Sunset Ville (Quadra A Lote 01)**
+  - 💰 R$ 352.000 | 📐 353 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-sunset-ville-quadra-a-lote-01-1479438661
+
+- **Terrenos Residenciais e Comerciais - Reserva Royal, Tijucas SC**
+  - 💰 R$ 726.903 | 📐 374 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-residenciais-e-comerciais-reserva-royal-tijucas-sc-1479438668
+
+- **Terreno de 300 m² a 2500m da Praia da Gamboa | Gamboinha - Santa Catar**
+  - 💰 R$ 185.000 | 📐 300 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300-m-a-2500m-da-praia-da-gamboa-gamboinha-santa-catarina-1479426581
+
+- **Terreno sertão dos correrias muito bonito 597m2**
+  - 💰 R$ 69.000 | 📐 598 m²
+  - 📍 Sertão dos Correias — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sertao-dos-correrias-muito-bonito-597m2-1479372232
+
+- **Lote com sala comercial ideal para comercio**
+  - 💰 R$ 600.000 | 📐 50 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-com-sala-comercial-ideal-para-comercio-1479391599
+
+- **Lote / Terreno à venda, Operária - Araranguá/SC**
+  - 💰 R$ 90.000 | 📐 538 m²
+  - 📍 Operária — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-a-venda-operaria-ararangua-sc-1479391598
+
+- **Chácara em Imbituba, localizada no bairro Sambaqui, medindo 1.062m²**
+  - 💰 R$ 350.000 | 📐 1062 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-imbituba-localizada-no-bairro-sambaqui-medindo-1-062m-791137076
+
+- **Não perca esta oportunidade!! Vendo terrenos á 150 metros até a lagoa **
+  - 💰 Não informado | 📐 ? m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/nao-perca-esta-oportunidade-vendo-terrenos-a-150-metros-ate-a-lagoa-do-quintino-897465661
+
+- **Terreno á venda em Imbituba, no bairro Alto Arroio, situado a 900 metr**
+  - 💰 R$ 210.000 | 📐 392 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-no-bairro-alto-arroio-situado-a-900-metros-ate-a-lagoa-1275478447
+
+- **Terreno em Imbituba,localizado no bairro Araçatuba, medindo 1740m²**
+  - 💰 R$ 320.000 | 📐 1740 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-localizado-no-bairro-aracatuba-medindo-1740m-757861526
+
+- **Área de 3,5 hectare com escritura pública em Imbituba, no bairro Samba**
+  - 💰 R$ 2.700.000 | 📐 35832 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-de-3-5-hectare-com-escritura-publica-em-imbituba-no-bairro-sambaqui-920795104
+
+- **Sítio Alto Padrão com 830m² DE ÁREA CONSTRUIDA e 6 HECTARES para Venda**
+  - 💰 R$ 3.900.000 | 📐 830 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-alto-padrao-com-830m-de-area-construida-e-6-hectares-para-venda-paulo-lopes-sc-1479383840
+
+- **Terreno para Venda em Balneário Gaivota, VILLAGE DUNAS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-1479383798
+
+- **Terreno à venda, 387 m² por R$ 577.000 - Siriú - Garopaba/SC**
+  - 💰 R$ 577.000 | 📐 387 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-387-m-por-r-577-000-siriu-garopaba-sc-1479332715
+
+- **Terreno à venda, 347 m² por R$ 520.000 - Canto dos Poetas**
+  - 💰 R$ 520.000 | 📐 347 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-347-m-por-r-520-000-canto-dos-poetas-1479332716
+
+- **Terreno a 280m do mar no Bairro Miratorres**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-280m-do-mar-no-bairro-miratorres-1479326704
+
+- **Terreno a venda**
+  - 💰 R$ 220.000 | 📐 360 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1479321294
+
+- **Terrenos Residenciais e Comerciais - Reserva Royal, Tijucas SC**
+  - 💰 R$ 726.903 | 📐 375 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-residenciais-e-comerciais-reserva-royal-tijucas-sc-1479314640
+
+- **Loteamento Sunset Ville (Quadra A Lote 01)**
+  - 💰 R$ 352.000 | 📐 354 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-sunset-ville-quadra-a-lote-01-1479314628
+
+- **Terrenos para venda na Praia da Ribanceira, Imbituba/SC**
+  - 💰 R$ 335.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-para-venda-na-praia-da-ribanceira-imbituba-sc-1479302029
+
+- **Excelente lote a venda na PRAIA DA GAMBOA**
+  - 💰 R$ 588 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-lote-a-venda-na-praia-da-gamboa-1479296348
+
+- **Terreno de esquina 15x30 metros no bairro São João margem esquerda.**
+  - 💰 R$ 309.000 | 📐 450 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-15x30-metros-no-bairro-sao-joao-margem-esquerda-1479264029
+
+- **Sitio em Imaruí-SC, com 35.800 m2. Vista para o mar e Lagoa de Imaruí.**
+  - 💰 R$ 380.000 | 📐 35800 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-imarui-sc-com-35-800-m2-vista-para-o-mar-e-lagoa-de-imarui-20-min-da-praia-1479216310
+
+- **Sitio com 2 cabanas, com 1 dormitório cada, açude com tilapias, terren**
+  - 💰 R$ 185.000 | 📐 2500 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-2-cabanas-com-1-dormitorio-cada-acude-com-tilapias-terreno-de-2500-m2-frente-1479241608
+
+- **Terreno à venda  excelente oportunidade em Paulo Lopes/SC**
+  - 💰 R$ 260.000 | 📐 528 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-excelente-oportunidade-em-paulo-lopes-sc-1479196155
+
+- **Terreno - Lote 03 à venda  excelente oportunidade em Paulo Lopes/SC**
+  - 💰 R$ 340.000 | 📐 539 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-03-a-venda-excelente-oportunidade-em-paulo-lopes-sc-1479195335
+
+- **Terreno - Passo de Torres - SC**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-passo-de-torres-sc-1479155354
+
+- **Terreno Rota do Sol**
+  - 💰 R$ 87.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rota-do-sol-1479142339
+
+- **Terreno para investidor**
+  - 💰 R$ 180.000 | 📐 360 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investidor-1479114458
+
+- **Terreno 200m2**
+  - 💰 R$ 125.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-200m2-1332685732
+
+- **Terreno para Venda em Garopaba, Praia do Ouvidor**
+  - 💰 R$ 375.000 | 📐 475 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-garopaba-praia-do-ouvidor-1479112150
+
+- **Chalé / chácara**
+  - 💰 R$ 220.000 | 📐 4700 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chale-chacara-1462684600
+
+- **Terreno com Galpão em Humaitá, Tubarão/SC**
+  - 💰 R$ 750.000 | 📐 369 m²
+  - 📍 Humaitá — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-galpao-em-humaita-tubarao-sc-1479087307
+
+- **área bairro ressacada**
+  - 💰 R$ 850.000 | 📐 7157 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-bairro-ressacada-1479085389
+
+- **Terreno em ótima localização no Reserva do Lago**
+  - 💰 R$ 270.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-otima-localizacao-no-reserva-do-lago-1479085364
+
+- **Terreno frente mar em Ibiraquera! Pé na areia em rua nobre**
+  - 💰 R$ 950.000 | 📐 420 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-em-ibiraquera-pe-na-areia-em-rua-nobre-1479085324
+
+- **Terreno com 1.454 m2 próximo do centrinho da Praia do Rosa**
+  - 💰 R$ 1.200.000 | 📐 1454 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-1-454-m2-proximo-do-centrinho-da-praia-do-rosa-1479085057
+
+- **Sítio à venda em São João Batista**
+  - 💰 R$ 420.000 | 📐 1200 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-sao-joao-batista-1479079673
+
+- **Terreno em Panorâmico, Garopaba/SC**
+  - 💰 R$ 905.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-panoramico-garopaba-sc-1479077177
+
+- **Lote no Galápagos a 400m do Koch ? Venda ou Locação com negociação fle**
+  - 💰 R$ 354.000 | 📐 364 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-galapagos-a-400m-do-koch-venda-ou-locacao-com-negociacao-flexivel-1479062297
+
+- **Terreno à Venda - 903m² por R$ 1 540.000,00 - Areias de Macacu - Garop**
+  - 💰 R$ 1.540.000 | 📐 904 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-903m-por-r-1-540-000-00-areias-de-macacu-garopaba-sc-1479061114
+
+- **Terreno a 400m da Praia**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-400m-da-praia-1479052212
+
+- **Sítio para venda**
+  - 💰 R$ 150.000 | 📐 320 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-1479046366
+
+- **Sítio em Alfredo Wagner**
+  - 💰 R$ 120.000 | 📐 600 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-1479040015
+
+- **Terreno à venda, 360 m² por R$ 125.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 125.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-125-000-bellatorres-passo-de-torres-sc-1479030590
+
+- **Vendo sitio Morro Grande 48km de Criciuma**
+  - 💰 R$ 209.000 | 📐 1800 m²
+  - 📍  — Morro Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-morro-grande-48km-de-criciuma-1462498527
+
+- **Lotes à venda no bairro Campo D`una - Garopaba/SC**
+  - 💰 R$ 289.000 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-a-venda-no-bairro-campo-d-una-garopaba-sc-1479023241
+
+- **Vendo sitio em Alfredo Wagner a 3km do centro**
+  - 💰 R$ 150.000 | 📐 5000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-alfredo-wagner-a-3km-do-centro-1478990858
+
+- **Terreno para Venda em Garopaba, Praia da Barra**
+  - 💰 R$ 1.788.000 | 📐 460 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-garopaba-praia-da-barra-1479013728
+
+- **Terreno à venda Estaleiro Passo de Torres/SC**
+  - 💰 R$ 194.400 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-estaleiro-passo-de-torres-sc-1478996741
+
+- **Sítio**
+  - 💰 R$ 300.000 | 📐 5000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1446552511
+
+- **Terreno à venda em Canelinha**
+  - 💰 R$ 250.000 | 📐 11000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-canelinha-1478940003
+
+- **Lindo terreno para chácara**
+  - 💰 R$ 309.000 | 📐 20000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-para-chacara-1478916999
+
+- **Terreno com energia * Apenas 65 mil entrada**
+  - 💰 R$ 209.000 | 📐 1200 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-energia-apenas-65-mil-entrada-1478915409
+
+- **Excelente oportunidade em paulo Lopes a poucos minutos de Florianópoli**
+  - 💰 R$ 95.000 | 📐 1000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-em-paulo-lopes-a-poucos-minutos-de-florianopolis-1478907905
+
+- **Sitio a venda**
+  - 💰 R$ 170.000 | 📐 5000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-1478846455
+
+- **Terreno medindo 761,40 m² no Loteamento Silvestre - Humaitá de Cima - **
+  - 💰 R$ 680.000 | 📐 761 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-medindo-761-40-m-no-loteamento-silvestre-humaita-de-cima-tubarao-sc-1428001639
+
+- **Terreno em Major Gercino - à 5km da praça**
+  - 💰 R$ 85.000 | 📐 255 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-major-gercino-a-5km-da-praca-1478863611
+
+- **Amplo Terreno de 2000m² escriturado. Financiável. Ideal para construçã**
+  - 💰 R$ 1.790.000 | 📐 2000 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-de-2000m-escriturado-financiavel-ideal-para-construcao-de-condominio-1478842477
+
+- **LOTE À VENDA  CENTRO DO BALNEÁRIO**
+  - 💰 R$ 190.000 | 📐 360 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-venda-centro-do-balneario-1478837329
+
+- **Terreno 201m2 em Bairro Planejado em SC**
+  - 💰 R$ 125.000 | 📐 201 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-201m2-em-bairro-planejado-em-sc-1158855586
+
+- **Terreno 211m2 em Santa Catarina**
+  - 💰 R$ 165.000 | 📐 211 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-211m2-em-santa-catarina-1266963288
+
+- **Terrenos 300m2**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-300m2-1344014086
+
+- **Terreno 600m2**
+  - 💰 R$ 170.000 | 📐 600 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-600m2-1395473633
+
+- **Terreno em Santa Catarina**
+  - 💰 R$ 129.700 | 📐 276 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-santa-catarina-1154479006
+
+- **Terreno com 256m2 em Bairro Planejado em Santa Catarina**
+  - 💰 R$ 168.000 | 📐 256 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-256m2-em-bairro-planejado-em-santa-catarina-1180152787
+
+- **Terreno em Imbituba,  no Loteamento Bosque imbituba, situado no bairro**
+  - 💰 R$ 119.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-no-loteamento-bosque-imbituba-situado-no-bairro-sambaqui-1134725133
+
+- **Terreno escriturado em Imbituba,bairro Alto Arroio,  á 700 metros até **
+  - 💰 R$ 330.000 | 📐 594 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-em-imbituba-bairro-alto-arroio-a-700-metros-ate-a-lagoa-do-quintino-1022686917
+
+- **Terreno para Locação no Bairro Coloninha  Araranguá**
+  - 💰 R$ 2.200 | 📐 1386 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-no-bairro-coloninha-ararangua-1478801187
+
+- **Terreno à venda Areias de Palhocinha Garopaba/SC**
+  - 💰 R$ 590.000 | 📐 724 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-areias-de-palhocinha-garopaba-sc-1481239081
+
+- **Área rural à venda em Imaruí  Fazenda São Paulo.**
+  - 💰 R$ 1.000.000 | 📐 50000 m²
+  - 📍 Centro — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-a-venda-em-imarui-fazenda-sao-paulo-1481239093
+
+- **Terreno residencial à venda no bairro Encantada em Garopaba/SC.**
+  - 💰 R$ 390.000 | 📐 382 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-a-venda-no-bairro-encantada-em-garopaba-sc-1481239077
+
+- **Oportunidade de investir... Lote murado Bairro Caruru  em tubarão sc**
+  - 💰 R$ 82.000 | 📐 255 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investir-lote-murado-bairro-caruru-em-tubarao-sc-1478774567
+
+- **CHÁCARA À VENDA EM Tijucas/SC**
+  - 💰 R$ 420.000 | 📐 3500 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-venda-em-tijucas-sc-1477316480
+
+- **Terreno em Tijucas SC**
+  - 💰 R$ 130.000 | 📐 1000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-tijucas-sc-1478764674
+
+- **Terreno à venda, 375 m² por R$ 175.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 175.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-175-000-bellatorres-passo-de-torres-sc-1481175815
+
+- **Terreno à venda, 375 m² por R$ 255.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 255.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-255-000-bellatorres-passo-de-torres-sc-1481175787
+
+- **Vendo lote praia do arpoador**
+  - 💰 R$ 42.000 | 📐 250 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-praia-do-arpoador-1478747193
+
+- **2 Terrenos na Praia em Arroio do Silva.**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-na-praia-em-arroio-do-silva-1478745110
+
+- **Terreno Industrial a Venda com 2.000m² em Tijucas/SC**
+  - 💰 R$ 1.950.000 | 📐 2000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-a-venda-com-2-000m-em-tijucas-sc-1481112497
+
+- **Barbada! Terreno de 390m² aterrado eescriturado na melhor rua da Praia**
+  - 💰 R$ 165.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-de-390m-aterrado-eescriturado-na-melhor-rua-da-praia-do-sol-1478683193
+
+- **Terreno para venda, Ibiraquera, Imbituba**
+  - 💰 R$ 1.300.000 | 📐 1590 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-ibiraquera-imbituba-1481032777
+
+- **Terreno para venda, Ibiraquera, Imbituba**
+  - 💰 R$ 450.000 | 📐 1590 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-ibiraquera-imbituba-1481026353
+
+- **Sitio, Residencial/Comercial para Venda, Sambaqui, Imbituba**
+  - 💰 R$ 899.000 | 📐 3800 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-residencial-comercial-para-venda-sambaqui-imbituba-1478606900
+
+- **Reserva Revoredo - Terrenos a partir de 250m² - Tubarão/SC**
+  - 💰 R$ 312.500 | 📐 250 m²
+  - 📍 Revoredo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/reserva-revoredo-terrenos-a-partir-de-250m-tubarao-sc-1427874159
+
+- **Terreno Village Dunas I Frente para Avenida Irerê**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-village-dunas-i-frente-para-avenida-irere-1478574014
+
+- **Terreno no Bairro Santa Fé**
+  - 💰 R$ 330.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-santa-fe-1478573528
+
+- **Terreno parcelado pronto para construir no loteamento Novo Jardim!!**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-pronto-para-construir-no-loteamento-novo-jardim-1478573234
+
+- **Terreno à Venda no Village Dunas  Segunda Quadra do Mar**
+  - 💰 R$ 185.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-village-dunas-segunda-quadra-do-mar-1478571649
+
+- **Terreno localizado no bairro Arroio do Rosa**
+  - 💰 R$ 150.000 | 📐 306 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-no-bairro-arroio-do-rosa-1444814781
+
+- **Oportunidade Sitio**
+  - 💰 R$ 420.000 | 📐 80000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-sitio-1478545643
+
+- **? Vende-se Terreno- Ótima Oportunidade!**
+  - 💰 R$ 3.000.000 | 📐 382734 m²
+  - 📍 Areias — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-otima-oportunidade-1466492630
+
+- **Terreno à venda em Areias - Paulo Lopes/SC | 360 m²**
+  - 💰 R$ 190.000 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-areias-paulo-lopes-sc-360-m-1478524539
+
+- **Venda-Terreno-Imbituba-Vila Nova**
+  - 💰 R$ 299.000 | 📐 436 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-vila-nova-1478497709
+
+- **Terreno para Venda em Imbituba, Ribanceira, 1 dormitório, 1 banheiro**
+  - 💰 R$ 285.000 | 📐 312 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-ribanceira-1-dormitorio-1-banheiro-1478486796
+
+- **Terreno Villa dos Araçá Congonhas Direto com Dono**
+  - 💰 R$ 255.000 | 📐 360 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-villa-dos-araca-congonhas-direto-com-dono-1478486674
+
+- **TERRENO EM NOVA TRENTO**
+  - 💰 R$ 1.100.000 | 📐 6786 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-nova-trento-1478436223
+
+- **Sítio com 3 dormitórios à venda, 15000 m² por R$ 944.000,00 - Zona Rur**
+  - 💰 R$ 944.000 | 📐 15000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-3-dormitorios-a-venda-15000-m-por-r-944-000-00-zona-rural-alfredo-wagner-1414549901
+
+- **Área 20,000m2 em Imarui Esc. Pública**
+  - 💰 R$ 135.000 | 📐 20000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-20-000m2-em-imarui-esc-publica-1460514377
+
+- **TERRENO - LOTE A VENDA EM CONDOMÍNIO FECHADO COM 450M² - DOMUS VILA MO**
+  - 💰 R$ 780.000 | 📐 450 m²
+  - 📍 Recife — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-a-venda-em-condominio-fechado-com-450m-domus-vila-moema-tubarao-sc-1460729613
+
+- **Terreno - Loteamento Residencial Aurora na Rua Duque de Caxias em Tuba**
+  - 💰 R$ 320.000 | 📐 379 m²
+  - 📍 Humaitá — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-residencial-aurora-na-rua-duque-de-caxias-em-tubarao-1165180831
+
+- **TERRENO A VENDA**
+  - 💰 R$ 870.000 | 📐 2131 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1478330778
+
+- **Lote para Venda em Paulo Lopes, Morro do Freitas**
+  - 💰 R$ 149.000 | 📐 525 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-para-venda-em-paulo-lopes-morro-do-freitas-1478328880
+
+- **Terreno no bairro Timbé, em Tijucas - SC**
+  - 💰 R$ 190.000 | 📐 600 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-timbe-em-tijucas-sc-1478328569
+
+- **Terreno em Loteamento Flores de Sal  O Maior Bairro Planejado do Sul d**
+  - 💰 R$ 356.000 | 📐 255 m²
+  - 📍 Nova Descoberta — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-flores-de-sal-o-maior-bairro-planejado-do-sul-do-brasil-1478324914
+
+- **Terreno à venda, 312 m² por R$ 80.000,00 - Santa Catarina - Araranguá/**
+  - 💰 R$ 80.000 | 📐 312 m²
+  - 📍 Sanga da Areia — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-312-m-por-r-80-000-00-santa-catarina-ararangua-sc-1478312765
+
+- **Terreno à venda, 8594 m² por R$ 1.200.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 1.200.000 | 📐 8594 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-8594-m-por-r-1-200-000-00-encantada-garopaba-sc-1478305036
+
+- **Terreno 4 hectar**
+  - 💰 R$ 280.000 | 📐 40000 m²
+  - 📍 Azambuja — Pedras Grandes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-4-hectar-1478304958
+
+- **Terreno á venda com 375m² no bairro TURIMAR em Balneário Gaivota / SC**
+  - 💰 R$ 350.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-375m-no-bairro-turimar-em-balneario-gaivota-sc-1478259849
+
+- **Terreno á venda com 300m² no bairro Village Dunas em Balneário Gaivota**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-em-balneario-gaivota-sc-1478259853
+
+- **Terreno á venda com 750m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 145.000 | 📐 750 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-750m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1478259854
+
+- **LOTES PRONTO PARA CONSTRUIR**
+  - 💰 R$ 73.749 | 📐 332 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-pronto-para-construir-1478242802
+
+- **Vendo sítio em Tijuca**
+  - 💰 R$ 650.000 | 📐 ? m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-tijuca-1441218499
+
+- **Chácara a Venda Canelinha**
+  - 💰 R$ 350.000 | 📐 ? m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-canelinha-1458344599
+
+- **Vendo ou troco lote por veículo**
+  - 💰 R$ 80.000 | 📐 455 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-lote-por-veiculo-1478207208
+
+- **Vendo sítio**
+  - 💰 R$ 1.500.000 | 📐 1100 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-1478156877
+
+- **Terreno lagoa Ibiraquera**
+  - 💰 R$ 200.000 | 📐 376 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lagoa-ibiraquera-1478152267
+
+- **Terreno de 11.4 hectares.**
+  - 💰 R$ 1.500.000 | 📐 110400 m²
+  - 📍  — Pedras Grandes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-11-4-hectares-1478095822
+
+- **Sítio com lagoa , 1 hectare. 2 casas. Aceito permuta. Leia descrição**
+  - 💰 R$ 925.000 | 📐 10000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-lagoa-1-hectare-2-casas-aceito-permuta-leia-descricao-1435587881
+
+- **Vendo Sítio Arataca - São João Batista**
+  - 💰 R$ 550.000 | 📐 ? m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-arataca-sao-joao-batista-1477978459
+
+- **Vendo  Terreno no centro de São João Batista**
+  - 💰 R$ 213.900 | 📐 264 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-centro-de-sao-joao-batista-1477984213
+
+- **Terreno escriturado 12x25 (300m²) ? Loteamento Primavera ? rua sem saí**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍 Nova Divinéia — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-12x25-300m--loteamento-primavera-rua-sem-saida-1477968233
+
+- **Sítio com 3 Quartos em Alfredo Wagner/SC**
+  - 💰 R$ 890.000 | 📐 210 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-3-quartos-em-alfredo-wagner-sc-1477952341
+
+- **GRAVATAL ESCRITURA PÚBLICA - VENDIDO**
+  - 💰 R$ 85.000 | 📐 5500 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/gravatal-escritura-publica-vendido-1308337861
+
+- **Com 220m2, Área total de 75.000m2 em Tijucas/SC**
+  - 💰 R$ 2.500.000 | 📐 250 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/com-220m2-area-total-de-75-000m2-em-tijucas-sc-1477859763
+
+- **Imóvel para venda com 120000 metros quadrados com 1 quarto em Santa Ba**
+  - 💰 R$ 1.200.000 | 📐 120000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-120000-metros-quadrados-com-1-quarto-em-santa-barbara-alfredo-wagn-1477850794
+
+- **SÍTIO A VENDA EM CANELINHA**
+  - 💰 R$ 390.000 | 📐 1000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-canelinha-1477848408
+
+- **Terreno Premium BR-101 - Laguna-SC**
+  - 💰 R$ 11.890.000 | 📐 41184 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-premium-br-101-laguna-sc-1477845297
+
+- **Terreno igaraty ll**
+  - 💰 R$ 390.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-igaraty-ll-1477834354
+
+- **Sitio Major Gercino**
+  - 💰 R$ 165.000 | 📐 650 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-major-gercino-1477815699
+
+- **Vendo ou troco sítio no Timbe (Tijucas)**
+  - 💰 R$ 150.000 | 📐 1000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-sitio-no-timbe-tijucas-1477794797
+
+- **Terreno 300m2**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m2-1333320640
+
+- **Terreno 300m2**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m2-1254420121
+
+- **Terreno 252m2**
+  - 💰 R$ 231.000 | 📐 252 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-252m2-1372127309
+
+- **Terreno**
+  - 💰 R$ 270.000 | 📐 300 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1376523573
+
+- **Terrenos comercias 450m2 em Santa Catarina**
+  - 💰 R$ 168.900 | 📐 450 m²
+  - 📍  — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-comercias-450m2-em-santa-catarina-1283035675
+
+- **Terreno 3540m2**
+  - 💰 R$ 575.000 | 📐 3540 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-3540m2-1341082423
+
+- **Terreno 222m2 em Passo de Torres SC**
+  - 💰 R$ 121.605 | 📐 222 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-222m2-em-passo-de-torres-sc-1266964926
+
+- **Loteamento Vista Encantada**
+  - 💰 R$ 349.200 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-vista-encantada-1477771069
+
+- **Terreno à venda no bairro Campo D?una**
+  - 💰 R$ 335.312 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-campo-d-una-1477770968
+
+- **Loteamento Ares do Ambrósio**
+  - 💰 R$ 698.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-ares-do-ambrosio-1477770922
+
+- **Terreno de 860 m² na Encantada - Serraria: espaço, localização estraté**
+  - 💰 R$ 270.000 | 📐 860 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-860-m-na-encantada-serraria-espaco-localizacao-estrategica-e-vista-privile-1477715568
+
+- **Terreno com 2001,00m² - Morrinhos - Garopaba/SC**
+  - 💰 R$ 3.350.000 | 📐 2001 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2001-00m-morrinhos-garopaba-sc-1477715197
+
+- **Lindo Terreno com 730 m2, localizado a 7min da Praia e Lagoa de Ibiraq**
+  - 💰 R$ 510.000 | 📐 730 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-com-730-m2-localizado-a-7min-da-praia-e-lagoa-de-ibiraquera-1477707704
+
+- **Terreno Praia da Vila - Imbituba**
+  - 💰 R$ 320.000 | 📐 364 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-da-vila-imbituba-1477707703
+
+- **CASA DE CAMPO DE ALTO PADRÃO**
+  - 💰 R$ 7.500.000 | 📐 40000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-campo-de-alto-padrao-1477705572
+
+- **Terreno de esquina à venda, 300 m² por R$ 85.000 - Tapera - Passo de T**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-300-m-por-r-85-000-tapera-passo-de-torres-sc-1477694536
+
+- **Terreno à venda, 360 m² por R$ 530.000,00 - Ambrósio - Garopaba/SC**
+  - 💰 R$ 530.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-530-000-00-ambrosio-garopaba-sc-1477694446
+
+- **Terreno à venda, 450 m² por R$ 748.988 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.988 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-988-aracatuba-imbituba-sc-1477694439
+
+- **Terreno à venda, 540 m² por R$ 550.000 - Ambrósio - Garopaba/SC**
+  - 💰 R$ 550.000 | 📐 540 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-540-m-por-r-550-000-ambrosio-garopaba-sc-1477694440
+
+- **Terreno à venda, 300 m² por R$ 210.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 210.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-210-000-00-bellatorres-passo-de-torres-sc-1477694065
+
+- **Terreno à venda, 300 m² por R$ 80.000 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-80-000-tapera-passo-de-torres-sc-1477693727
+
+- **Área à venda, 8248 m² por R$ 2.600.000,00 - Arroio Rosa - Imbituba/SC**
+  - 💰 R$ 2.600.000 | 📐 8249 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-a-venda-8248-m-por-r-2-600-000-00-arroio-rosa-imbituba-sc-1477693700
+
+- **Terreno à venda, 421 m² por R$ 265.000 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 265.000 | 📐 421 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-421-m-por-r-265-000-aracatuba-imbituba-sc-1477693707
+
+- **Terreno à venda, 236 m² por R$ 350.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 350.000 | 📐 236 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-236-m-por-r-350-000-00-praia-do-rosa-imbituba-sc-1477692671
+
+- **Terreno à venda, 360 m² por R$ 292.000,00 - Campo D'una - Garopaba/SC**
+  - 💰 R$ 292.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-292-000-00-campo-d-una-garopaba-sc-1477692682
+
+- **Terreno à venda, 1503 m² por R$ 470.000,00 - Costa do Macacu - Garopab**
+  - 💰 R$ 470.000 | 📐 1503 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1503-m-por-r-470-000-00-costa-do-macacu-garopaba-sc-1477692676
+
+- **Terreno à venda, 360 m² por R$ 459.918 - Areias de Palhocinha - Garopa**
+  - 💰 R$ 459.918 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-459-918-areias-de-palhocinha-garopaba-sc-1477692681
+
+- **Terreno à venda, 2000 m² por R$ 1.550.000,00 - Ferraz - Garopaba/SC**
+  - 💰 R$ 1.550.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2000-m-por-r-1-550-000-00-ferraz-garopaba-sc-1477692410
+
+- **Terreno à venda, 240 m² por R$ 340.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 340.000 | 📐 241 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-240-m-por-r-340-000-00-praia-do-rosa-imbituba-sc-1477692411
+
+- **Terreno à venda, 600 m² por R$ 640.000,00 - Areias de Palhocinha - Gar**
+  - 💰 R$ 640.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-640-000-00-areias-de-palhocinha-garopaba-sc-1477692197
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477692168
+
+- **Terreno à venda, 2276 m² por R$ 1.500.000,00 - Praia Do Rosa - Imbitub**
+  - 💰 R$ 1.500.000 | 📐 2277 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2276-m-por-r-1-500-000-00-praia-do-rosa-imbituba-sc-1477692176
+
+- **Terreno à venda, 545 m² por R$ 2.074.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.074.000 | 📐 545 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-545-m-por-r-2-074-000-00-praia-da-barra-garopaba-sc-1477692177
+
+- **Terreno à venda, 360 m² por R$ 240.000 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 240.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-240-000-aracatuba-imbituba-sc-1477692180
+
+- **Terreno à venda, 360 m² por R$ 292.756,30 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 292.756 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-292-756-30-campo-duna-garopaba-sc-1477692181
+
+- **Terreno à venda, 600 m² por R$ 430.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 430.000 | 📐 600 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-430-000-00-praia-do-rosa-imbituba-sc-1477692186
+
+- **Terreno à venda, 600 m² por R$ 740.000,00 - Areias da Palhocinha - Gar**
+  - 💰 R$ 740.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-740-000-00-areias-da-palhocinha-garopaba-sc-1477692189
+
+- **Terreno à venda, 951 m² por R$ 4.000.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 4.000.000 | 📐 951 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-951-m-por-r-4-000-000-00-praia-da-barra-garopaba-sc-1477692195
+
+- **Terreno à venda, 360 m² por R$ 1.100.000,00 - Panorâmico - Garopaba/SC**
+  - 💰 R$ 1.100.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-1-100-000-00-panoramico-garopaba-sc-1477692199
+
+- **Terreno à venda, 377 m² por R$ 306.973,45 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 306.973 | 📐 378 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-377-m-por-r-306-973-45-campo-duna-garopaba-sc-1477692190
+
+- **Terreno à venda, 245 m² por R$ 350.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 350.000 | 📐 245 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-245-m-por-r-350-000-00-praia-do-rosa-imbituba-sc-1477692170
+
+- **Terreno à venda, 2795 m² por R$ 480.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 480.000 | 📐 2795 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2795-m-por-r-480-000-00-encantada-garopaba-sc-1477692162
+
+- **Terreno à venda, 2009 m² por R$ 850.000,00 - Praia da Ferrugem - Garop**
+  - 💰 R$ 850.000 | 📐 2010 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2009-m-por-r-850-000-00-praia-da-ferrugem-garopaba-sc-1477692178
+
+- **Terreno à venda, 361 m² por R$ 250.000 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 250.000 | 📐 361 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-361-m-por-r-250-000-aracatuba-imbituba-sc-1477692073
+
+- **Terreno à venda, 1240 m² por R$ 800.000,00 - Praia da Ferrugem - Garop**
+  - 💰 R$ 800.000 | 📐 1240 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1240-m-por-r-800-000-00-praia-da-ferrugem-garopaba-sc-1477692074
+
+- **Terreno à venda, 700 m² por R$ 850.000,00 - Prainha do Silveira - Garo**
+  - 💰 R$ 850.000 | 📐 700 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-700-m-por-r-850-000-00-prainha-do-silveira-garopaba-sc-1477692075
+
+- **Terreno praia do arpoador em arroio do silva sc**
+  - 💰 R$ 58.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-do-arpoador-em-arroio-do-silva-sc-1477692053
+
+- **Terreno à venda, 2574 m² por R$ 2.000.000,00 - Ferraz - Garopaba/SC**
+  - 💰 R$ 2.000.000 | 📐 2574 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2574-m-por-r-2-000-000-00-ferraz-garopaba-sc-1477692026
+
+- **Área à venda, 21193 m² por R$ 3.500.000,00 - Morro do Ribeirão - Paulo**
+  - 💰 R$ 3.500.000 | 📐 21193 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-a-venda-21193-m-por-r-3-500-000-00-morro-do-ribeirao-paulo-lopes-sc-1477692028
+
+- **Terreno à venda, 5979 m² por R$ 1.800.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 1.800.000 | 📐 5980 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-5979-m-por-r-1-800-000-00-encantada-garopaba-sc-1477692012
+
+- **Terreno à venda, 6138 m² por R$ 7.000.000,00 - Ferraz - Garopaba/SC**
+  - 💰 R$ 7.000.000 | 📐 6139 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-6138-m-por-r-7-000-000-00-ferraz-garopaba-sc-1477691930
+
+- **Terreno à venda, 1031 m² por R$ 1.790.000,00 - Praia do Silveira - Gar**
+  - 💰 R$ 1.690.000 | 📐 1032 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1031-m-por-r-1-790-000-00-praia-do-silveira-garopaba-sc-1477691876
+
+- **Terreno à venda, 510 m² por R$ 650.250,00 - Areias de Palhocinha - Gar**
+  - 💰 R$ 650.250 | 📐 510 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-510-m-por-r-650-250-00-areias-de-palhocinha-garopaba-sc-1477691825
+
+- **Terreno à venda, 431 m² por R$ 390.000 - Ibiraquera - Imbituba/Santa C**
+  - 💰 R$ 390.000 | 📐 431 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-431-m-por-r-390-000-ibiraquera-imbituba-santa-catarina-1477691861
+
+- **Terreno à venda, 510 m² por R$ 651.193,50 - Areias de Palhocinha - Gar**
+  - 💰 R$ 651.194 | 📐 511 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-510-m-por-r-651-193-50-areias-de-palhocinha-garopaba-sc-1477691870
+
+- **Terreno à venda, 1344 m² por R$ 1.200.000,00 - Praia Do Rosa - Imbitub**
+  - 💰 R$ 1.200.000 | 📐 1344 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1344-m-por-r-1-200-000-00-praia-do-rosa-imbituba-sc-1477691872
+
+- **Terreno à venda, 375 m² por R$ 425.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 425.000 | 📐 375 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-425-000-00-encantada-garopaba-sc-1477691873
+
+- **Terreno à venda, 1580 m² por R$ 851.000,00 - Grama - Garopaba/SC**
+  - 💰 R$ 851.000 | 📐 1581 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1580-m-por-r-851-000-00-grama-garopaba-sc-1477691842
+
+- **Terreno à venda, 2000 m² por R$ 1.390.000,00 - Ferraz - Garopaba/SC**
+  - 💰 R$ 1.390.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2000-m-por-r-1-390-000-00-ferraz-garopaba-sc-1477691851
+
+- **Terreno à venda, 360 m² por R$ 312.143,33 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 312.143 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-312-143-33-campo-duna-garopaba-sc-1477691835
+
+- **Terreno à venda, 2000 m² por R$ 2.490.000,00 - Morrinhos - Garopaba/SC**
+  - 💰 R$ 2.490.000 | 📐 2001 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2000-m-por-r-2-490-000-00-morrinhos-garopaba-sc-1477691860
+
+- **Terreno à venda, 422 m² por R$ 699.990,00 - Palhocinha - Garopaba/SC**
+  - 💰 R$ 699.990 | 📐 423 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-422-m-por-r-699-990-00-palhocinha-garopaba-sc-1477691830
+
+- **Terreno à venda, 361 m² por R$ 480.000,00 - Areias da Palhocinha - Gar**
+  - 💰 R$ 480.000 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-361-m-por-r-480-000-00-areias-da-palhocinha-garopaba-sc-1477691836
+
+- **Terreno à venda, 494 m² por R$ 823.698 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 823.698 | 📐 495 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-494-m-por-r-823-698-aracatuba-imbituba-sc-1477691839
+
+- **Terreno à venda, 370 m² por R$ 560.000,00 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 560.000 | 📐 370 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-370-m-por-r-560-000-00-campo-duna-garopaba-sc-1477691840
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477691844
+
+- **Sítio com 1 dormitório à venda, 2631 m² por R$ 590.000,00 - Paulo Lope**
+  - 💰 R$ 590.000 | 📐 120 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-1-dormitorio-a-venda-2631-m-por-r-590-000-00-paulo-lopes-paulo-lopes-sc-1477691853
+
+- **Terreno à venda, 508 m² por R$ 2.299.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.299.000 | 📐 508 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-508-m-por-r-2-299-000-00-praia-da-barra-garopaba-sc-1477691828
+
+- **Terreno à venda, 360 m² por R$ 599.990,00 - Palhocinha - Garopaba/SC**
+  - 💰 R$ 599.990 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-599-990-00-palhocinha-garopaba-sc-1477691829
+
+- **Terreno à venda, 454 m² por R$ 1.876.000 - Praia da Barra - Garopaba/S**
+  - 💰 R$ 1.876.000 | 📐 455 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-454-m-por-r-1-876-000-praia-da-barra-garopaba-sc-1477691826
+
+- **Terreno à venda, 236 m² por R$ 360.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 360.000 | 📐 236 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-236-m-por-r-360-000-00-praia-do-rosa-imbituba-sc-1477691824
+
+- **Terreno à venda, 239 m² por R$ 300.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 300.000 | 📐 239 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-239-m-por-r-300-000-00-praia-do-rosa-imbituba-sc-1477691827
+
+- **Terreno à venda, 252 m² por R$ 420.000,00 - Ambrósio - Garopaba/SC**
+  - 💰 R$ 445.000 | 📐 252 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-252-m-por-r-420-000-00-ambrosio-garopaba-sc-1477691855
+
+- **Terreno à venda, 450 m² por R$ 1.749.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.749.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-1-749-000-00-praia-da-barra-garopaba-sc-1477691701
+
+- **Terreno à venda, 491 m² por R$ 2.025.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.025.000 | 📐 491 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-491-m-por-r-2-025-000-00-praia-da-barra-garopaba-sc-1477691705
+
+- **Terreno à venda, 487 m² por R$ 350.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 350.000 | 📐 488 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-487-m-por-r-350-000-00-ressacada-garopaba-sc-1477691706
+
+- **Terreno à venda, 377 m² por R$ 481.070,25 - Areias de Palhocinha - Gar**
+  - 💰 R$ 481.070 | 📐 377 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-377-m-por-r-481-070-25-areias-de-palhocinha-garopaba-sc-1477691708
+
+- **Terreno à venda, 642 m² por R$ 2.454.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.454.000 | 📐 643 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-642-m-por-r-2-454-000-00-praia-da-barra-garopaba-sc-1477691704
+
+- **Terreno à venda, 600 m² por R$ 600.000,00 - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 600.000 | 📐 600 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-600-000-00-ibiraquera-imbituba-sc-1477691596
+
+- **Terreno à venda, 525 m² por R$ 400.000 - Ressacada - Garopaba/SC**
+  - 💰 R$ 400.000 | 📐 525 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-525-m-por-r-400-000-ressacada-garopaba-sc-1477691613
+
+- **Terreno à venda, 600 m² por R$ 600.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 600.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-600-000-00-ressacada-garopaba-sc-1477691616
+
+- **Terreno à venda, 467 m² por R$ 404.997,29 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 404.997 | 📐 467 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-467-m-por-r-404-997-29-campo-duna-garopaba-sc-1477691593
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477691597
+
+- **Terreno à venda, 450 m² por R$ 1.749.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.749.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-1-749-000-00-praia-da-barra-garopaba-sc-1477691599
+
+- **Terreno à venda, 360 m² por R$ 240.000 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 240.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-240-000-aracatuba-imbituba-sc-1477691606
+
+- **Terreno à venda, 480 m² por R$ 612.688,50 - Areias de Palhocinha - Gar**
+  - 💰 R$ 612.689 | 📐 481 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-480-m-por-r-612-688-50-areias-de-palhocinha-garopaba-sc-1477691609
+
+- **Terreno à venda, 1517 m² por R$ 1.790.000 - Ferraz - Garopaba/SC**
+  - 💰 R$ 1.790.000 | 📐 1517 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1517-m-por-r-1-790-000-ferraz-garopaba-sc-1477691610
+
+- **Terreno à venda, 361 m² por R$ 1.050.000,00 - Ferraz - Garopaba/SC**
+  - 💰 R$ 1.050.000 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-361-m-por-r-1-050-000-00-ferraz-garopaba-sc-1477691617
+
+- **Terreno à venda, 487 m² por R$ 600.000,00 - Ambrósio - Garopaba/SC**
+  - 💰 R$ 600.000 | 📐 488 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-487-m-por-r-600-000-00-ambrosio-garopaba-sc-1477691622
+
+- **Terreno à venda, 360 m² por R$ 1.250.000,00 - Panorâmico - Garopaba/SC**
+  - 💰 R$ 1.250.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-1-250-000-00-panoramico-garopaba-sc-1477691595
+
+- **Terreno à venda, 361 m² por R$ 313.660,69 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 313.661 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-361-m-por-r-313-660-69-campo-duna-garopaba-sc-1477691604
+
+- **Terreno à venda, 455 m² por R$ 2.059.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.059.000 | 📐 455 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-455-m-por-r-2-059-000-00-praia-da-barra-garopaba-sc-1477691363
+
+- **Terreno à venda, 236 m² por R$ 370.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 370.000 | 📐 236 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-236-m-por-r-370-000-00-praia-do-rosa-imbituba-sc-1477691476
+
+- **Terreno à venda, 452 m² por R$ 367.418,71 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 367.419 | 📐 452 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-452-m-por-r-367-418-71-campo-duna-garopaba-sc-1477691477
+
+- **Terreno à venda, 450 m² por R$ 1.749.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.749.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-1-749-000-00-praia-da-barra-garopaba-sc-1477691420
+
+- **Terreno à venda, 1208 m² por R$ 550.000,00 - Arroio - Imbituba/SC**
+  - 💰 R$ 550.000 | 📐 1208 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1208-m-por-r-550-000-00-arroio-imbituba-sc-1477691424
+
+- **Terreno à venda, 236,39 m² por R$ 250.000 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 450.000 | 📐 236 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-236-39-m-por-r-250-000-praia-do-rosa-imbituba-sc-1477691425
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477691426
+
+- **Terreno à venda, 1038 m² por R$ 489.000,00 - Arroio - Imbituba/SC**
+  - 💰 R$ 489.000 | 📐 1039 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1038-m-por-r-489-000-00-arroio-imbituba-sc-1477691428
+
+- **Terreno à venda, 360 m² por R$ 320.000 - Ressacada - Garopaba/SC**
+  - 💰 R$ 320.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-320-000-ressacada-garopaba-sc-1477691435
+
+- **Terreno à venda, 364 m² por R$ 510.930 - Pedra Branca - Garopaba/SC**
+  - 💰 R$ 510.930 | 📐 365 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-364-m-por-r-510-930-pedra-branca-garopaba-sc-1477691473
+
+- **Terreno à venda, 360 m² por R$ 292.634,37 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 292.634 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-292-634-37-campo-duna-garopaba-sc-1477691415
+
+- **Terreno à venda, 242 m² por R$ 350.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 350.000 | 📐 242 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-242-m-por-r-350-000-00-praia-do-rosa-imbituba-sc-1477691430
+
+- **Terreno à venda, 360 m² por R$ 290.000,00 - Campo D'una - Garopaba/SC**
+  - 💰 R$ 290.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-290-000-00-campo-d-una-garopaba-sc-1477691431
+
+- **Terreno à venda, 360 m² por R$ 459.000 - Areias de Palhocinha - Garopa**
+  - 💰 R$ 459.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-459-000-areias-de-palhocinha-garopaba-sc-1477691434
+
+- **Terreno à venda, 2000 m² por R$ 1.550.000 - Ferraz - Garopaba/SC**
+  - 💰 R$ 1.550.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2000-m-por-r-1-550-000-ferraz-garopaba-sc-1477691414
+
+- **Terreno à venda, 371 m² por R$ 535.000,00 - Siriú - Garopaba/SC**
+  - 💰 R$ 535.000 | 📐 372 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-371-m-por-r-535-000-00-siriu-garopaba-sc-1477691410
+
+- **Terreno à venda, 360 m² por R$ 630.000,00 - Grama - Garopaba/SC**
+  - 💰 R$ 630.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-630-000-00-grama-garopaba-sc-1477691423
+
+- **Terreno à venda, 617 m² por R$ 550.000,00 - Siriú - Garopaba/SC**
+  - 💰 R$ 550.000 | 📐 618 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-617-m-por-r-550-000-00-siriu-garopaba-sc-1477691388
+
+- **Terreno à venda, 2252 m² por R$ 550.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 550.000 | 📐 2253 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2252-m-por-r-550-000-00-encantada-garopaba-sc-1477691402
+
+- **Terreno à venda, 456 m² por R$ 1.876.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.876.000 | 📐 457 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-456-m-por-r-1-876-000-00-praia-da-barra-garopaba-sc-1477691407
+
+- **Terreno à venda, 360 m² por R$ 504.784 - Pedra Branca - Garopaba/SC**
+  - 💰 R$ 504.784 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-504-784-pedra-branca-garopaba-sc-1477691386
+
+- **Terreno à venda, 652 m² por R$ 832.536,75 - Areias de Palhocinha - Gar**
+  - 💰 R$ 832.537 | 📐 653 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-652-m-por-r-832-536-75-areias-de-palhocinha-garopaba-sc-1477691364
+
+- **Terreno à venda, 2000 m² por R$ 1.890.000 - Ferraz - Garopaba/SC**
+  - 💰 R$ 1.890.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2000-m-por-r-1-890-000-ferraz-garopaba-sc-1477691370
+
+- **Terreno à venda, 838 m² por R$ 480.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 480.000 | 📐 838 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-838-m-por-r-480-000-00-encantada-garopaba-sc-1477691394
+
+- **Terreno à venda, 566 m² por R$ 2.506.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.506.000 | 📐 567 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-566-m-por-r-2-506-000-00-praia-da-barra-garopaba-sc-1477691396
+
+- **Terreno à venda, 2187 m² por R$ 480.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 480.000 | 📐 2188 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2187-m-por-r-480-000-00-encantada-garopaba-sc-1477691401
+
+- **Terreno à venda, 603 m² por R$ 380.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 380.000 | 📐 604 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-603-m-por-r-380-000-00-ressacada-garopaba-sc-1477691371
+
+- **Terreno à venda, 375 m² por R$ 350.000,00 - Campo D'una - Garopaba/SC**
+  - 💰 R$ 350.000 | 📐 375 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-350-000-00-campo-d-una-garopaba-sc-1477691377
+
+- **Terreno à venda, 242 m² por R$ 350.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 350.000 | 📐 243 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-242-m-por-r-350-000-00-praia-do-rosa-imbituba-sc-1477691389
+
+- **Terreno à venda, 800 m² por R$ 1.690.000,00 - Prainha do Silveira - Ga**
+  - 💰 R$ 1.690.000 | 📐 800 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-800-m-por-r-1-690-000-00-prainha-do-silveira-garopaba-sc-1477691392
+
+- **Terreno à venda, 573 m² por R$ 2.364.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.364.000 | 📐 574 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-573-m-por-r-2-364-000-00-praia-da-barra-garopaba-sc-1477691362
+
+- **Terreno à venda, 525 m² por R$ 400.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 400.000 | 📐 525 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-525-m-por-r-400-000-00-ressacada-garopaba-sc-1477691369
+
+- **Terreno à venda, 482 m² por R$ 1.988.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.988.000 | 📐 482 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-482-m-por-r-1-988-000-00-praia-da-barra-garopaba-sc-1477691373
+
+- **Terreno à venda, 360 m² por R$ 292.666,88 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 292.667 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-292-666-88-campo-duna-garopaba-sc-1477691380
+
+- **Terreno à venda, 363 m² por R$ 463.921,50 - Areias de Palhocinha - Gar**
+  - 💰 R$ 463.922 | 📐 364 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-363-m-por-r-463-921-50-areias-de-palhocinha-garopaba-sc-1477691385
+
+- **Terreno à venda, 400 m² por R$ 510.063,75 - Areias de Palhocinha - Gar**
+  - 💰 R$ 510.064 | 📐 400 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-400-m-por-r-510-063-75-areias-de-palhocinha-garopaba-sc-1477691368
+
+- **Terreno à venda, 360 m² por R$ 450.000 - Areias de Palhocinha - Garopa**
+  - 💰 R$ 450.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-450-000-areias-de-palhocinha-garopaba-sc-1477691381
+
+- **Terreno à venda, 1000 m² por R$ 4.000.000,00 - Praia da Barra - Garopa**
+  - 💰 R$ 4.000.000 | 📐 1000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1000-m-por-r-4-000-000-00-praia-da-barra-garopaba-sc-1477691344
+
+- **Terreno à venda, 391 m² por R$ 246.800,00 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 246.800 | 📐 392 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-391-m-por-r-246-800-00-aracatuba-imbituba-sc-1477691361
+
+- **Terreno à venda, 362 m² por R$ 461.868,75 - Areias de Palhocinha - Gar**
+  - 💰 R$ 461.869 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-362-m-por-r-461-868-75-areias-de-palhocinha-garopaba-sc-1477691345
+
+- **Terreno à venda, 316 m² por R$ 173.114,91 - Campestre - Imbituba/SC**
+  - 💰 R$ 173.115 | 📐 317 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-316-m-por-r-173-114-91-campestre-imbituba-sc-1477691346
+
+- **Terreno à venda, 360 m² por R$ 292.666,88 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 292.667 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-292-666-88-campo-duna-garopaba-sc-1477691334
+
+- **Terreno à venda, 384 m² por R$ 450.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 450.000 | 📐 384 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-384-m-por-r-450-000-00-praia-do-rosa-imbituba-sc-1477691269
+
+- **Terreno à venda, 1000 m² por R$ 1.010.000,00 - Praia da Ferrugem - Gar**
+  - 💰 R$ 1.010.000 | 📐 1000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1000-m-por-r-1-010-000-00-praia-da-ferrugem-garopaba-sc-1477691272
+
+- **Terreno à venda, 596 m² por R$ 2.700.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.700.000 | 📐 597 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-596-m-por-r-2-700-000-00-praia-da-barra-garopaba-sc-1477691273
+
+- **Terreno à venda, 2 Ha por R$ 1.650.000 - Ressacada - Garopaba/SC**
+  - 💰 R$ 1.650.000 | 📐 21529 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2-ha-por-r-1-650-000-ressacada-garopaba-sc-1477691266
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477691268
+
+- **Terreno à venda, 944 m² por R$ 315.000,00 - Arroio - Imbituba/SC**
+  - 💰 R$ 315.000 | 📐 944 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-944-m-por-r-315-000-00-arroio-imbituba-sc-1477691275
+
+- **Terreno à venda, 613 m² por R$ 2.452.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.452.000 | 📐 613 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-613-m-por-r-2-452-000-00-praia-da-barra-garopaba-sc-1477691261
+
+- **Terreno à venda, 360 m² por R$ 504.854 - Pedra Branca - Garopaba/SC**
+  - 💰 R$ 504.854 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-504-854-pedra-branca-garopaba-sc-1477691208
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477691219
+
+- **Terreno à venda, 715 m² por R$ 570.000,00 - Ambrósio - Garopaba/SC**
+  - 💰 R$ 570.000 | 📐 715 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-715-m-por-r-570-000-00-ambrosio-garopaba-sc-1477691233
+
+- **Terreno à venda, 301 m² por R$ 260.000,00 - Campo D'una - Imbituba/SC**
+  - 💰 R$ 260.000 | 📐 301 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-301-m-por-r-260-000-00-campo-d-una-imbituba-sc-1477691213
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477691224
+
+- **Terreno à venda, 244 m² por R$ 350.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 350.000 | 📐 244 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-244-m-por-r-350-000-00-praia-do-rosa-imbituba-sc-1477691211
+
+- **Terreno à venda, 900 m² por R$ 1.100.000,00 - Prainha do Silveira - Ga**
+  - 💰 R$ 1.100.000 | 📐 900 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-900-m-por-r-1-100-000-00-prainha-do-silveira-garopaba-sc-1477691230
+
+- **Terreno à venda, 460 m² por R$ 1.644.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.644.000 | 📐 461 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-460-m-por-r-1-644-000-00-praia-da-barra-garopaba-sc-1477691234
+
+- **Terreno à venda, 510 m² por R$ 442.203,05 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 442.203 | 📐 510 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-510-m-por-r-442-203-05-campo-duna-garopaba-sc-1477691180
+
+- **Terreno à venda, 381 m² por R$ 470.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 470.000 | 📐 382 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-381-m-por-r-470-000-00-praia-do-rosa-imbituba-sc-1477691185
+
+- **Terreno à venda, 496 m² por R$ 2.247.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.247.000 | 📐 497 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-496-m-por-r-2-247-000-00-praia-da-barra-garopaba-sc-1477691187
+
+- **Terreno à venda, 10347 m² por R$ 16.000.000,00 - Areias da Palhocinha **
+  - 💰 R$ 16.000.000 | 📐 10347 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-10347-m-por-r-16-000-000-00-areias-da-palhocinha-garopaba-sc-1477691189
+
+- **Terreno à venda, 360 m² por R$ 250.000,00 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-250-000-00-aracatuba-imbituba-sc-1477691191
+
+- **Terreno à venda, 454 m² por R$ 1.759.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.759.000 | 📐 455 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-454-m-por-r-1-759-000-00-praia-da-barra-garopaba-sc-1477691201
+
+- **Terreno à venda, 417 m² por R$ 250.000,00 - Campo D'una - Imbituba/SC**
+  - 💰 R$ 250.000 | 📐 418 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-417-m-por-r-250-000-00-campo-d-una-imbituba-sc-1477691202
+
+- **Terreno à venda, 360 m² por R$ 459.000,00 - Areias de Palhocinha - Gar**
+  - 💰 R$ 459.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-459-000-00-areias-de-palhocinha-garopaba-sc-1477691205
+
+- **Terreno à venda, 393 m² por R$ 350.000,00 - Costa do Macacu - Garopaba**
+  - 💰 R$ 350.000 | 📐 393 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-393-m-por-r-350-000-00-costa-do-macacu-garopaba-sc-1477691207
+
+- **Terreno à venda, 542 m² por R$ 2.399.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.399.000 | 📐 542 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-542-m-por-r-2-399-000-00-praia-da-barra-garopaba-sc-1477691220
+
+- **Terreno à venda, 360 m² por R$ 306.000,00 - Campo D'una - Garopaba/SC**
+  - 💰 R$ 306.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-306-000-00-campo-d-una-garopaba-sc-1477691192
+
+- **Terreno à venda, 450 m² por R$ 1.767.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.767.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-1-767-000-00-praia-da-barra-garopaba-sc-1477691195
+
+- **Terreno à venda, 7930 m² por R$ 3.170.000,00 - Arroio - Imbituba/SC**
+  - 💰 R$ 3.170.000 | 📐 7931 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-7930-m-por-r-3-170-000-00-arroio-imbituba-sc-1477691198
+
+- **Terreno à venda, 360 m² por R$ 504.910 - Pedra Branca - Garopaba/SC**
+  - 💰 R$ 504.910 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-504-910-pedra-branca-garopaba-sc-1477691159
+
+- **Terreno à venda, 364 m² por R$ 510.930 - Pedra Branca - Garopaba/SC**
+  - 💰 R$ 510.930 | 📐 364 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-364-m-por-r-510-930-pedra-branca-garopaba-sc-1477691158
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477691165
+
+- **Terreno à venda, 360 m² por R$ 530.000,00 - Ambrósio - Garopaba/SC**
+  - 💰 R$ 530.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-530-000-00-ambrosio-garopaba-sc-1477691184
+
+- **Terreno à venda, 426 m² por R$ 346.479,09 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 346.479 | 📐 426 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-426-m-por-r-346-479-09-campo-duna-garopaba-sc-1477691186
+
+- **Terreno à venda, 380 m² por R$ 593.642,00 - Pedra Branca - Garopaba/SC**
+  - 💰 R$ 593.642 | 📐 381 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-380-m-por-r-593-642-00-pedra-branca-garopaba-sc-1477691145
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477691149
+
+- **Terreno à venda, 365 m² por R$ 335.311,50 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 335.312 | 📐 366 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-365-m-por-r-335-311-50-campo-duna-garopaba-sc-1477691157
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477691164
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477691144
+
+- **Terreno à venda, 1100 m² por R$ 900.000,00 - Prainha do Silveira - Gar**
+  - 💰 R$ 900.000 | 📐 1100 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1100-m-por-r-900-000-00-prainha-do-silveira-garopaba-sc-1477691151
+
+- **Terreno à venda, 2053 m² por R$ 1.180.000,00 - Praia da Ferrugem - Gar**
+  - 💰 R$ 1.180.000 | 📐 2054 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2053-m-por-r-1-180-000-00-praia-da-ferrugem-garopaba-sc-1477691171
+
+- **Terreno à venda, 464 m² por R$ 1.773.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.773.000 | 📐 464 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-464-m-por-r-1-773-000-00-praia-da-barra-garopaba-sc-1477691146
+
+- **Terreno à venda, 487 m² por R$ 338.000,00 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 338.000 | 📐 487 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-487-m-por-r-338-000-00-aracatuba-imbituba-sc-1477691148
+
+- **Terreno à venda, 375 m² por R$ 1.596.000,00 - Praia de Itapirubá - Lag**
+  - 💰 R$ 1.596.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-1-596-000-00-praia-de-itapiruba-laguna-sc-1477691155
+
+- **Terreno à venda, 1644 m² por R$ 610.000,00 - Arroio - Imbituba/SC**
+  - 💰 R$ 610.000 | 📐 1645 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1644-m-por-r-610-000-00-arroio-imbituba-sc-1477691062
+
+- **Terreno à venda, 373 m² por R$ 219.300,00 - Campestre - Imbituba/SC**
+  - 💰 R$ 219.300 | 📐 374 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-373-m-por-r-219-300-00-campestre-imbituba-sc-1477691068
+
+- **Terreno à venda, 360 m² por R$ 292.666,88 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 292.667 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-292-666-88-campo-duna-garopaba-sc-1477691057
+
+- **Terreno à venda, 800 m² por R$ 1.390.000,00 - Prainha do Silveira - Ga**
+  - 💰 R$ 1.390.000 | 📐 800 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-800-m-por-r-1-390-000-00-prainha-do-silveira-garopaba-sc-1477691066
+
+- **Terreno à venda, 372 m² por R$ 559.000,00 - Siriú - Garopaba/SC**
+  - 💰 R$ 559.000 | 📐 373 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-372-m-por-r-559-000-00-siriu-garopaba-sc-1477691054
+
+- **Terreno à venda, 362 m² por R$ 290.000,00 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 290.000 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-362-m-por-r-290-000-00-campo-duna-garopaba-sc-1477691037
+
+- **Terreno à venda, 493 m² por R$ 821.018 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 821.018 | 📐 493 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-493-m-por-r-821-018-aracatuba-imbituba-sc-1477691041
+
+- **Terreno à venda, 1900 m² por R$ 580.000,00 - Praia da Ferrugem - Garop**
+  - 💰 R$ 580.000 | 📐 1900 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1900-m-por-r-580-000-00-praia-da-ferrugem-garopaba-sc-1477691043
+
+- **Terreno à venda, 566 m² por R$ 2.618.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.618.000 | 📐 566 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-566-m-por-r-2-618-000-00-praia-da-barra-garopaba-sc-1477691045
+
+- **Terreno à venda, 1528 m² por R$ 670.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 670.000 | 📐 1528 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1528-m-por-r-670-000-00-encantada-garopaba-sc-1477691047
+
+- **Terreno à venda, 360 m² por R$ 283.515,75 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 283.516 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-283-515-75-campo-duna-garopaba-sc-1477691048
+
+- **Terreno à venda, 375 m² por R$ 160.000,00 - Praia de Itapirubá - Lagun**
+  - 💰 R$ 160.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-160-000-00-praia-de-itapiruba-laguna-sc-1477691060
+
+- **Terreno à venda, 385 m² por R$ 554.000,00 - Siriú - Garopaba/SC**
+  - 💰 R$ 554.000 | 📐 386 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-385-m-por-r-554-000-00-siriu-garopaba-sc-1477691033
+
+- **Terreno à venda, 538 m² por R$ 2.052.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.052.000 | 📐 539 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-538-m-por-r-2-052-000-00-praia-da-barra-garopaba-sc-1477691035
+
+- **Terreno à venda, 548 m² por R$ 2.085.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.085.000 | 📐 549 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-548-m-por-r-2-085-000-00-praia-da-barra-garopaba-sc-1477690984
+
+- **Terreno à venda, 510 m² por R$ 442.203,05 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 442.203 | 📐 510 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-510-m-por-r-442-203-05-campo-duna-garopaba-sc-1477691039
+
+- **Terreno à venda, 450 m² por R$ 1.749.000 - Praia da Barra - Garopaba/S**
+  - 💰 R$ 1.749.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-1-749-000-praia-da-barra-garopaba-sc-1477690876
+
+- **Terreno à venda, 1485 m² por R$ 540.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 800.000 | 📐 1485 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1485-m-por-r-540-000-00-ressacada-garopaba-sc-1477690967
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477690972
+
+- **Terreno à venda, 1999 m² por R$ 1.990.000 - Ferraz - Garopaba/SC**
+  - 💰 R$ 1.990.000 | 📐 1999 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1999-m-por-r-1-990-000-ferraz-garopaba-sc-1477690867
+
+- **Terreno à venda, 469 m² por R$ 1.927.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.927.000 | 📐 469 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-469-m-por-r-1-927-000-00-praia-da-barra-garopaba-sc-1477690868
+
+- **Terreno à venda, 524 m² por R$ 733.964,00 - Pedra Branca - Garopaba/SC**
+  - 💰 R$ 733.964 | 📐 524 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-524-m-por-r-733-964-00-pedra-branca-garopaba-sc-1477690860
+
+- **Terreno à venda, 596 m² por R$ 517.238,83 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 517.239 | 📐 597 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-596-m-por-r-517-238-83-campo-duna-garopaba-sc-1477690862
+
+- **Terreno à venda, 528 m² por R$ 2.123.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.123.000 | 📐 528 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-528-m-por-r-2-123-000-00-praia-da-barra-garopaba-sc-1477690864
+
+- **Terreno à venda, 600 m² por R$ 745.000 - Areias da Palhocinha - Garopa**
+  - 💰 R$ 745.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-745-000-areias-da-palhocinha-garopaba-sc-1477690853
+
+- **Terreno à venda, 360 m² por R$ 270.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 270.000 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-270-000-00-ressacada-garopaba-sc-1477690861
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477690763
+
+- **Terreno à venda, 360 m² por R$ 504.994,00 - Pedra Branca - Garopaba/SC**
+  - 💰 R$ 504.994 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-504-994-00-pedra-branca-garopaba-sc-1477690764
+
+- **Terreno à venda, 1787 m² por R$ 1.790.000 - Ferraz - Garopaba/SC**
+  - 💰 R$ 1.790.000 | 📐 1787 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1787-m-por-r-1-790-000-ferraz-garopaba-sc-1477690784
+
+- **Terreno à venda, 501 m² por R$ 1.916.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.916.000 | 📐 501 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-501-m-por-r-1-916-000-00-praia-da-barra-garopaba-sc-1477690757
+
+- **Terreno à venda, 1370 m² por R$ 2.600.000,00 - Vigia - Garopaba/SC**
+  - 💰 R$ 2.600.000 | 📐 1370 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1370-m-por-r-2-600-000-00-vigia-garopaba-sc-1477690767
+
+- **Terreno à venda, 347 m² por R$ 521.000,00 - Siriú - Garopaba/SC**
+  - 💰 R$ 521.000 | 📐 348 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-347-m-por-r-521-000-00-siriu-garopaba-sc-1477690770
+
+- **Terreno à venda, 496 m² por R$ 632.897,25 - Areias de Palhocinha - Gar**
+  - 💰 R$ 632.897 | 📐 496 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-496-m-por-r-632-897-25-areias-de-palhocinha-garopaba-sc-1477690766
+
+- **Terreno à venda, 360 m² por R$ 325.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 325.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-325-000-00-ressacada-garopaba-sc-1477690749
+
+- **Terreno à venda, 349 m² por R$ 300.000,00 - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 300.000 | 📐 349 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-349-m-por-r-300-000-00-ibiraquera-imbituba-sc-1477690676
+
+- **Terreno à venda, 363 m² por R$ 260.000,00 - Campo Duna - Imbituba/SC**
+  - 💰 R$ 260.000 | 📐 364 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-363-m-por-r-260-000-00-campo-duna-imbituba-sc-1477690684
+
+- **Terreno à venda, 2000 m² por R$ 1.550.000 - Ferraz - Garopaba/SC**
+  - 💰 R$ 1.550.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2000-m-por-r-1-550-000-ferraz-garopaba-sc-1477690706
+
+- **Terreno à venda, 360 m² por R$ 459.000,00 - Areias de Palhocinha - Gar**
+  - 💰 R$ 459.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-459-000-00-areias-de-palhocinha-garopaba-sc-1477690731
+
+- **Terreno à venda, 360 m² por R$ 310.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 310.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-310-000-00-ressacada-garopaba-sc-1477690704
+
+- **Terreno à venda, 361 m² por R$ 461.448 - Areias de Palhocinha - Garopa**
+  - 💰 R$ 461.448 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-361-m-por-r-461-448-areias-de-palhocinha-garopaba-sc-1477690712
+
+- **Terreno à venda, 379 m² por R$ 465.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 465.000 | 📐 380 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-379-m-por-r-465-000-00-praia-do-rosa-imbituba-sc-1477690708
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477690674
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477690680
+
+- **Terreno à venda, 364 m² por R$ 464.712,00 - Areias de Palhocinha - Gar**
+  - 💰 R$ 464.712 | 📐 364 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-364-m-por-r-464-712-00-areias-de-palhocinha-garopaba-sc-1477690685
+
+- **Terreno à venda, 454 m² por R$ 1.784.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.784.000 | 📐 455 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-454-m-por-r-1-784-000-00-praia-da-barra-garopaba-sc-1477690709
+
+- **Terreno à venda, 360 m² por R$ 505.148,00 - Pedra Branca - Garopaba/SC**
+  - 💰 R$ 505.148 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-505-148-00-pedra-branca-garopaba-sc-1477690670
+
+- **Terreno à venda, 380 m² por R$ 533.386,00 - Pedra Branca - Garopaba/SC**
+  - 💰 R$ 533.386 | 📐 381 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-380-m-por-r-533-386-00-pedra-branca-garopaba-sc-1477690687
+
+- **Terreno à venda, 363 m² por R$ 463.857,75 - Areias de Palhocinha - Gar**
+  - 💰 R$ 463.858 | 📐 364 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-363-m-por-r-463-857-75-areias-de-palhocinha-garopaba-sc-1477690682
+
+- **Terreno à venda, 450 m² por R$ 1.480.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.480.000 | 📐 451 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-1-480-000-00-praia-da-barra-garopaba-sc-1477690352
+
+- **Terreno à venda, 1884 m² por R$ 450.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 450.000 | 📐 1885 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1884-m-por-r-450-000-00-encantada-garopaba-sc-1477690458
+
+- **Terreno à venda, 223 m² por R$ 330.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 330.000 | 📐 223 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-223-m-por-r-330-000-00-praia-do-rosa-imbituba-sc-1477690454
+
+- **Sítio com natureza exuberante, na Ressacada - Garopaba**
+  - 💰 R$ 1.500.000 | 📐 172990 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-natureza-exuberante-na-ressacada-garopaba-1477690462
+
+- **Terreno à venda, 2000 m² por R$ 3.350.000,00 - Morrinhos - Garopaba/SC**
+  - 💰 R$ 3.350.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2000-m-por-r-3-350-000-00-morrinhos-garopaba-sc-1477690469
+
+- **Terreno à venda, 2288 m² por R$ 2.330.000,00 - Praia da Ferrugem - Gar**
+  - 💰 R$ 2.330.000 | 📐 2289 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2288-m-por-r-2-330-000-00-praia-da-ferrugem-garopaba-sc-1477690472
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477690455
+
+- **Terreno à venda, 360 m² por R$ 599.990,00 - Palhocinha - Garopaba/SC**
+  - 💰 R$ 599.990 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-599-990-00-palhocinha-garopaba-sc-1477690385
+
+- **Terreno à venda, 450 m² por R$ 748.998,00 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-00-aracatuba-imbituba-sc-1477690386
+
+- **Terreno à venda, 236 m² por R$ 320.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 320.000 | 📐 236 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-236-m-por-r-320-000-00-praia-do-rosa-imbituba-sc-1477690391
+
+- **Terreno à venda, 360 m² por R$ 350.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-350-000-00-ressacada-garopaba-sc-1477690395
+
+- **Terreno à venda, 360 m² por R$ 210.000,00 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 210.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-210-000-00-aracatuba-imbituba-sc-1477690450
+
+- **Terreno à venda, 360 m² por R$ 260.000,00 - Campo Duna - Imbituba/SC**
+  - 💰 R$ 260.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-260-000-00-campo-duna-imbituba-sc-1477690452
+
+- **Terreno à venda, 1528 m² por R$ 1.874.807,10 - Vigia - Garopaba/SC**
+  - 💰 R$ 1.874.807 | 📐 1528 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1528-m-por-r-1-874-807-10-vigia-garopaba-sc-1477690460
+
+- **Terreno à venda, 3056 m² por R$ 420.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 420.000 | 📐 3057 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3056-m-por-r-420-000-00-encantada-garopaba-sc-1477690365
+
+- **Terreno à venda, 362 m² por R$ 336.873,90 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 336.874 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-362-m-por-r-336-873-90-campo-duna-garopaba-sc-1477690373
+
+- **Terreno à venda, 222 m² por R$ 280.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 270.000 | 📐 222 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-222-m-por-r-280-000-00-praia-do-rosa-imbituba-sc-1477690374
+
+- **Terreno à venda, 434 m² por R$ 377.060,47 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 377.060 | 📐 435 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-434-m-por-r-377-060-47-campo-duna-garopaba-sc-1477690376
+
+- **Terreno à venda, 360 m² por R$ 292.715,66 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 292.716 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-292-715-66-campo-duna-garopaba-sc-1477690378
+
+- **Terreno à venda, 472 m² por R$ 786.065 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 786.065 | 📐 472 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-472-m-por-r-786-065-aracatuba-imbituba-sc-1477690383
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477690400
+
+- **Terreno à venda, 482 m² por R$ 392.536,49 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 392.536 | 📐 483 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-482-m-por-r-392-536-49-campo-duna-garopaba-sc-1477690381
+
+- **Terreno à venda, 363 m² por R$ 464.074,50 - Areias de Palhocinha - Gar**
+  - 💰 R$ 464.075 | 📐 364 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-363-m-por-r-464-074-50-areias-de-palhocinha-garopaba-sc-1477690396
+
+- **Terreno à venda, 236 m² por R$ 380.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 380.000 | 📐 236 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-236-m-por-r-380-000-00-praia-do-rosa-imbituba-sc-1477690397
+
+- **Terreno à venda, 458 m² por R$ 380.000 - Ressacada - Garopaba/SC**
+  - 💰 R$ 380.000 | 📐 459 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-458-m-por-r-380-000-ressacada-garopaba-sc-1477690384
+
+- **Terreno à venda, 539 m² por R$ 899.000,00 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 899.000 | 📐 540 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-539-m-por-r-899-000-00-aracatuba-imbituba-sc-1477690387
+
+- **Terreno à venda, 424 m² por R$ 344.828,96 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 344.829 | 📐 424 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-424-m-por-r-344-828-96-campo-duna-garopaba-sc-1477690390
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477690382
+
+- **Terreno à venda, 598 m² por R$ 486.634,70 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 486.635 | 📐 599 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-598-m-por-r-486-634-70-campo-duna-garopaba-sc-1477690389
+
+- **Terreno à venda, 456 m² por R$ 370.000 - Ressacada - Garopaba/SC**
+  - 💰 R$ 370.000 | 📐 457 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-456-m-por-r-370-000-ressacada-garopaba-sc-1477690367
+
+- **Terreno à venda, 434 m² por R$ 377.060,47 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 377.060 | 📐 435 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-434-m-por-r-377-060-47-campo-duna-garopaba-sc-1477690379
+
+- **Terreno à venda, 362 m² por R$ 294.674,68 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 294.675 | 📐 363 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-362-m-por-r-294-674-68-campo-duna-garopaba-sc-1477690354
+
+- **Terreno à venda, 512 m² por R$ 444.379,38 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 444.379 | 📐 513 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-512-m-por-r-444-379-38-campo-duna-garopaba-sc-1477690327
+
+- **Terreno à venda, 857 m² por R$ 550.000,00 - Siriú - Garopaba/SC**
+  - 💰 R$ 550.000 | 📐 858 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-857-m-por-r-550-000-00-siriu-garopaba-sc-1477690329
+
+- **Terreno à venda, 1033 m² por R$ 510.000,00 - Arroio - Imbituba/SC**
+  - 💰 R$ 510.000 | 📐 1034 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1033-m-por-r-510-000-00-arroio-imbituba-sc-1477690333
+
+- **Terreno à venda, 578 m² por R$ 2.188.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.188.000 | 📐 579 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-578-m-por-r-2-188-000-00-praia-da-barra-garopaba-sc-1477690334
+
+- **Terreno à venda, 398 m² por R$ 639.990,00 - Palhocinha - Garopaba/SC**
+  - 💰 R$ 639.990 | 📐 399 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-398-m-por-r-639-990-00-palhocinha-garopaba-sc-1477690335
+
+- **Terreno à venda, 880 m² por R$ 650.000,00 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 650.000 | 📐 880 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-880-m-por-r-650-000-00-aracatuba-imbituba-sc-1477690336
+
+- **Terreno à venda, 360 m² por R$ 310.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 310.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-310-000-00-ressacada-garopaba-sc-1477690337
+
+- **Terreno à venda, 584 m² por R$ 972.615 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 972.616 | 📐 584 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-584-m-por-r-972-615-aracatuba-imbituba-sc-1477690345
+
+- **Terreno à venda, 399 m² por R$ 346.218,97 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 346.219 | 📐 399 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-399-m-por-r-346-218-97-campo-duna-garopaba-sc-1477690347
+
+- **Terreno à venda, 483 m² por R$ 1.980.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.980.000 | 📐 484 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-483-m-por-r-1-980-000-00-praia-da-barra-garopaba-sc-1477690359
+
+- **Terreno à venda, 454 m² por R$ 1.876.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.876.000 | 📐 455 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-454-m-por-r-1-876-000-00-praia-da-barra-garopaba-sc-1477690341
+
+- **Terreno à venda, 540 m² por R$ 2.442.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.442.000 | 📐 540 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-540-m-por-r-2-442-000-00-praia-da-barra-garopaba-sc-1477690346
+
+- **Terreno à venda, 495 m² por R$ 550.000,00 - Siriú - Garopaba/SC**
+  - 💰 R$ 550.000 | 📐 496 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-495-m-por-r-550-000-00-siriu-garopaba-sc-1477690350
+
+- **Terreno à venda, 900 m² por R$ 3.100.000 - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 3.100.000 | 📐 900 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-900-m-por-r-3-100-000-praia-do-rosa-imbituba-sc-1477690360
+
+- **Terreno à venda, 367 m² por R$ 429.000,00 - Areias da Palhocinha - Gar**
+  - 💰 R$ 429.000 | 📐 367 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-367-m-por-r-429-000-00-areias-da-palhocinha-garopaba-sc-1477690353
+
+- **Terreno à venda, 450 m² por R$ 450.000 - Ressacada - Garopaba/SC**
+  - 💰 R$ 450.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-450-000-ressacada-garopaba-sc-1477690321
+
+- **Terreno à venda, 601 m² por R$ 1.000.511,53 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 1.000.512 | 📐 601 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-601-m-por-r-1-000-511-53-aracatuba-imbituba-sc-1477690340
+
+- **Terreno à venda, 20653 m² por R$ 2.000.000,00 - Ribeirão Grande - Paul**
+  - 💰 R$ 2.000.000 | 📐 20653 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-20653-m-por-r-2-000-000-00-ribeirao-grande-paulo-lopes-sc-1477690323
+
+- **Terreno à venda, 384 m² por R$ 489.982,50 - Areias de Palhocinha - Gar**
+  - 💰 R$ 489.983 | 📐 384 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-384-m-por-r-489-982-50-areias-de-palhocinha-garopaba-sc-1477690328
+
+- **Terreno à venda, 2000 m² por R$ 180.000,00 - Ponta Grossa - Imaruí/SC**
+  - 💰 R$ 180.000 | 📐 2000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2000-m-por-r-180-000-00-ponta-grossa-imarui-sc-1477690330
+
+- **Terreno à venda, 360 m² por R$ 459.000,00 - Areias de Palhocinha - Gar**
+  - 💰 R$ 459.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-459-000-00-areias-de-palhocinha-garopaba-sc-1477690300
+
+- **Terreno à venda, 360 m² por R$ 310.000,00 - Ressacada - Garopaba/SC**
+  - 💰 R$ 310.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-310-000-00-ressacada-garopaba-sc-1477690302
+
+- **Terreno à venda, 360 m² por R$ 306.000,00 - Campo D'una - Garopaba/SC**
+  - 💰 R$ 306.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-306-000-00-campo-d-una-garopaba-sc-1477690318
+
+- **Terreno à venda, 450 m² por R$ 1.854.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.854.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-1-854-000-00-praia-da-barra-garopaba-sc-1477690304
+
+- **Terreno à venda, 360 m² por R$ 459.000,00 - Areias de Palhocinha - Gar**
+  - 💰 R$ 459.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-459-000-00-areias-de-palhocinha-garopaba-sc-1477690310
+
+- **Terreno à venda, 1733 m² por R$ 1.890.000 - Ferraz - Garopaba/SC**
+  - 💰 R$ 1.890.000 | 📐 1733 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1733-m-por-r-1-890-000-ferraz-garopaba-sc-1477690319
+
+- **Terreno à venda, 496 m² por R$ 430.593,05 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 430.593 | 📐 497 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-496-m-por-r-430-593-05-campo-duna-garopaba-sc-1477690264
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477690307
+
+- **Terreno à venda, 517 m² por R$ 860.681 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 860.682 | 📐 517 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-517-m-por-r-860-681-aracatuba-imbituba-sc-1477690287
+
+- **Terreno à venda, 450 m² por R$ 1.854.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.854.000 | 📐 451 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-1-854-000-00-praia-da-barra-garopaba-sc-1477690296
+
+- **Terreno à venda, 600 m² por R$ 753.500,00 - Areias da Palhocinha - Gar**
+  - 💰 R$ 753.500 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-753-500-00-areias-da-palhocinha-garopaba-sc-1477690303
+
+- **Terreno à venda, 384 m² por R$ 312.655,44 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 312.655 | 📐 385 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-384-m-por-r-312-655-44-campo-duna-garopaba-sc-1477690305
+
+- **Terreno à venda, 510 m² por R$ 442.888,03 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 442.888 | 📐 511 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-510-m-por-r-442-888-03-campo-duna-garopaba-sc-1477690273
+
+- **Terreno à venda, 441 m² por R$ 382.965,18 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 382.965 | 📐 442 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-441-m-por-r-382-965-18-campo-duna-garopaba-sc-1477690278
+
+- **Terreno à venda, 584 m² por R$ 972.615,51 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 972.616 | 📐 584 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-584-m-por-r-972-615-51-aracatuba-imbituba-sc-1477690282
+
+- **Terreno à venda, 450 m² por R$ 2.037.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.037.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-2-037-000-00-praia-da-barra-garopaba-sc-1477690288
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477690292
+
+- **Terreno à venda, 412 m² por R$ 357.404,11 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 357.404 | 📐 412 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-412-m-por-r-357-404-11-campo-duna-garopaba-sc-1477690294
+
+- **Terreno à venda, 420 m² por R$ 341.406,76 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 341.407 | 📐 420 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-420-m-por-r-341-406-76-campo-duna-garopaba-sc-1477690295
+
+- **Terreno à venda, 363 m² por R$ 463.692,00 - Areias de Palhocinha - Gar**
+  - 💰 R$ 463.692 | 📐 364 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-363-m-por-r-463-692-00-areias-de-palhocinha-garopaba-sc-1477690309
+
+- **Terreno à venda, 361 m² por R$ 375.000,00 - Encantada - Garopaba/SC**
+  - 💰 R$ 375.000 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-361-m-por-r-375-000-00-encantada-garopaba-sc-1477690276
+
+- **Terreno à venda, 383 m² por R$ 1.590.000,00 - Centro - Garopaba/SC**
+  - 💰 R$ 1.590.000 | 📐 383 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-383-m-por-r-1-590-000-00-centro-garopaba-sc-1477690298
+
+- **Terreno à venda, 606 m² por R$ 650.000,00 - Ambrósio - Garopaba/SC**
+  - 💰 R$ 650.000 | 📐 607 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-606-m-por-r-650-000-00-ambrosio-garopaba-sc-1477690297
+
+- **Terreno à venda, 375 m² por R$ 181.000,00 - Praia de Itapirubá - Lagun**
+  - 💰 R$ 181.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-181-000-00-praia-de-itapiruba-laguna-sc-1477690269
+
+- **Terreno à venda, 10347 m² por R$ 16.000.000,00 - Areias da Palhocinha **
+  - 💰 R$ 16.000.000 | 📐 10347 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-10347-m-por-r-16-000-000-00-areias-da-palhocinha-garopaba-sc-1477690285
+
+- **Terreno à venda, 450 m² por R$ 748.998 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 748.998 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-748-998-aracatuba-imbituba-sc-1477690293
+
+- **Terreno à venda, 341 m² por R$ 450.000,00 - Areias da Palhocinha - Gar**
+  - 💰 R$ 450.000 | 📐 341 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-341-m-por-r-450-000-00-areias-da-palhocinha-garopaba-sc-1477690261
+
+- **Terreno à venda, 1224 m² por R$ 1.425.000,00 - Praia do Silveira - Gar**
+  - 💰 R$ 1.425.000 | 📐 1224 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1224-m-por-r-1-425-000-00-praia-do-silveira-garopaba-sc-1477690270
+
+- **Terreno à venda, 732 m² por R$ 550.000,00 - Ambrósio - Garopaba/SC**
+  - 💰 R$ 550.000 | 📐 733 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-732-m-por-r-550-000-00-ambrosio-garopaba-sc-1477690271
+
+- **Terreno à venda, 251 m² por R$ 370.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 370.000 | 📐 251 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-251-m-por-r-370-000-00-praia-do-rosa-imbituba-sc-1477690260
+
+- **Terreno à venda, 489 m² por R$ 2.001.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 2.001.000 | 📐 490 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-489-m-por-r-2-001-000-00-praia-da-barra-garopaba-sc-1477690275
+
+- **Terreno à venda, 362 m² por R$ 294.447,08 - Campo Duna - Garopaba/SC**
+  - 💰 R$ 294.447 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-362-m-por-r-294-447-08-campo-duna-garopaba-sc-1477690279
+
+- **Terreno à venda, 1821 m² por R$ 2.000.000,00 - Praia da Gamboa - Garop**
+  - 💰 R$ 2.000.000 | 📐 1822 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1821-m-por-r-2-000-000-00-praia-da-gamboa-garopaba-sc-1477690166
+
+- **Terreno à venda, 1607 m² por R$ 4.400.000,00 - Praia do Silveira - Gar**
+  - 💰 R$ 3.900.000 | 📐 1607 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1607-m-por-r-4-400-000-00-praia-do-silveira-garopaba-sc-1477690170
+
+- **Terreno à venda, 377 m² por R$ 460.000,00 - Praia Do Rosa - Imbituba/S**
+  - 💰 R$ 460.000 | 📐 378 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-377-m-por-r-460-000-00-praia-do-rosa-imbituba-sc-1477690169
+
+- **Terreno à venda, 376 m² por R$ 230.000,00 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 230.000 | 📐 376 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-376-m-por-r-230-000-00-aracatuba-imbituba-sc-1477690174
+
+- **Lindo Sitio em AMPLO terreno Morro Grande SC**
+  - 💰 R$ 1.250.000 | 📐 72000 m²
+  - 📍  — Morro Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-em-amplo-terreno-morro-grande-sc-1373594594
+
+- **Terreno no interior**
+  - 💰 R$ 60.000 | 📐 200 m²
+  - 📍  — Morro Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-interior-1472187536
+
+- **Propriedade com 96 hectares - Morro Grande - SC**
+  - 💰 R$ 4.000.000 | 📐 960000 m²
+  - 📍  — Morro Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/propriedade-com-96-hectares-morro-grande-sc-1182981412
+
+- **Terreno rural**
+  - 💰 R$ 250.000 | 📐 20000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-1475352223
+
+- **Terreno**
+  - 💰 R$ 400 | 📐 15000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1473729225
+
+- **Chácara com 5 dormitórios à venda, 5300 m² por R$ 640.000,00 - Vil**
+  - 💰 R$ 640.000 | 📐 200 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-5-dormitorios-a-venda-5300-m-por-r-640-000-00-vil-1443143526
+
+- **Terreno - Venda - São João do Sul, Santa Catarina**
+  - 💰 R$ 35.000 | 📐 300 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-sao-joao-do-sul-santa-catarina-1428319468
+
+- **TERRENO NA MARGEM BR 101 OPORTUNIDADE EXCLUSIVA**
+  - 💰 R$ 7.000.000 | 📐 31000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-margem-br-101-oportunidade-exclusiva-1428138653
+
+- **TERRENO NA MARGEM BR 101 OPORTUNIDADE EXCLUSIVA**
+  - 💰 R$ 2.000.000 | 📐 11000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-margem-br-101-oportunidade-exclusiva-1426888048
+
+- **Terreno Rural 2.6 ha**
+  - 💰 R$ 340.000 | 📐 26000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-2-6-ha-1426299752
+
+- **Refúgio dos Sonhos: Terreno com Açude em Condomínio Fechado, Frente No**
+  - 💰 R$ 79.900 | 📐 2100 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/refugio-dos-sonhos-terreno-com-acude-em-condominio-fechado-frente-norte-e-acesso-a-lagoa-1425404104
+
+- **Terreno area industrial e comercial margem da BR 101**
+  - 💰 R$ 350.000 | 📐 4800 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-area-industrial-e-comercial-margem-da-br-101-1422741837
+
+- **Fazenda à venda, 3300000 m² por R$ 30.000.000,00 - Três Coqueiros - Sã**
+  - 💰 R$ 30.000.000 | 📐 1000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-a-venda-3300000-m-por-r-30-000-000-00-tres-coqueiros-sao-joao-do-sul-sc-1274176309
+
+- **Sítio com 2 dormitórios à venda, 20000 m² por R$ 550.000,00 - Três Coq**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-2-dormitorios-a-venda-20000-m-por-r-550-000-00-tres-coqueiros-sao-joao-do-1026278444
+
+- **Terreno à Venda, Passos de Torres - SC**
+  - 💰 R$ 194.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-passos-de-torres-sc-1431366360
+
+- **Terrenos 300m2**
+  - 💰 R$ 299.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-300m2-1372001006
+
+- **Terreno 200m2 em Passo de Torres SC**
+  - 💰 R$ 125.000 | 📐 200 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-200m2-em-passo-de-torres-sc-1092020728
+
+- **Terreno à venda, 422 m² por R$ 159.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 159.000 | 📐 422 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-422-m-por-r-159-000-bellatorres-passo-de-torres-sc-1477138873
+
+- **Terreno na Praia SC**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-sc-1476592387
+
+- **Terreno à venda, 300 m² por R$ 200.000 - Novo Passo - Passo de Torres/**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-200-000-novo-passo-passo-de-torres-sc-1476546967
+
+- **Terreno à venda, 300 m² por R$ 145.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-145-000-00-bellatorres-passo-de-torres-sc-1476506421
+
+- **Terreno à venda, 337 m² por R$ 200.000 - Bosque das Figueiras - Passo **
+  - 💰 R$ 200.000 | 📐 337 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-337-m-por-r-200-000-bosque-das-figueiras-passo-de-torres-sc-1475808526
+
+- **Terreno à venda, 600 m² por R$ 230.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 230.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-230-000-00-rota-do-sol-passo-de-torres-sc-1475807767
+
+- **Terreno 430m2 em Passo de Torres - SC - Loteamento Jarim América - PAR**
+  - 💰 R$ 370.000 | 📐 430 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-430m2-em-passo-de-torres-sc-loteamento-jarim-america-para-vender-1435367095
+
+- **Terreno à venda  Loteamento Jardim América  Passo de Torres/SC**
+  - 💰 R$ 140.000 | 📐 206 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-jardim-america-passo-de-torres-sc-1475272174
+
+- **Terreno Pronto para construir**
+  - 💰 R$ 110.000 | 📐 245 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-1475254953
+
+- **terreno 12 x 25 Passo de torres Sc praia do caravelle**
+  - 💰 R$ 116.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-12-x-25-passo-de-torres-sc-praia-do-caravelle-1475232784
+
+- **Terreno frente Leste no Loteamento Novo Passo**
+  - 💰 R$ 185.000 | 📐 420 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-leste-no-loteamento-novo-passo-1474960404
+
+- **Residencial Porto Fino Passo de Torres**
+  - 💰 R$ 197.722 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-porto-fino-passo-de-torres-1474959579
+
+- **Terreno à venda, 300 m² por R$ 140.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-140-000-00-tapera-passo-de-torres-sc-1474938416
+
+- **Terreno à venda, 1500 m² por R$ 450.000,00 - Tapera - Passo de Torres/**
+  - 💰 R$ 450.000 | 📐 1500 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1500-m-por-r-450-000-00-tapera-passo-de-torres-sc-1474607924
+
+- **Terreno 200m2**
+  - 💰 R$ 125.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-200m2-1400717157
+
+- **Terreno 200m2**
+  - 💰 R$ 110.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-200m2-1419205550
+
+- **Terreno à venda, 375 m² por R$ 270.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 270.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-270-000-00-bellatorres-passo-de-torres-sc-1473878146
+
+- **Terreno Jardim América**
+  - 💰 R$ 157.538 | 📐 223 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jardim-america-1473576476
+
+- **Terreno à venda, 360 m² por R$ 99.000 - Caravelle - Passo de Torres/SC**
+  - 💰 R$ 99.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-99-000-caravelle-passo-de-torres-sc-1473251557
+
+- **Terreno à venda, 375 m² por R$ 245.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 245.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-245-000-bellatorres-passo-de-torres-sc-1473251369
+
+- **Terreno à venda, 375 m² por R$ 240.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 240.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-240-000-00-bellatorres-passo-de-torres-sc-1472986963
+
+- **Terreno à venda, 375 m² por R$ 190.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 190.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-190-000-00-bellatorres-passo-de-torres-sc-1472986912
+
+- **Terreno à venda, 300 m² por R$ 150.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-150-000-00-bellatorres-passo-de-torres-sc-1472986917
+
+- **Terreno à venda, 300 m² por R$ 215.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 215.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-215-000-bellatorres-passo-de-torres-sc-1472935164
+
+- **Terreno à venda, 300 m² por R$ 100.000 - Xangrilá dos Mares - Passo de**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-100-000-xangrila-dos-mares-passo-de-torres-sc-1472578913
+
+- **Terreno à Venda, Passos de Torres - SC - JARDIM AMÉRICA**
+  - 💰 R$ 89.700 | 📐 205 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-passos-de-torres-sc-jardim-america-1459715246
+
+- **Terreno - Bairro Passo de Torres**
+  - 💰 R$ 111.753 | 📐 201 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-passo-de-torres-1472110468
+
+- **Terreno  passos de torres SC  troca**
+  - 💰 R$ 115.000 | 📐 450000 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-passos-de-torres-sc-troca-1472011235
+
+- **Terreno em condomínio fechado**
+  - 💰 R$ 275.000 | 📐 399 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-1471749525
+
+- **Terrenos praia Xangri-lá dos Mares a 780m da Beira Mar**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-praia-xangri-la-dos-mares-a-780m-da-beira-mar-1471666751
+
+- **TERRENO A POUCOS METROS DO MAR**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-poucos-metros-do-mar-1471574172
+
+- **Área de Terra ao lado da Bella Torres para investimento e Loteamento**
+  - 💰 R$ 8.100.000 | 📐 90000 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-de-terra-ao-lado-da-bella-torres-para-investimento-e-loteamento-1471574077
+
+- **Riviera Mampituba**
+  - 💰 R$ 335.743 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/riviera-mampituba-1470979266
+
+- **Terreno a 90 metros da Praia**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-90-metros-da-praia-1470969411
+
+- **TERRENOS JUNTOS A POUCOS METROS DO MAR**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-juntos-a-poucos-metros-do-mar-1470655287
+
+- **Terreno Praia Sumaré II**
+  - 💰 R$ 87.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-sumare-ii-1470655157
+
+- **Terreno a 150m da Praia**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-150m-da-praia-1470655162
+
+- **Terreno de esquina Praia Bella Torres**
+  - 💰 R$ 250.000 | 📐 387 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-praia-bella-torres-1470652129
+
+- **TERRENO FRENTE LESTE PROXIMO AO MAR**
+  - 💰 R$ 78.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-leste-proximo-ao-mar-1470647498
+
+- **Terreno no Loteamento Jardim América em Passo de Torres**
+  - 💰 R$ 119.000 | 📐 207 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-america-em-passo-de-torres-1470647485
+
+- **Terreno de ESQUINA a poucos metros do MAR**
+  - 💰 R$ 169.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-poucos-metros-do-mar-1470647107
+
+- **Terrenos frente sul na praia BellaTorres - Passo de Torres**
+  - 💰 R$ 169.900 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-frente-sul-na-praia-bellatorres-passo-de-torres-1470646967
+
+- **Terreno a 90 metros da Praia**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-90-metros-da-praia-1470646899
+
+- **Terreno a 60 metros do mar no bairro Porto do Sol**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-60-metros-do-mar-no-bairro-porto-do-sol-1470646865
+
+- **Terreno Pé na Areia**
+  - 💰 R$ 299.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pe-na-areia-1470646854
+
+- **Terreno à venda, 300 m² por R$ 125.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-125-000-00-tapera-passo-de-torres-sc-1469954545
+
+- **Terreno de esquina no loteamento Jardim América**
+  - 💰 R$ 200.000 | 📐 285 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-loteamento-jardim-america-1469748432
+
+- **Terreno à venda, 300 m² por R$ 100.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-100-000-00-tapera-passo-de-torres-sc-1469291812
+
+- **Terrenos parcelados direto com a loteadora**
+  - 💰 R$ 89.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-direto-com-a-loteadora-1469010564
+
+- **Terrenos parcelados com R$10 mil de entrada**
+  - 💰 R$ 79.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-com-r-10-mil-de-entrada-1469005068
+
+- **Terreno de esquina à venda, 300 m² por R$ 100.000 - Sumaré II - Passo **
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-300-m-por-r-100-000-sumare-ii-passo-de-torres-sc-1468662584
+
+- **Terreno loteamento Jardim América**
+  - 💰 R$ 55.000 | 📐 220 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-jardim-america-1435216873
+
+- **Terreno à venda, 360 m² por R$ 185.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 185.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-185-000-bellatorres-passo-de-torres-sc-1467977359
+
+- **Terreno à venda, 375 m² por R$ 290.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 290.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-290-000-bellatorres-passo-de-torres-sc-1467949651
+
+- **Terreno à venda, 202 m² por R$ 125.000 - Jardim America - Passo de Tor**
+  - 💰 R$ 125.000 | 📐 202 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-202-m-por-r-125-000-jardim-america-passo-de-torres-sc-1467330643
+
+- **Terreno à venda, 300 m² por R$ 115.000 - Porto do Sol - Passo de Torre**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-115-000-porto-do-sol-passo-de-torres-sc-1467329199
+
+- **Terrenos parcelados a 180m do mar**
+  - 💰 R$ 129.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-a-180m-do-mar-1467080591
+
+- **Terreno à venda, 300 m² por R$ 180.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-180-000-00-bellatorres-passo-de-torres-sc-1466107723
+
+- **Terreno no Jardim América SC**
+  - 💰 R$ 110.000 | 📐 220 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-america-sc-1465487571
+
+- **Oportunidade de investimento na cidade que mais cresce no litoral de S**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-na-cidade-que-mais-cresce-no-litoral-de-santa-catarina-praia-1463330587
+
+- **Oportunidade de investimento na cidade que mais cresce no litoral de S**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-na-cidade-que-mais-cresce-no-litoral-de-santa-catarina-passo-1463330070
+
+- **Oportunidade de investimento na cidade que mais cresce no litoral de S**
+  - 💰 R$ 63.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-na-cidade-que-mais-cresce-no-litoral-de-santa-catarina-praia-1463329996
+
+- **Terreno à venda, 1125 m² por R$ 1.100.000 - Bellatorres - Passo de Tor**
+  - 💰 R$ 1.100.000 | 📐 1125 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1125-m-por-r-1-100-000-bellatorres-passo-de-torres-sc-1463141753
+
+- **Terreno a 360m do Mar Posição Frente Mar..**
+  - 💰 R$ 122.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-360m-do-mar-posicao-frente-mar-1462842389
+
+- **Terreno à venda, 375 m² por R$ 290.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 290.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-290-000-bellatorres-passo-de-torres-sc-1462841992
+
+- **Terreno à venda, 265 m² por R$ 150.000 - Jardim America - Passo de Tor**
+  - 💰 R$ 150.000 | 📐 266 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-265-m-por-r-150-000-jardim-america-passo-de-torres-sc-1462514506
+
+- **Terreno à venda, 250 m² por R$ 150.000 - Jardim America - Passo de Tor**
+  - 💰 R$ 150.000 | 📐 250 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-250-m-por-r-150-000-jardim-america-passo-de-torres-sc-1462478478
+
+- **Terreno no Morada do Sol Passo de Torres SC**
+  - 💰 R$ 185.000 | 📐 294 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-morada-do-sol-passo-de-torres-sc-1462212013
+
+- **Terreno à venda, 221 m² por R$ 98.000 - Jardim América - Passo de Torr**
+  - 💰 R$ 98.000 | 📐 221 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-221-m-por-r-98-000-jardim-america-passo-de-torres-sc-1461817975
+
+- **Terreno à venda, 300 m² por R$ 150.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-150-000-00-bellatorres-passo-de-torres-sc-1461816530
+
+- **Terreno à venda, 461 m² por R$ 330.000 - Centro - Passo de Torres/SC**
+  - 💰 R$ 330.000 | 📐 461 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-461-m-por-r-330-000-centro-passo-de-torres-sc-1461558855
+
+- **Terreno de esquina pronto para construir no loteamento Jardim América **
+  - 💰 R$ 245.000 | 📐 296 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-pronto-para-construir-no-loteamento-jardim-america-em-passo-de-torres-s-1460825881
+
+- **Terreno à venda, 300 m² por R$ 125.000 - Rosa do Mar - Passo de Torres**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-125-000-rosa-do-mar-passo-de-torres-sc-1459755949
+
+- **Terreno à venda, 219 m² por R$ 100.000,00 - Jardim America - Passo de **
+  - 💰 R$ 100.000 | 📐 219 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-219-m-por-r-100-000-00-jardim-america-passo-de-torres-sc-1458575303
+
+- **Terreno à venda, 300 m² por R$ 140.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-140-000-00-bellatorres-passo-de-torres-sc-1458575283
+
+- **Terreno à venda, 300 m² por R$ 130.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-130-000-00-bellatorres-passo-de-torres-sc-1456766087
+
+- **Terreno à venda, 300 m² por R$ 380.000 - Centro - Passo de Torres/SC**
+  - 💰 R$ 380.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-380-000-centro-passo-de-torres-sc-1456763205
+
+- **Terreno Frente Mar á 90m da Praia..**
+  - 💰 R$ 180.000 | 📐 377 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-a-90m-da-praia-1456733313
+
+- **Terreno à venda, 360 m² por R$ 95.000 - Caravelle - Passo de Torres/SC**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-95-000-caravelle-passo-de-torres-sc-1456375122
+
+- **Terreno à venda, 203 m² por R$ 97.000 - Jardim América - Passo de Torr**
+  - 💰 R$ 97.000 | 📐 203 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-203-m-por-r-97-000-jardim-america-passo-de-torres-sc-1456368991
+
+- **Terreno à venda, 300 m² por R$ 120.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-120-000-00-rota-do-sol-passo-de-torres-sc-1456362461
+
+- **Terreno à venda, 375 m² por R$ 280.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 280.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-280-000-00-bellatorres-passo-de-torres-sc-1456362467
+
+- **Terreno à venda, 300 m² por R$ 130.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-130-000-00-rota-do-sol-passo-de-torres-sc-1456360834
+
+- **Área à venda, 6615 m² por R$ 900.000,00 - Zona Rural - Passo de Torres**
+  - 💰 R$ 900.000 | 📐 6615 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-a-venda-6615-m-por-r-900-000-00-zona-rural-passo-de-torres-sc-1456360791
+
+- **Terreno à venda, 300 m² por R$ 180.000,00 - Novo Passo - Passo de Torr**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-180-000-00-novo-passo-passo-de-torres-sc-1456359274
+
+- **Terreno à venda, 207 m² por R$ 95.000 - Jardim América - Passo de Torr**
+  - 💰 R$ 95.000 | 📐 207 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-207-m-por-r-95-000-jardim-america-passo-de-torres-sc-1456359278
+
+- **Terreno à venda, 205 m² por R$ 110.000,00 - Jardim América - Passo de **
+  - 💰 R$ 110.000 | 📐 205 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-205-m-por-r-110-000-00-jardim-america-passo-de-torres-sc-1456359256
+
+- **Terreno à venda, 300 m² por R$ 125.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-125-000-00-rota-do-sol-passo-de-torres-sc-1456359267
+
+- **Terreno à venda, 600 m² por R$ 720.000 - Centro - Passo de Torres/SC**
+  - 💰 R$ 720.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-720-000-centro-passo-de-torres-sc-1456359285
+
+- **Terreno à venda, 300 m² por R$ 125.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-125-000-00-tapera-passo-de-torres-sc-1456359251
+
+- **Terreno à venda, 300 m² por R$ 135.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-135-000-00-bellatorres-passo-de-torres-sc-1456359231
+
+- **Terreno à venda, 300 m² por R$ 105.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-105-000-00-tapera-passo-de-torres-sc-1456359209
+
+- **Terreno à venda, 200 m² por R$ 98.000,00 - Jardim América - Passo de T**
+  - 💰 R$ 98.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-200-m-por-r-98-000-00-jardim-america-passo-de-torres-sc-1456359048
+
+- **Terreno a 150m do mar Praia Capão do Cravo..**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-150m-do-mar-praia-capao-do-cravo-1455856840
+
+- **Terreno em Bairro Planejado Flórida Parque à venda apartir de R$ 130.0**
+  - 💰 R$ 130.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-bairro-planejado-florida-parque-a-venda-apartir-de-r-130-000-231-passo-de-1454508660
+
+- **Terreno na Avenida Mãe Dágua na Bellatorres**
+  - 💰 R$ 160.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-avenida-mae-dagua-na-bellatorres-1453357527
+
+- **Terreno à venda, 360 m² por R$ 149.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 149.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-149-000-00-bellatorres-passo-de-torres-sc-1453203991
+
+- **Terreno Praia Azul**
+  - 💰 R$ 70.000 | 📐 350 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-azul-1452871751
+
+- **Terreno de esquina Praia Azul**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-praia-azul-1452871717
+
+- **Terreno parcelado bairro planejado**
+  - 💰 R$ 115.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-bairro-planejado-1452871563
+
+- **Terreno de esquina bairro Xangri-lá dos Mares em Passo de Torres/SC**
+  - 💰 R$ 77.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-bairro-xangri-la-dos-mares-em-passo-de-torres-sc-1452742796
+
+- **Terreno à venda, 210 m² por R$ 115.000 - Jardim America - Passo de Tor**
+  - 💰 R$ 115.000 | 📐 210 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-210-m-por-r-115-000-jardim-america-passo-de-torres-sc-1451511870
+
+- **Terreno à venda, 449 m² por R$ 366.000 - Vilas do Mar - Passo de Torre**
+  - 💰 R$ 366.000 | 📐 449 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-449-m-por-r-366-000-vilas-do-mar-passo-de-torres-sc-1451219331
+
+- **Terreno à venda, 300 m² por R$ 90.000,00 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-90-000-00-tapera-passo-de-torres-sc-1450899246
+
+- **Terreno a 40m da Lagoa da Tapera  Passo de Torres/SC**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-40m-da-lagoa-da-tapera-passo-de-torres-sc-1450342716
+
+- **Terreno à venda, 300 m² por R$ 79.000,00 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 79.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-79-000-00-tapera-passo-de-torres-sc-1449483916
+
+- **Terreno à venda, 300 m² por R$ 85.000,00 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-85-000-00-tapera-passo-de-torres-sc-1449483006
+
+- **Bosque das Figueiras no Passo de Torres SC**
+  - 💰 R$ 270.000 | 📐 420 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/bosque-das-figueiras-no-passo-de-torres-sc-1449120498
+
+- **Terreno no Bosque das Figueiras no Passo de Torres SC**
+  - 💰 R$ 230.000 | 📐 343 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bosque-das-figueiras-no-passo-de-torres-sc-1449120476
+
+- **Sítio na beira do rio Passo de Torres SC**
+  - 💰 R$ 1.890.000 | 📐 450 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-na-beira-do-rio-passo-de-torres-sc-1411280589
+
+- **Terreno em loteamenoto no Passo de Torres/SC**
+  - 💰 R$ 157.538 | 📐 223 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamenoto-no-passo-de-torres-sc-1448814918
+
+- **Terreno em loteamenoto no Passo de Torres/SC**
+  - 💰 R$ 228.359 | 📐 309 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamenoto-no-passo-de-torres-sc-1448797769
+
+- **Terreno em loteamento a venda no Passo de Torres/SC**
+  - 💰 R$ 245.012 | 📐 440 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-passo-de-torres-sc-1448797578
+
+- **Terreno à venda Centro Passo de Torres/SC**
+  - 💰 R$ 236.116 | 📐 419 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-centro-passo-de-torres-sc-1448795977
+
+- **Terreno a venda em loteamento no Passo de Torres/SC**
+  - 💰 R$ 150.065 | 📐 209 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-loteamento-no-passo-de-torres-sc-1448795962
+
+- **Terreno em loteamento a venda no Passo de Torres/SC**
+  - 💰 R$ 197.174 | 📐 429 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-passo-de-torres-sc-1448795697
+
+- **Terreno em loteamento a venda no Passo de Torres/SC**
+  - 💰 R$ 464.671 | 📐 635 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-passo-de-torres-sc-1448795672
+
+- **Terrenos parcelados á 350m do mar**
+  - 💰 R$ 109.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-a-350m-do-mar-1448690935
+
+- **Lote no Jardim América SC**
+  - 💰 R$ 135.000 | 📐 207 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-jardim-america-sc-1440905079
+
+- **Chácara com 6 dormitórios à venda, 350000 m² por R$ 2.200.000 - Zona R**
+  - 💰 R$ 2.200.000 | 📐 150 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-6-dormitorios-a-venda-350000-m-por-r-2-200-000-zona-rural-praia-grande-1447637098
+
+- **Terreno à venda, 985 m² por R$ 430.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 430.000 | 📐 986 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-985-m-por-r-430-000-00-bellatorres-passo-de-torres-sc-1447635481
+
+- **Terreno no Jardim América no Passo de Torres RS**
+  - 💰 R$ 245.000 | 📐 296 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-america-no-passo-de-torres-rs-1447583200
+
+- **Terreno no Jardim América no Passo de Torres SC**
+  - 💰 R$ 175.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-america-no-passo-de-torres-sc-1447030861
+
+- **Lote no Jardim América no Passo de Torres SC**
+  - 💰 R$ 206.000 | 📐 318 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-jardim-america-no-passo-de-torres-sc-1447030113
+
+- **Terreno perto do mar na Praia Caravelle SC**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-perto-do-mar-na-praia-caravelle-sc-1447025973
+
+- **Terreno à venda, 450 m² por R$ 300.000,00 - Vilas do Mar - Passo de To**
+  - 💰 R$ 300.000 | 📐 450 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-300-000-00-vilas-do-mar-passo-de-torres-sc-1445933080
+
+- **Excelentes terrenos na Bellatorres**
+  - 💰 R$ 420.000 | 📐 957 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelentes-terrenos-na-bellatorres-1445652379
+
+- **Terreno à venda, 300 m² por R$ 70.000,00 - Sumaré II - Passo de Torres**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-70-000-00-sumare-ii-passo-de-torres-sc-1445069802
+
+- **Terreno à venda, 300 m² por R$ 79.000,00 - Sumaré II - Passo de Torres**
+  - 💰 R$ 79.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-79-000-00-sumare-ii-passo-de-torres-sc-1445056225
+
+- **Terreno à venda, 300 m² por R$ 79.000,00 - Sumaré II - Passo de Torres**
+  - 💰 R$ 79.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-79-000-00-sumare-ii-passo-de-torres-sc-1445055933
+
+- **Terreno com 391 m² por R$ 180.000,00 - Novo Passo - Passo de Torres**
+  - 💰 R$ 220.000 | 📐 391 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-391-m-por-r-180-000-00-novo-passo-passo-de-torres-1443143511
+
+- **Terreno à venda em Passo de Torres - SC - 300 m², próximo à praia**
+  - 💰 R$ 218.900 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-passo-de-torres-sc-300-m-proximo-a-praia-1442216577
+
+- **Terreno à venda, 300 m² por R$ 95.000 - Porto do Sol - Passo de Torres**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-95-000-porto-do-sol-passo-de-torres-sc-1442199897
+
+- **Terreno à venda, 325 m² por R$ 220.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 220.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-220-000-00-bellatorres-passo-de-torres-sc-1442194268
+
+- **TERRENOS NA PRAIA BELLA TORRES**
+  - 💰 R$ 235.000 | 📐 348 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-na-praia-bella-torres-1441906913
+
+- **TERRENOS EM BELLA TORRES**
+  - 💰 R$ 145.000 | 📐 348 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-bella-torres-1441551278
+
+- **Terrenos - Passo de Torres**
+  - 💰 R$ 336.851 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-passo-de-torres-1440848025
+
+- **TERRENO RESIDENCIAL À BEIRA MAR LOTEAMENTO PORTO FINO**
+  - 💰 R$ 370.941 | 📐 340 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-beira-mar-loteamento-porto-fino-1440520840
+
+- **T1122 - Excelente terreno em Passo de Torres**
+  - 💰 R$ 213.000 | 📐 219 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/t1122-excelente-terreno-em-passo-de-torres-1439682482
+
+- **Terreno à venda, 300 m² por R$ 195.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 195.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-195-000-bellatorres-passo-de-torres-sc-1438777493
+
+- **Terreno Frente Norte a 600m do mar na Bellatorres..**
+  - 💰 R$ 180.000 | 📐 420 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-norte-a-600m-do-mar-na-bellatorres-1438451656
+
+- **Terreno à venda, 417 m² por R$ 330.000,00 - Passo De Torres - Passo de**
+  - 💰 R$ 330.000 | 📐 417 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-417-m-por-r-330-000-00-passo-de-torres-passo-de-torres-sc-1438349551
+
+- **Terrenos praia Xangri-lá dos Mares a 780m da Beira Mar**
+  - 💰 R$ 72.900 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-praia-xangri-la-dos-mares-a-780m-da-beira-mar-1438332410
+
+- **Terreno à venda, 600 m² por R$ 350.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 350.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-350-000-00-bellatorres-passo-de-torres-sc-1438047356
+
+- **Terreno à venda, 375 m² por R$ 250.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 250.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-250-000-00-bellatorres-passo-de-torres-sc-1438046730
+
+- **Imóvel para venda tem 340 metros quadrados em Centro - Passo de Torres**
+  - 💰 R$ 385.000 | 📐 340 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-340-metros-quadrados-em-centro-passo-de-torres-sc-1437816868
+
+- **Lote no Riviera Mampituba no Passo de Torres SC**
+  - 💰 R$ 380.853 | 📐 340 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-riviera-mampituba-no-passo-de-torres-sc-1437657290
+
+- **Oportunidade de investimento na cidade que mais cresce no litoral de S**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-na-cidade-que-mais-cresce-no-litoral-de-santa-catarina-praia-1437458063
+
+- **Terreno com frente para Avenida Interpraias na Praia Xangri-lá dos Mar**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-frente-para-avenida-interpraias-na-praia-xangri-la-dos-mares-passo-de-torres-1437456349
+
+- **Terreno à venda, 300 m² por R$ 145.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-145-000-bellatorres-passo-de-torres-sc-1436367129
+
+- **Terreno pé na Areia em Miratorres**
+  - 💰 R$ 310.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pe-na-areia-em-miratorres-1436050305
+
+- **Jardim América - Terreno Quadra C5 Lote 25 - Frente Leste**
+  - 💰 R$ 105.000 | 📐 202 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jardim-america-terreno-quadra-c5-lote-25-frente-leste-1434904383
+
+- **Condomínio / resort a venda em Passo de Torres - Santa Catarina**
+  - 💰 R$ 336.851 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-resort-a-venda-em-passo-de-torres-santa-catarina-1434888985
+
+- **Terreno à venda, 300 m² por R$ 145.000,00 - Rosa do Mar - Passo de Tor**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-145-000-00-rosa-do-mar-passo-de-torres-sc-1434681542
+
+- **Terreno a 300m da Praia**
+  - 💰 R$ 89.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-300m-da-praia-1434098365
+
+- **Terreno à venda, 300 m² por R$ 130.000 - Rota do Sol - Passo de Torres**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-130-000-rota-do-sol-passo-de-torres-sc-1433349955
+
+- **Terreno à venda, 375 m² por R$ 300.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 300.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-300-000-00-bellatorres-passo-de-torres-sc-1433341721
+
+- **Terreno à venda, 300 m² por R$ 130.000 - Rota do Sol - Passo de Torres**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-130-000-rota-do-sol-passo-de-torres-sc-1433340560
+
+- **Terreno à venda, 300 m² por R$ 150.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-150-000-bellatorres-passo-de-torres-sc-1433340437
+
+- **Terreno à venda, 420 m² por R$ 175.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 175.000 | 📐 420 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-420-m-por-r-175-000-bellatorres-passo-de-torres-sc-1433340426
+
+- **Terreno à venda, 1462 m² por R$ 380.000,00 - Curralinhos - Passo de To**
+  - 💰 R$ 380.000 | 📐 1463 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1462-m-por-r-380-000-00-curralinhos-passo-de-torres-sc-1433229385
+
+- **Terreno à venda, 600 m² por R$ 330.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 330.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-330-000-bellatorres-passo-de-torres-sc-1432482096
+
+- **Terreno a 550 metros do mar Praia Caravelle pronto para construir**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-550-metros-do-mar-praia-caravelle-pronto-para-construir-1432182000
+
+- **Terreno pronto para construir na Bella Torres**
+  - 💰 R$ 170.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-na-bella-torres-1432180928
+
+- **Oportunidade de esquina no Jardim América**
+  - 💰 R$ 160.000 | 📐 349 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-esquina-no-jardim-america-1432180869
+
+- **2 Terrenos juntos a 200m do mar Praia Caravelle**
+  - 💰 R$ 250.000 | 📐 590 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-juntos-a-200m-do-mar-praia-caravelle-1432180862
+
+- **Terreno pronto para construir próximo ao Mar**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-proximo-ao-mar-1432180743
+
+- **Terreno pronto para construir na praia Miratorres**
+  - 💰 R$ 140.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-na-praia-miratorres-1432180742
+
+- **Terreno parcelado direto com a Loteadora em Passo de Torres**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-direto-com-a-loteadora-em-passo-de-torres-1430901823
+
+- **Terreno na Praia da Tapera Passo de Torres**
+  - 💰 R$ 82.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-da-tapera-passo-de-torres-1430628502
+
+- **Vendo 02 Terrenos na Av. Interpraias**
+  - 💰 R$ 299.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-02-terrenos-na-av-interpraias-1430334662
+
+- **Terreno frente Av Interpraias Miratorres**
+  - 💰 R$ 210.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-av-interpraias-miratorres-1429746568
+
+- **Terreno à venda, 300 m² por R$ 75.000,00 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-75-000-00-tapera-passo-de-torres-sc-1429277617
+
+- **Terreno à venda, 300 m² por R$ 89.000,00 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 89.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-89-000-00-tapera-passo-de-torres-sc-1429277305
+
+- **Terreno à venda, 300 m² por R$ 120.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-120-000-00-tapera-passo-de-torres-sc-1429277040
+
+- **Terreno à venda, 300 m² por R$ 78.000 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 78.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-78-000-tapera-passo-de-torres-sc-1429277045
+
+- **Terreno na Bella Torres SC**
+  - 💰 R$ 250.000 | 📐 390 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-bella-torres-sc-1429254387
+
+- **Terreno Frente Sul Praia Capão do Cravo..**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-sul-praia-capao-do-cravo-1428748889
+
+- **Terreno à venda, 300 m² por R$ 110.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-110-000-00-tapera-passo-de-torres-sc-1428163860
+
+- **Terreno 12x30 Praia Caravelle**
+  - 💰 R$ 99.500 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-12x30-praia-caravelle-1428138721
+
+- **Terreno grande na Praia Miratorres SC**
+  - 💰 R$ 200.000 | 📐 720 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-grande-na-praia-miratorres-sc-1428118189
+
+- **Loteamento Jardim América Passo de Torres SC**
+  - 💰 R$ 119.000 | 📐 202 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-jardim-america-passo-de-torres-sc-1428116030
+
+- **Terreno no Jardim América Passo de Torres SC**
+  - 💰 R$ 129.000 | 📐 213 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-america-passo-de-torres-sc-1428115911
+
+- **Terreno à venda, 300 m² por R$ 99.000,00 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-99-000-00-tapera-passo-de-torres-sc-1427178084
+
+- **Terreno no Jardim America PARCELADO**
+  - 💰 R$ 120.000 | 📐 207 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-america-parcelado-1426888535
+
+- **Terreno à venda, 300 m² por R$ 70.000 - Xangrilá dos Mares - Passo de **
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-70-000-xangrila-dos-mares-passo-de-torres-sc-1426000475
+
+- **Terrenos Parcelados direto com o Proprietario na PRAIA AZUL**
+  - 💰 R$ 92.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-direto-com-o-proprietario-na-praia-azul-1425991832
+
+- **Dois terrenos parcelado direto com proprietário Praia Azul..**
+  - 💰 R$ 82.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-parcelado-direto-com-proprietario-praia-azul-1425983265
+
+- **Terrenos Parcelados direto com proprietário na Praia Azul..**
+  - 💰 R$ 82.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-direto-com-proprietario-na-praia-azul-1425982869
+
+- **Residencial Planejado PORTOFINO**
+  - 💰 R$ 170.775 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-planejado-portofino-1424699437
+
+- **Terreno à venda, 360 m² por R$ 115.000 - Caravelle - Passo de Torres/S**
+  - 💰 R$ 115.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-115-000-caravelle-passo-de-torres-sc-1424052112
+
+- **Terreno no Loteamento Jardim America - Passo de Torres SC**
+  - 💰 R$ 99.000 | 📐 201 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-america-passo-de-torres-sc-1423359845
+
+- **Terreno abaixo do valor de mercado no Riviera Mampituba em Passo de To**
+  - 💰 R$ 430.000 | 📐 406 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-abaixo-do-valor-de-mercado-no-riviera-mampituba-em-passo-de-torres-sc-1423359626
+
+- **Terreno à venda, 300 m² por R$ 165.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-165-000-bellatorres-passo-de-torres-sc-1422774643
+
+- **Terreno à venda, 300 m² por R$ 80.000,00 - Sumaré II - Passo de Torres**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-80-000-00-sumare-ii-passo-de-torres-sc-1422771387
+
+- **Terreno à venda, 300 m² por R$ 90.000 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-90-000-tapera-passo-de-torres-sc-1422771299
+
+- **Terreno à venda, 325 m² por R$ 195.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 195.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-195-000-00-bellatorres-passo-de-torres-sc-1422771072
+
+- **Terreno à venda, 300 m² por R$ 80.000,00 - Sumaré II - Passo de Torres**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-80-000-00-sumare-ii-passo-de-torres-sc-1422770972
+
+- **Terreno à venda, 525 m² por R$ 330.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 330.000 | 📐 525 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-525-m-por-r-330-000-00-bellatorres-passo-de-torres-sc-1422770903
+
+- **Terreno Lago e Mar na Praia Azul**
+  - 💰 R$ 90.000 | 📐 350 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lago-e-mar-na-praia-azul-1422745029
+
+- **Terreno 219m2 Jardim America Financiado**
+  - 💰 R$ 150.000 | 📐 219 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-219m2-jardim-america-financiado-1422741779
+
+- **Terreno Lago e Mar**
+  - 💰 R$ 160.000 | 📐 390 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lago-e-mar-1422741760
+
+- **Terreno Pé na Areia**
+  - 💰 R$ 299.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pe-na-areia-1422741687
+
+- **Terreno rural 30 ha 100% aproveitavel . Frente para uma Lagoa e Fundos**
+  - 💰 R$ 3.300.000 | 📐 300000 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-30-ha-100-aproveitavel-frente-para-uma-lagoa-e-fundos-para-a-lagoa-sobrio-1422741613
+
+- **Terreno esquina 258m2 no Jardim America**
+  - 💰 R$ 135.000 | 📐 258 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-258m2-no-jardim-america-1422741539
+
+- **Terreno frente Av Interpraias Miratorres**
+  - 💰 R$ 175.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-av-interpraias-miratorres-1422741296
+
+- **Terreno Esquina Praia Azul parcelado**
+  - 💰 R$ 130.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-praia-azul-parcelado-1422741362
+
+- **Terreno praia do Caravelle Passo de Torres/SC**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-do-caravelle-passo-de-torres-sc-1422741375
+
+- **Terreno Esquina Praia Azul**
+  - 💰 R$ 150.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-praia-azul-1422741085
+
+- **Terreno Praia Miratorres parcelado**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-miratorres-parcelado-1422741098
+
+- **Terreno bairro Rosa do Mar a 200m do mar**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-rosa-do-mar-a-200m-do-mar-1422407501
+
+- **Terreno no bairro planejado Jardim América**
+  - 💰 R$ 119.900 | 📐 207 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-planejado-jardim-america-1422084243
+
+- **Terreno a 550 metros do mar Praia Caravelle..**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-550-metros-do-mar-praia-caravelle-1422084153
+
+- **Terreno Comercial ideal para Posto de Combustível na Rodovia Interprai**
+  - 💰 R$ 1.640.058 | 📐 1291 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-ideal-para-posto-de-combustivel-na-rodovia-interpraias-no-passo-de-torre-1422084152
+
+- **Terreno frente mar na Av. Interpraias..**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-na-av-interpraias-1422084075
+
+- **Terreno à venda no Bairro Xangri-lá dos Mares - Passo de Torres/SC**
+  - 💰 R$ 48.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-xangri-la-dos-mares-passo-de-torres-sc-1422084094
+
+- **Terreno Bairro Planejado**
+  - 💰 R$ 140.000 | 📐 290 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-planejado-1422084070
+
+- **Terreno à venda, 435 m² por R$ 195.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 195.000 | 📐 435 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-435-m-por-r-195-000-00-bellatorres-passo-de-torres-sc-1421041616
+
+- **Terreno à venda, 325 m² por R$ 180.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 180.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-180-000-bellatorres-passo-de-torres-sc-1421040911
+
+- **Terreno à venda, 325 m² por R$ 135.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 135.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-135-000-00-bellatorres-passo-de-torres-sc-1421040801
+
+- **Terreno à venda, 300 m² por R$ 165.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-165-000-00-rota-do-sol-passo-de-torres-sc-1418749403
+
+- **Terreno à venda, 300 m² por R$ 110.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-110-000-00-tapera-passo-de-torres-sc-1418438625
+
+- **Terreno à venda, 325 m² por R$ 250.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 250.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-250-000-00-bellatorres-passo-de-torres-sc-1417404667
+
+- **Terreno à venda, 300 m² por R$ 155.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-155-000-bellatorres-passo-de-torres-sc-1416835146
+
+- **Terreno à venda, 300 m² por R$ 145.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-145-000-00-tapera-passo-de-torres-sc-1416512531
+
+- **Terreno à venda, 325 m² por R$ 175.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 175.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-175-000-00-bellatorres-passo-de-torres-sc-1415276018
+
+- **Terreno à venda, 211 m² por R$ 165.000 - Jardim America - Passo de Tor**
+  - 💰 R$ 165.000 | 📐 212 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-211-m-por-r-165-000-jardim-america-passo-de-torres-sc-1415276010
+
+- **Terreno à venda, 300 m² por R$ 200.000 - Bosque das Figueiras - Passo **
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-200-000-bosque-das-figueiras-passo-de-torres-sc-1415274607
+
+- **Terreno na Bella Torres SC**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-bella-torres-sc-1415195264
+
+- **Terreno à venda, 200 m² por R$ 130.000 - Jardim America - Passo de Tor**
+  - 💰 R$ 130.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-200-m-por-r-130-000-jardim-america-passo-de-torres-sc-1413982939
+
+- **Terreno à venda, 274 m² por R$ 210.000 - Jardim America - Passo de Tor**
+  - 💰 R$ 210.000 | 📐 274 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-274-m-por-r-210-000-jardim-america-passo-de-torres-sc-1413982303
+
+- **Terreno à venda, 300 m² por R$ 168.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 168.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-168-000-00-bellatorres-passo-de-torres-sc-1413088639
+
+- **Terreno Jardim América - Quadra C1 Lote 24 - Frente Leste**
+  - 💰 R$ 130.000 | 📐 227 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jardim-america-quadra-c1-lote-24-frente-leste-1411617602
+
+- **Jardim América - Terreno Quadra C3 Lote 07 - Frente Oeste**
+  - 💰 R$ 115.000 | 📐 239 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jardim-america-terreno-quadra-c3-lote-07-frente-oeste-1411617407
+
+- **Terreno Jardim América - Quadra C1 Lote 06 - Frente Leste**
+  - 💰 R$ 165.000 | 📐 327 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jardim-america-quadra-c1-lote-06-frente-leste-1411617231
+
+- **Terreno à venda, 300 m² por R$ 145.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-145-000-00-rota-do-sol-passo-de-torres-sc-1411241530
+
+- **Terreno à venda, 291 m² por R$ 195.000,00 - Jardim America - Passo de **
+  - 💰 R$ 195.000 | 📐 292 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-291-m-por-r-195-000-00-jardim-america-passo-de-torres-sc-1411196049
+
+- **Terreno à venda, 300 m² por R$ 132.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 132.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-132-000-00-rota-do-sol-passo-de-torres-sc-1411194741
+
+- **Terreno no bairro Balneário Caravelle**
+  - 💰 R$ 122.186 | 📐 220 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-balneario-caravelle-1411193685
+
+- **Terreno à venda, 300 m² por R$ 200.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-200-000-bellatorres-passo-de-torres-sc-1411019013
+
+- **Terreno à venda, 375 m² por R$ 230.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 230.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-230-000-00-bellatorres-passo-de-torres-sc-1409468392
+
+- **Terreno à venda, 325 m² por R$ 169.000,00 - Rosa do Mar - Passo de Tor**
+  - 💰 R$ 169.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-169-000-00-rosa-do-mar-passo-de-torres-sc-1409438063
+
+- **Terreno à venda, 375 m² por R$ 275.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 275.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-275-000-00-bellatorres-passo-de-torres-sc-1409437332
+
+- **Terreno à venda, 300 m² por R$ 165.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-165-000-00-bellatorres-passo-de-torres-sc-1409436312
+
+- **Terreno à venda, 325 m² por R$ 145.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 145.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-145-000-00-bellatorres-passo-de-torres-sc-1409436304
+
+- **Terreno à venda, 360 m² por R$ 180.000,00 - Miratorres - Passo de Torr**
+  - 💰 R$ 180.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-180-000-00-miratorres-passo-de-torres-sc-1409436277
+
+- **Terreno à venda por R$ 110000.00, 300.00 m2 - TAPERA - PASSO DE TORRES**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-por-r-110000-00-300-00-m2-tapera-passo-de-torres-sc-1409101007
+
+- **Terreno à venda por R$ 220000.00, 600.00 m2 - TAPERA - PASSO DE TORRES**
+  - 💰 R$ 220.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-por-r-220000-00-600-00-m2-tapera-passo-de-torres-sc-1409099761
+
+- **Terreno à venda por R$ 110000.00, 300.00 m2 - TAPERA - PASSO DE TORRES**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-por-r-110000-00-300-00-m2-tapera-passo-de-torres-sc-1409094094
+
+- **Terreno à venda, 300 m² por R$ 180.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-180-000-00-bellatorres-passo-de-torres-sc-1407666376
+
+- **Terreno à venda, 360 m² por R$ 170.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 170.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-170-000-00-bellatorres-passo-de-torres-sc-1407666366
+
+- **Terreno à venda, 300 m² por R$ 140.000,00 - Capão Do Cravo - Passo de **
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-140-000-00-capao-do-cravo-passo-de-torres-sc-1407666364
+
+- **Terreno venda Passo de Torres SC escriturado**
+  - 💰 R$ 110.000 | 📐 216 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-passo-de-torres-sc-escriturado-1406563662
+
+- **Terreno à venda, 300 m² por R$ 110.000 - Xangrilá dos Mares - Passo de**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-110-000-xangrila-dos-mares-passo-de-torres-sc-1405879361
+
+- **Terreno à venda, 300 m² por R$ 105.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-105-000-00-bellatorres-passo-de-torres-sc-1404545478
+
+- **Terreno à venda, 300 m² por R$ 72.000,00 - Porto do Sol - Passo de Tor**
+  - 💰 R$ 72.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-72-000-00-porto-do-sol-passo-de-torres-sc-1403481092
+
+- **Terreno à venda no loteamento Riviera Mampituba no Passo de Torres/SC.**
+  - 💰 R$ 892.252 | 📐 480 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-riviera-mampituba-no-passo-de-torres-sc-1403108959
+
+- **Terreno em Condominio - Bairro Centro**
+  - 💰 R$ 337.963 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-bairro-centro-1400441162
+
+- **Terreno - Bairro Porto Fino**
+  - 💰 R$ 148.500 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-porto-fino-1400438150
+
+- **Terreno à venda, 300 m² por R$ 115.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-115-000-00-rota-do-sol-passo-de-torres-sc-1399258624
+
+- **Terreno à venda, 300 m² por R$ 120.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-120-000-00-tapera-passo-de-torres-sc-1395937490
+
+- **Terreno à venda, 300 m² por R$ 103.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 103.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-103-000-00-tapera-passo-de-torres-sc-1395573262
+
+- **Terreno à venda Curralinhos Passo de Torres/SC**
+  - 💰 R$ 110.000 | 📐 248 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-curralinhos-passo-de-torres-sc-1394144239
+
+- **TERRENO FRENTE OESTE - PORTOFINO RESIDENCIAL PLANEJADO (PASSO DE TORRE**
+  - 💰 R$ 226.909 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-oeste-portofino-residencial-planejado-passo-de-torres-sc-1393867989
+
+- **Terreno à venda, 300 m² por R$ 165.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-165-000-00-bellatorres-passo-de-torres-sc-1389871973
+
+- **Terreno à venda Loteamento Caravelle Passo de Torres/SC**
+  - 💰 R$ 337.963 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-caravelle-passo-de-torres-sc-1389348369
+
+- **Terreno à venda, 300 m² por R$ 193.000,00 - Residencial Portofino - Pa**
+  - 💰 R$ 193.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-193-000-00-residencial-portofino-passo-de-torres-sc-1388337002
+
+- **Terreno à venda, 300 m² por R$ 165.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-165-000-00-bellatorres-passo-de-torres-sc-1388049375
+
+- **Terreno à venda, 300 m² por R$ 220.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-220-000-00-bellatorres-passo-de-torres-sc-1387739451
+
+- **Terreno à venda, 300 m² por R$ 250.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-250-000-00-rota-do-sol-passo-de-torres-sc-1386679033
+
+- **Terreno à venda, 375 m² por R$ 280.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 280.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-280-000-bellatorres-passo-de-torres-sc-1386029781
+
+- **Terreno à venda, 300 m² por R$ 135.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-135-000-00-bellatorres-passo-de-torres-sc-1386029261
+
+- **Terreno a menos de 250 metros da praia**
+  - 💰 R$ 165.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-menos-de-250-metros-da-praia-1386027833
+
+- **Terreno à venda, 300 m² por R$ 105.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-105-000-00-tapera-passo-de-torres-sc-1386027827
+
+- **Terreno à venda, 300 m² por R$ 145.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-145-000-00-rota-do-sol-passo-de-torres-sc-1386027757
+
+- **Terreno à venda, 300 m² por R$ 110.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-110-000-00-tapera-passo-de-torres-sc-1386027760
+
+- **Terreno à venda, 300 m² por R$ 82.000,00 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 82.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-82-000-00-tapera-passo-de-torres-sc-1386027749
+
+- **Terreno à venda, 2311 m² por R$ 1.450.000,00 - Passo De Torres - Passo**
+  - 💰 R$ 1.450.000 | 📐 2311 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2311-m-por-r-1-450-000-00-passo-de-torres-passo-de-torres-sc-1386027751
+
+- **Terreno à venda, 375 m² por R$ 220.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 220.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-220-000-bellatorres-passo-de-torres-sc-1386027745
+
+- **Terreno à venda, 300 m² por R$ 115.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-115-000-00-tapera-passo-de-torres-sc-1386027738
+
+- **Terreno no jardim américa à venda, por R$ 100.000 - Jardim America - P**
+  - 💰 R$ 100.000 | 📐 202 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-america-a-venda-por-r-100-000-jardim-america-passo-de-torres-sc-1386027666
+
+- **Terreno à venda, 362 m² por R$ 120.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 120.000 | 📐 362 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-362-m-por-r-120-000-00-bellatorres-passo-de-torres-sc-1386027667
+
+- **Terreno à venda, 300 m² por R$ 80.000,00 - Xangrilá dos Mares - Passo **
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-80-000-00-xangrila-dos-mares-passo-de-torres-sc-1386027640
+
+- **Terreno à venda, 300 m² por R$ 89.000,00 - Porto do Sol - Passo de Tor**
+  - 💰 R$ 89.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-89-000-00-porto-do-sol-passo-de-torres-sc-1386027632
+
+- **Terreno à venda, 300 m² por R$ 116.762,94 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 116.763 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-116-762-94-rota-do-sol-passo-de-torres-sc-1386027626
+
+- **Terreno à venda, 300 m² por R$ 170.000,00 - Miratorres - Passo de Torr**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-170-000-00-miratorres-passo-de-torres-sc-1386027627
+
+- **Terreno à venda, 360 m² por R$ 175.000,00 - Miratorres - Passo de Torr**
+  - 💰 R$ 175.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-175-000-00-miratorres-passo-de-torres-sc-1386027613
+
+- **Terreno à venda, por R$ 125.000 (Ent+Parcelas) - Jardim America - Pass**
+  - 💰 R$ 125.000 | 📐 240 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-por-r-125-000-ent-parcelas-jardim-america-passo-de-torres-sc-1386027614
+
+- **Terreno à venda, 300 m² por R$ 100.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-100-000-00-rota-do-sol-passo-de-torres-sc-1386027615
+
+- **Terreno à venda, 300 m² por R$ 160.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-160-000-00-rota-do-sol-passo-de-torres-sc-1386027618
+
+- **Terreno à venda, 300 m² por R$ 75.000,00 - Sumaré II - Passo de Torres**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-75-000-00-sumare-ii-passo-de-torres-sc-1386027621
+
+- **Terreno à venda, 360 m² por R$ 120.000,00 - Miratorres - Passo de Torr**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-120-000-00-miratorres-passo-de-torres-sc-1385810250
+
+- **Terreno à venda, 360 m² por R$ 235.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 235.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-235-000-00-bellatorres-passo-de-torres-sc-1385810218
+
+- **Terreno à venda, 300 m² por R$ 175.000 - Miratorres - Passo de Torres/**
+  - 💰 R$ 175.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-175-000-miratorres-passo-de-torres-sc-1385810161
+
+- **Terreno à venda, 300 m² por R$ 80.000,00 - Porto do Sol - Passo de Tor**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-80-000-00-porto-do-sol-passo-de-torres-sc-1385810132
+
+- **Terreno à venda, 300 m² por R$ 212.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 212.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-212-000-bellatorres-passo-de-torres-sc-1385810089
+
+- **Terreno à venda, 213 m² por R$ 110.000,00 - Jardim America - Passo de **
+  - 💰 R$ 110.000 | 📐 213 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-213-m-por-r-110-000-00-jardim-america-passo-de-torres-sc-1385810050
+
+- **Terreno à venda, 300 m² por R$ 195.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 195.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-195-000-00-rota-do-sol-passo-de-torres-sc-1385810036
+
+- **Terreno à venda, 325 m² por R$ 341.000 - Riviera Mampituba - Passo de **
+  - 💰 R$ 341.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-341-000-riviera-mampituba-passo-de-torres-sc-1385810028
+
+- **Terreno à venda, 300 m² por R$ 129.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 129.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-129-000-00-rota-do-sol-passo-de-torres-sc-1385810012
+
+- **Terreno à venda, 360 m² por R$ 215.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 215.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-215-000-00-bellatorres-passo-de-torres-sc-1385810013
+
+- **Terreno à venda, 300 m² por R$ 135.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-135-000-00-bellatorres-passo-de-torres-sc-1385810015
+
+- **Terreno à venda, 360 m² por R$ 90.000,00 - Rota do Sol - Passo de Torr**
+  - 💰 R$ 90.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-90-000-00-rota-do-sol-passo-de-torres-sc-1385810022
+
+- **Terreno à venda, 300 m² por R$ 215.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 215.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-215-000-00-bellatorres-passo-de-torres-sc-1385810023
+
+- **Terreno à venda, 375 m² por R$ 180.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 180.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-180-000-00-bellatorres-passo-de-torres-sc-1385810006
+
+- **Terreno à venda, 216 m² por R$ 85.000,00 - Jardim America - Passo de T**
+  - 💰 R$ 85.000 | 📐 217 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-216-m-por-r-85-000-00-jardim-america-passo-de-torres-sc-1385810008
+
+- **Terreno à venda, 390 m² por R$ 165.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 165.000 | 📐 390 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-390-m-por-r-165-000-00-bellatorres-passo-de-torres-sc-1385809993
+
+- **Terreno à venda, 308 m² por R$ 169.000,00 - Rosa do Mar - Passo de Tor**
+  - 💰 R$ 169.000 | 📐 308 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-308-m-por-r-169-000-00-rosa-do-mar-passo-de-torres-sc-1385810002
+
+- **Terreno à venda, 375 m² por R$ 200.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 200.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-200-000-00-bellatorres-passo-de-torres-sc-1385809984
+
+- **Terreno à venda, 300 m² por R$ 100.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-100-000-00-tapera-passo-de-torres-sc-1385809898
+
+- **Terreno à venda, 450 m² por R$ 359.000,00 - RIVIERA MAMPITUBA - Passo **
+  - 💰 R$ 359.000 | 📐 450 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-359-000-00-riviera-mampituba-passo-de-torres-sc-1385809888
+
+- **Terreno à venda, 360 m² por R$ 105.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 105.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-105-000-00-rota-do-sol-passo-de-torres-sc-1385809860
+
+- **Terreno à venda, 600 m² por R$ 402.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 402.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-402-000-00-bellatorres-passo-de-torres-sc-1385809864
+
+- **Terreno à venda, 300 m² por R$ 210.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 210.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-210-000-00-bellatorres-passo-de-torres-sc-1385809849
+
+- **Terreno à venda, 360 m² por R$ 98.000,00 - Miratorres - Passo de Torre**
+  - 💰 R$ 98.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-98-000-00-miratorres-passo-de-torres-sc-1385809854
+
+- **Terreno à venda, 300 m² por R$ 200.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-200-000-00-bellatorres-passo-de-torres-sc-1385809835
+
+- **Terreno à venda, 375 m² por R$ 275.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 275.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-275-000-00-bellatorres-passo-de-torres-sc-1385809828
+
+- **Terreno à venda, 300 m² por R$ 165.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-165-000-bellatorres-passo-de-torres-sc-1385809790
+
+- **Terreno à venda, 365 m² por R$ 165.000,00 - Jardim America - Passo de **
+  - 💰 R$ 165.000 | 📐 365 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-365-m-por-r-165-000-00-jardim-america-passo-de-torres-sc-1385809754
+
+- **Terreno à venda, 300 m² por R$ 175.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 175.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-175-000-00-bellatorres-passo-de-torres-sc-1385809762
+
+- **Terreno à venda, 360 m² por R$ 150.000,00 - Miratorres - Passo de Torr**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-150-000-00-miratorres-passo-de-torres-sc-1385809719
+
+- **Terreno à venda, 325 m² por R$ 165.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 165.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-165-000-00-bellatorres-passo-de-torres-sc-1385809714
+
+- **Terreno à venda, 375 m² por R$ 250.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 250.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-250-000-00-bellatorres-passo-de-torres-sc-1385809702
+
+- **Terreno à venda, 300 m² por R$ 120.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-120-000-00-tapera-passo-de-torres-sc-1385809695
+
+- **Terreno à venda, 300 m² por R$ 105.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-105-000-00-bellatorres-passo-de-torres-sc-1385809699
+
+- **Terreno à venda, 420 m² por R$ 210.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 210.000 | 📐 420 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-420-m-por-r-210-000-00-bellatorres-passo-de-torres-sc-1385809700
+
+- **Terreno à venda, 348 m² por R$ 150.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 150.000 | 📐 348 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-348-m-por-r-150-000-00-bellatorres-passo-de-torres-sc-1385809690
+
+- **Terreno à venda, 360 m² por R$ 165.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 165.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-165-000-00-rota-do-sol-passo-de-torres-sc-1385809666
+
+- **Terreno à venda, 360 m² por R$ 170.000,00 - Miratorres - Passo de Torr**
+  - 💰 R$ 170.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-170-000-00-miratorres-passo-de-torres-sc-1385809667
+
+- **Terreno à venda, 844 m² por R$ 390.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 390.000 | 📐 844 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-844-m-por-r-390-000-00-bellatorres-passo-de-torres-sc-1385809670
+
+- **Terreno à venda, 375 m² por R$ 220.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 220.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-220-000-00-bellatorres-passo-de-torres-sc-1385809674
+
+- **Terreno à venda, 375 m² por R$ 265.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 265.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-265-000-00-bellatorres-passo-de-torres-sc-1385809616
+
+- **Terreno à venda, 300 m² por R$ 130.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-130-000-00-rota-do-sol-passo-de-torres-sc-1385809603
+
+- **Terreno à venda, 360 m² por R$ 110.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-110-000-00-rota-do-sol-passo-de-torres-sc-1385809605
+
+- **Terreno à venda, 300 m² por R$ 120.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-120-000-00-bellatorres-passo-de-torres-sc-1385809606
+
+- **Terreno à venda, 297 m² por R$ 115.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 115.000 | 📐 297 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-297-m-por-r-115-000-bellatorres-passo-de-torres-sc-1385809598
+
+- **Terreno à venda, 300 m² por R$ 160.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-160-000-00-bellatorres-passo-de-torres-sc-1385809599
+
+- **Terreno à venda, 308 m² por R$ 195.000,00 - Jardim America - Passo de **
+  - 💰 R$ 195.000 | 📐 308 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-308-m-por-r-195-000-00-jardim-america-passo-de-torres-sc-1385809581
+
+- **Dois Terrenos à venda, 600 m² por R$ 200.000 - Tapera - Passo de Torre**
+  - 💰 R$ 200.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-a-venda-600-m-por-r-200-000-tapera-passo-de-torres-sc-1385809582
+
+- **Terreno à venda, 300 m² por R$ 125.000,00 - Praia Azul - Passo de Torr**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-125-000-00-praia-azul-passo-de-torres-sc-1385809569
+
+- **Terreno à venda, 228 m² por R$ 130.000 - Jardim America - Passo de Tor**
+  - 💰 R$ 130.000 | 📐 228 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-228-m-por-r-130-000-jardim-america-passo-de-torres-sc-1385809551
+
+- **Terreno à venda, 212 m² por R$ 115.000,00 - Jardim America - Passo de **
+  - 💰 R$ 115.000 | 📐 212 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-212-m-por-r-115-000-00-jardim-america-passo-de-torres-sc-1385809554
+
+- **Terreno à venda, 300 m² por R$ 275.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 275.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-275-000-00-bellatorres-passo-de-torres-sc-1385809565
+
+- **Terreno à venda, 600 m² por R$ 440.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 440.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-440-000-00-bellatorres-passo-de-torres-sc-1385809533
+
+- **Terreno à venda, 300 m² por R$ 145.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-145-000-00-bellatorres-passo-de-torres-sc-1385809539
+
+- **Terreno à venda, 348 m² por R$ 145.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 145.000 | 📐 348 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-348-m-por-r-145-000-00-bellatorres-passo-de-torres-sc-1385809548
+
+- **Terreno à venda, 300 m² por R$ 90.000,00 - Porto do Sol - Passo de Tor**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-90-000-00-porto-do-sol-passo-de-torres-sc-1385809520
+
+- **CONDADO DE ORANGE**
+  - 💰 R$ 205.845 | 📐 292 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condado-de-orange-1374732452
+
+- **BOSQUE DAS FIGUEIRAS**
+  - 💰 R$ 368.732 | 📐 486 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/bosque-das-figueiras-1374730626
+
+- **Terreno no Passo de Torres - Santa Catarina, Loteamento Jardim América**
+  - 💰 R$ 201.400 | 📐 319 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-passo-de-torres-santa-catarina-loteamento-jardim-america-com-318-56m-1364429978
+
+- **Terreno no Passo de Torres - Santa Catarina, Loteamento Jardim América**
+  - 💰 R$ 169.600 | 📐 326 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-passo-de-torres-santa-catarina-loteamento-jardim-america-com-325-90m-1362602040
+
+- **Terreno venda Bosque das Figueiras Passo de Torres**
+  - 💰 R$ 216.000 | 📐 337 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-bosque-das-figueiras-passo-de-torres-1354878158
+
+- **Terreno venda Condado de Orange Passo de Torres**
+  - 💰 R$ 110.000 | 📐 222 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-condado-de-orange-passo-de-torres-1353909004
+
+- **Terreno venda Jardim América Passo de Torres.**
+  - 💰 R$ 125.000 | 📐 208 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-jardim-america-passo-de-torres-1350835829
+
+- **Terreno a venda Jardim América Passo de Torres**
+  - 💰 R$ 198.000 | 📐 220 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-jardim-america-passo-de-torres-1302827591
+
+- **Venda de Terreno em Passo de Torres-SC, bairro Jardim América**
+  - 💰 R$ 126.590 | 📐 282 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-terreno-em-passo-de-torres-sc-bairro-jardim-america-1298580319
+
+- **Lote Condado de Orange venda Passo de Torres**
+  - 💰 R$ 130.000 | 📐 217 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-condado-de-orange-venda-passo-de-torres-1250908738
+
+- **Lote em Passo de Torres, Mar, Paz e Valorização**
+  - 💰 R$ 140.000 | 📐 222 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-passo-de-torres-mar-paz-e-valorizacao-1247784187
+
+- **Terreno venda Passo de Torres abaixo preço**
+  - 💰 R$ 99.000 | 📐 207 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-passo-de-torres-abaixo-preco-1234009168
+
+- **Venda terreno esquina Jardim América**
+  - 💰 R$ 159.900 | 📐 258 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-esquina-jardim-america-1233715618
+
+- **Venda de Terreno em Passo de Torres-SC, bairro Praia Caravelle**
+  - 💰 R$ 164.456 | 📐 287 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-terreno-em-passo-de-torres-sc-bairro-praia-caravelle-1215629464
+
+- **Loteamento Jardim América**
+  - 💰 R$ 120.288 | 📐 276 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-jardim-america-983264236
+
+- **Terreno Venda Passo de Torres Barbada**
+  - 💰 R$ 150.000 | 📐 220 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-passo-de-torres-barbada-972023149
+
+- **Terreno à venda Passo de Torres Jardim América**
+  - 💰 R$ 135.000 | 📐 236 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-passo-de-torres-jardim-america-1062143154
+
+- **Terreno Passo de Torres Passo de Torres**
+  - 💰 R$ 390.000 | 📐 528 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-passo-de-torres-passo-de-torres-1106066097
+
+- **Terreno a 100 metros da av. Inter Praias, próximo da área central**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-100-metros-da-av-inter-praias-proximo-da-area-central-1477452611
+
+- **Terreno de esquina no areias claras**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-areias-claras-1477452613
+
+- **Terreno praia Fernão Capelo - Balneário Gaivota**
+  - 💰 R$ 85.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-fernao-capelo-balneario-gaivota-1455916367
+
+- **Dois Terrenos Juntos Primeira Quadra do Mar**
+  - 💰 R$ 640.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-juntos-primeira-quadra-do-mar-1477154292
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-1477128559
+
+- **Terreno Frente Para Avenida 15 de Novembro**
+  - 💰 R$ 103.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-para-avenida-15-de-novembro-1476958729
+
+- **Terreno em Ótima Localização  Bairro Areias Claras**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-otima-localizacao-bairro-areias-claras-1476860550
+
+- **Vendo Terreno em Gaivotas 3 quadras do mar**
+  - 💰 R$ 159.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-gaivotas-3-quadras-do-mar-1476538191
+
+- **TERRENO ESQUINA 350 METROS O MAR**
+  - 💰 R$ 380.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-350-metros-o-mar-1476530161
+
+- **TERRENO NA AVENIDA PRINCIPAL**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-avenida-principal-1476530160
+
+- **Seu terreno próximo do centro e do MAR, em Balneário Gaivota/SC**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-terreno-proximo-do-centro-e-do-mar-em-balneario-gaivota-sc-1476530164
+
+- **Terreno Village Dunas I - 250m do mar**
+  - 💰 R$ 710.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-village-dunas-i-250m-do-mar-1476530200
+
+- **Loteamento Caminho da Lagoa**
+  - 💰 R$ 1.000.000 | 📐 1 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-caminho-da-lagoa-1476530201
+
+- **Dois terrenos juntos proximo a Interpraias na Sumaré**
+  - 💰 R$ 100.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-juntos-proximo-a-interpraias-na-sumare-1476530187
+
+- **TERRENO PRONTO PARA CONSTRUIR NA SUMARÉ**
+  - 💰 R$ 62.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-na-sumare-1476530165
+
+- **TERRENO PARA INVESTIMENTO PROXIMO AVENIDA INTERPRAIAS**
+  - 💰 R$ 47.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-proximo-avenida-interpraias-1476530143
+
+- **RARIDADE! Dois Terrenos Beira-Mar à Venda na Praia Sumaré  Balneário G**
+  - 💰 R$ 250.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/raridade-dois-terrenos-beira-mar-a-venda-na-praia-sumare-balneario-gaivota-sc-1476530123
+
+- **Terreno à Venda  Village Dunas, Frente Sul, com Água e Moradores Fixos**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-village-dunas-frente-sul-com-agua-e-moradores-fixos-1476530139
+
+- **A apenas 2 minutos da praia! Oportunidade no Bairro Janaína!**
+  - 💰 R$ 115.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/a-apenas-2-minutos-da-praia-oportunidade-no-bairro-janaina-1476530022
+
+- **TERRENO PRONTO PARA CONSTRUIR PROXIMO A INTERPRAIAS**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-proximo-a-interpraias-1476529987
+
+- **Vendo Terreno**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1476425060
+
+- **Terreno para Venda em Balneário Gaivota, Balneário das Furnas**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-balneario-das-furnas-1475893270
+
+- **Terreno no bairro Jardim Ultramar**
+  - 💰 R$ 215.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-jardim-ultramar-1475825061
+
+- **Terreno Praia Jardim Ultramar I 650m da Beira Mar | Próximo 5ª Avenida**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-jardim-ultramar-i-650m-da-beira-mar-proximo-5-avenida-1475823716
+
+- **Terreno de Esquina à Venda  Lagoa de Fora**
+  - 💰 R$ 150.000 | 📐 1 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-lagoa-de-fora-1475823535
+
+- **Terreno no Bairro Jardim Ultramar**
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-jardim-ultramar-1475823500
+
+- **Terreno - ESQUINA PERFEITA.**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-perfeita-1475602511
+
+- **TERRENO ESCRITURADO BEIRA MAR EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 215.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-beira-mar-em-balneario-gaivota-1475565240
+
+- **Terreno Village Dunas I, Distância da Beira Mar 730m**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-village-dunas-i-distancia-da-beira-mar-730m-1475271601
+
+- **Terreno Areias Claras**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-claras-1474960341
+
+- **BELLAGO LAKE HOME**
+  - 💰 R$ 585.514 | 📐 532 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/bellago-lake-home-1474960168
+
+- **Terreno Praia Areias Claras - Esquina - 100m da Beira Mar**
+  - 💰 R$ 225.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-areias-claras-esquina-100m-da-beira-mar-1474959633
+
+- **Oportunidade Exclusiva: Terreno de 300m² em Localização Estratégica**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-exclusiva-terreno-de-300m-em-localizacao-estrategica-1474742881
+
+- **Terreno Misto com 304,50m² de área construída - Lagoa de Fora, Sombrio**
+  - 💰 R$ 1.844.825 | 📐 304 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-misto-com-304-50m-de-area-construida-lagoa-de-fora-sombrio-1322065068
+
+- **Oportunidade Imperdível na Praia Nova Torres - Sombrio/SC!**
+  - 💰 R$ 80.000 | 📐 570 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-imperdivel-na-praia-nova-torres-sombrio-sc-1470984907
+
+- **Terreno á venda com 330m² no bairro Brilhamares em Balneário Gaivota /**
+  - 💰 R$ 130.000 | 📐 330 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-330m-no-bairro-brilhamares-em-balneario-gaivota-sc-1474031573
+
+- **Terreno na praia lagoinha sul**
+  - 💰 R$ 89.000 | 📐 324 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-lagoinha-sul-1473768235
+
+- **Oportunidade Única - Terrenos à Venda no Village Dunas!**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terrenos-a-venda-no-village-dunas-1473334065
+
+- ***COM DOCUMENTAÇÃO* Terreno de 357m² na Lagoa de Fora**
+  - 💰 R$ 150.000 | 📐 357 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/com-documentacao-terreno-de-357m-na-lagoa-de-fora-1473035305
+
+- **Terreno á venda com 312.5m² no bairro Areias Claras em Balneário Gaivo**
+  - 💰 R$ 135.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-312-5m-no-bairro-areias-claras-em-balneario-gaivota-sc-1472505185
+
+- **Terreno á venda com 300m² no bairro Jardim Ultramar em Balneário Gaivo**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-jardim-ultramar-em-balneario-gaivota-sc-1472505181
+
+- **Terreno á venda com 600m² no bairro Village Dunas em Balneário Gaivota**
+  - 💰 R$ 630.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-600m-no-bairro-village-dunas-em-balneario-gaivota-sc-1472505172
+
+- **Terreno á venda com 360m² no bairro Janaina em Balneário Gaivota / SC**
+  - 💰 R$ 69.000 | 📐 360 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-360m-no-bairro-janaina-em-balneario-gaivota-sc-1472505070
+
+- **Terreno á venda com 300m² no bairro Village Dunas em Balneário Gaivota**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-em-balneario-gaivota-sc-1472505065
+
+- **Terreno á venda com 300m² no bairro Janaina em Balneário Gaivota / SC**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-janaina-em-balneario-gaivota-sc-1472505045
+
+- **Terreno areias claras**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-claras-1472284307
+
+- **Vendo terreno na praia**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-1462605182
+
+- **Terreno à venda, 300 m² por R$ 140.000,00 - Santa Fé - Balneário Gaivo**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-140-000-00-santa-fe-balneario-gaivota-sc-1471779212
+
+- **Terreno à venda, 300 m² por R$ 235.000,00 - Jardim Ultramar - Balneári**
+  - 💰 R$ 235.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-235-000-00-jardim-ultramar-balneario-gaivota-sc-1471779180
+
+- **Terreno á venda com 288m² no bairro Nova Torres em Balneário Gaivota /**
+  - 💰 R$ 55.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-nova-torres-em-balneario-gaivota-sc-1471779181
+
+- **Terreno á venda com 300m² no bairro Village Dunas em Balneário Gaivota**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-em-balneario-gaivota-sc-1471779187
+
+- **Terrenos à venda, 900 m² por R$ 650.000 - Village Dunas - Balneário Ga**
+  - 💰 R$ 650.000 | 📐 900 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-900-m-por-r-650-000-village-dunas-balneario-gaivota-sc-1471779198
+
+- **Terreno á venda com 288m² no bairro Nova Torres em Balneário Gaivota /**
+  - 💰 R$ 52.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-nova-torres-em-balneario-gaivota-sc-1471779194
+
+- **Terreno à venda, 300 m² por R$ 229.000,00 - Village Dunas - Balneário **
+  - 💰 R$ 229.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-229-000-00-village-dunas-balneario-gaivota-sc-1471779177
+
+- **Terreno à venda, 300 m² por R$ 150.000,00 - Village Dunas - Balneário **
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-150-000-00-village-dunas-balneario-gaivota-sc-1471779178
+
+- **Terreno à venda, 300 m² por R$ 140.000,00 - Village Dunas - Balneário **
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-140-000-00-village-dunas-balneario-gaivota-sc-1471779191
+
+- **Terreno à venda, 312 m² por R$ 330.000,00 - Areias Claras - Balneário **
+  - 💰 R$ 330.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-312-m-por-r-330-000-00-areias-claras-balneario-gaivota-sc-1471779192
+
+- **Terreno à venda, 300 m² por R$ 135.000,00 - Lagoa Cortada - Balneário **
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-135-000-00-lagoa-cortada-balneario-gaivota-sc-1471779144
+
+- **Terreno à venda, 425 m² por R$ 799.000,00 - Turimar - Balneário Gaivot**
+  - 💰 R$ 799.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-425-m-por-r-799-000-00-turimar-balneario-gaivota-sc-1471779154
+
+- **Terreno á venda com 300m² no bairro Tropical em Balneário Gaivota / SC**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-tropical-em-balneario-gaivota-sc-1471779145
+
+- **Terreno à venda, 300 m² por R$ 235.000,00 - Jardim Ultramar - Balneári**
+  - 💰 R$ 235.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-235-000-00-jardim-ultramar-balneario-gaivota-sc-1471779114
+
+- **Terreno à venda, 300 m² por R$ 229.000,00 - Village Dunas - Balneário **
+  - 💰 R$ 229.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-229-000-00-village-dunas-balneario-gaivota-sc-1471779125
+
+- **Terreno á venda com 375m² no bairro TURIMAR em Balneário Gaivota / SC**
+  - 💰 R$ 290.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-375m-no-bairro-turimar-em-balneario-gaivota-sc-1471779115
+
+- **Terreno á venda com 300m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1471779121
+
+- **Terreno á venda com 300m² no bairro Village Dunas Norte em Balneário G**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-norte-em-balneario-gaivota-sc-1471779124
+
+- **Terreno à venda, 300 m² por R$ 155.000,00 - Village Dunas - Balneário **
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-155-000-00-village-dunas-balneario-gaivota-sc-1471779128
+
+- **Terreno à venda, 300 m² por R$ 108.000,00 - Village Dunas - Balneário **
+  - 💰 R$ 108.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-108-000-00-village-dunas-balneario-gaivota-sc-1471779105
+
+- **Terreno à venda, 300 m² por R$ 170.000,00 - Lagoa Cortada - Balneário **
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-170-000-00-lagoa-cortada-balneario-gaivota-sc-1471779104
+
+- **Terreno á venda com 425m² no bairro TURIMAR em Balneário Gaivota / SC**
+  - 💰 R$ 320.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-425m-no-bairro-turimar-em-balneario-gaivota-sc-1471779111
+
+- **Terreno á venda com 300m² no bairro Village Dunas em Balneário Gaivota**
+  - 💰 R$ 225.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-em-balneario-gaivota-sc-1471779101
+
+- **Terreno à venda, 300 m² por R$ 150.000,00 - Village Dunas - Balneário **
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-150-000-00-village-dunas-balneario-gaivota-sc-1471779079
+
+- **Terreno á venda com 425m² no bairro TURIMAR em Balneário Gaivota / SC**
+  - 💰 R$ 480.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-425m-no-bairro-turimar-em-balneario-gaivota-sc-1471779042
+
+- **Terreno á venda com 300m² no bairro Tropical em Balneário Gaivota / SC**
+  - 💰 R$ 59.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-tropical-em-balneario-gaivota-sc-1471779046
+
+- **Terreno à venda, 313 m² por R$ 199.000,00 - Lagoa Cortada - Balneário **
+  - 💰 R$ 199.000 | 📐 324 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-313-m-por-r-199-000-00-lagoa-cortada-balneario-gaivota-sc-1471779003
+
+- **Terreno à venda, 366 m² por R$ 79.000,00 - Janaina - Balneário Gaivota**
+  - 💰 R$ 79.000 | 📐 360 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-366-m-por-r-79-000-00-janaina-balneario-gaivota-sc-1471778995
+
+- **Terreno à venda, 300 m² por R$ 235.000,00 - Jardim Ultramar - Balneári**
+  - 💰 R$ 235.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-235-000-00-jardim-ultramar-balneario-gaivota-sc-1471779008
+
+- **Terreno á venda com 300m² no bairro Santa Fé em Balneário Gaivota / SC**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-santa-fe-em-balneario-gaivota-sc-1471778999
+
+- **Terreno á venda com 288m² no bairro Nova Torres em Balneário Gaivota /**
+  - 💰 R$ 88.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-nova-torres-em-balneario-gaivota-sc-1471779002
+
+- **Terreno de esquina à venda, 300 m² por R$ 150.000 - Village Dunas I - **
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-300-m-por-r-150-000-village-dunas-i-balneario-gaivota-sc-1471779012
+
+- **Terreno á venda com 288m² no bairro Nova Torres em Balneário Gaivota /**
+  - 💰 R$ 92.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-nova-torres-em-balneario-gaivota-sc-1471778953
+
+- **Terreno à venda, 337 m² por R$ 265.000,00 - Lagoa Cortada - Balneário **
+  - 💰 R$ 265.000 | 📐 337 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-337-m-por-r-265-000-00-lagoa-cortada-balneario-gaivota-sc-1471778967
+
+- **Terreno á venda com 300m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1471778972
+
+- **Terreno á venda com 288m² no bairro Nova Torres em Balneário Gaivota /**
+  - 💰 R$ 50.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-nova-torres-em-balneario-gaivota-sc-1471778968
+
+- **Terreno à venda, 288 m² por R$ 52.000,00 - Nova Torres - Balneário Gai**
+  - 💰 R$ 52.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-288-m-por-r-52-000-00-nova-torres-balneario-gaivota-sc-1471778965
+
+- **Terreno á venda com 300m² no bairro Areias Claras em Balneário Gaivota**
+  - 💰 R$ 95.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-areias-claras-em-balneario-gaivota-sc-1471778960
+
+- **Terreno à venda, 300 m² por R$ 199.000,00 - Lagoa Cortada - Balneário **
+  - 💰 R$ 199.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-199-000-00-lagoa-cortada-balneario-gaivota-sc-1471778940
+
+- **Terreno á venda com 300m² no bairro Village Dunas em Balneário Gaivota**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-em-balneario-gaivota-sc-1471778942
+
+- **Terreno á venda com 300m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1471778952
+
+- **Terreno à venda, 288 m² por R$ 119.000,00 - Nova Torres - Balneário Ga**
+  - 💰 R$ 119.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-288-m-por-r-119-000-00-nova-torres-balneario-gaivota-sc-1471778932
+
+- **Terreno à venda, 300 m² por R$ 55.000,00 - Village Dunas 2 - Balneário**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-55-000-00-village-dunas-2-balneario-gaivota-sc-1471778946
+
+- **Terreno à venda, 425 m² por R$ 340.000,00 - Turimar - Balneário Gaivot**
+  - 💰 R$ 340.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-425-m-por-r-340-000-00-turimar-balneario-gaivota-sc-1471778928
+
+- **Terreno à venda, 300 m² por R$ 45.000,00 - Village Dunas 2 - Balneário**
+  - 💰 R$ 45.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-45-000-00-village-dunas-2-balneario-gaivota-sc-1471778937
+
+- **Terreno á venda com 300m² no bairro Village Dunas em Balneário Gaivota**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-em-balneario-gaivota-sc-1471778935
+
+- **Terreno à venda, 300 m² por R$ 150.000,00 - Lagoa Cortada - Balneário **
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-150-000-00-lagoa-cortada-balneario-gaivota-sc-1471778890
+
+- **Terreno á venda com 288m² no bairro Nova Torres em Balneário Gaivota /**
+  - 💰 R$ 95.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-nova-torres-em-balneario-gaivota-sc-1471778896
+
+- **Terreno à venda, 300 m² por R$ 55.000,00 - Tropical - Balneário Gaivot**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-55-000-00-tropical-balneario-gaivota-sc-1471778867
+
+- **Terreno á venda com 300m² no bairro Tropical em Balneário Gaivota / SC**
+  - 💰 R$ 59.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-tropical-em-balneario-gaivota-sc-1471778875
+
+- **2 Terrenos à venda, 576 m² por R$ 66.000 cada - Nova Torres - Balneári**
+  - 💰 R$ 66.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-a-venda-576-m-por-r-66-000-cada-nova-torres-balneario-gaivota-sc-1471778876
+
+- **Terreno á venda com 288m² no bairro Nova Torres em Balneário Gaivota /**
+  - 💰 R$ 65.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-nova-torres-em-balneario-gaivota-sc-1471778877
+
+- **Terreno à venda, 300 m² por R$ 140.000,00 - Areias Claras - Balneário **
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-140-000-00-areias-claras-balneario-gaivota-sc-1471778866
+
+- **Terreno á venda com 300m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1471778851
+
+- **Terreno à venda, 300 m² por R$ 100.000,00 - Lagoa Cortada - Balneário **
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-100-000-00-lagoa-cortada-balneario-gaivota-sc-1471778854
+
+- **Terreno á venda com 288m² no bairro Nova Torres em Balneário Gaivota /**
+  - 💰 R$ 55.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-nova-torres-em-balneario-gaivota-sc-1471778873
+
+- **Terreno à venda, 288 m² por R$ 119.000,00 - Nova Torres - Balneário Ga**
+  - 💰 R$ 119.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-288-m-por-r-119-000-00-nova-torres-balneario-gaivota-sc-1471778884
+
+- **Terreno à venda, 312 m² por R$ 220.000,00 - Santa Fé - Balneário Gaivo**
+  - 💰 R$ 220.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-312-m-por-r-220-000-00-santa-fe-balneario-gaivota-sc-1471778871
+
+- **Terreno à venda, 300 m² por R$ 150.000,00 - Areias Claras - Balneário **
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-150-000-00-areias-claras-balneario-gaivota-sc-1471778852
+
+- **Terreno à venda, 300 m² por R$ 130.000,00 - Lagoa Cortada - Balneário **
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-130-000-00-lagoa-cortada-balneario-gaivota-sc-1471778849
+
+- **Terreno á venda com 300m² no bairro Village Dunas Norte em Balneário G**
+  - 💰 R$ 196.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-norte-em-balneario-gaivota-sc-1471778814
+
+- **Terreno à venda, 300 m² por R$ 235.000,00 - Jardim Ultramar - Balneári**
+  - 💰 R$ 235.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-235-000-00-jardim-ultramar-balneario-gaivota-sc-1471778816
+
+- **Terreno á venda com 300m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1471778813
+
+- **Terreno á venda com 288m² no bairro Nova Torres em Balneário Gaivota /**
+  - 💰 R$ 96.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-nova-torres-em-balneario-gaivota-sc-1471778820
+
+- **Terreno à venda, 375 m² por R$ 170.000,00 - Turimar - Balneário Gaivot**
+  - 💰 R$ 170.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-170-000-00-turimar-balneario-gaivota-sc-1471778825
+
+- **Terreno á venda com 288m² no bairro Nova Torres em Balneário Gaivota /**
+  - 💰 R$ 120.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-nova-torres-em-balneario-gaivota-sc-1471778804
+
+- **Terreno à venda, 288 m² por R$ 270.000,00 - Itapuã - Balneário Gaivota**
+  - 💰 R$ 270.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-288-m-por-r-270-000-00-itapua-balneario-gaivota-sc-1471778817
+
+- **Terreno à venda, 300 m² por R$ 300.000,00 - Village Dunas - Balneário **
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-300-000-00-village-dunas-balneario-gaivota-sc-1471778789
+
+- **Terreno á venda com 300m² no bairro Village Dunas Norte em Balneário G**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-norte-em-balneario-gaivota-sc-1471778803
+
+- **Sitio com 3.618m² Fundos com a Lagoa**
+  - 💰 R$ 2.200.000 | 📐 3618 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-3-618m-fundos-com-a-lagoa-1471574261
+
+- **Terreno à Venda  Jardim Ultramar**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-jardim-ultramar-1471574198
+
+- **Área rural 16,8 hectares com acesso a Lagoa do Sombrio**
+  - 💰 R$ 1.890.000 | 📐 168000 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-16-8-hectares-com-acesso-a-lagoa-do-sombrio-1471574166
+
+- **Terreno com Duas Frentes  Fernão Capelo, Balneário Gaivota/SC**
+  - 💰 R$ 110.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-duas-frentes-fernao-capelo-balneario-gaivota-sc-1471574082
+
+- **Terreno Rural 11ha Em Anita Garibaldi Frente Asfalto, fundos Lagoa Som**
+  - 💰 R$ 1.550.000 | 📐 110000 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-11ha-em-anita-garibaldi-frente-asfalto-fundos-lagoa-sombrio-100-aproveitav-1471574064
+
+- **Terreno á venda com 264m² no bairro Valverde em Balneário Gaivota / SC**
+  - 💰 R$ 49.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-264m-no-bairro-valverde-em-balneario-gaivota-sc-1471496493
+
+- **Terreno á venda com 625m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 175.000 | 📐 625 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-625m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1471494485
+
+- **Terreno á venda com 354m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 120.000 | 📐 354 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-354m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1471494419
+
+- **Terreno á venda com 300m² no bairro Jardim Ultramar em Balneário Gaivo**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-jardim-ultramar-em-balneario-gaivota-sc-1471491238
+
+- **Terreno á venda com 300m² no bairro Village dunas 2 em Balneário Gaivo**
+  - 💰 R$ 39.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-2-em-balneario-gaivota-sc-1471491245
+
+- **Terreno á venda com 300m² no bairro Tropical em Balneário Gaivota / SC**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-tropical-em-balneario-gaivota-sc-1471491222
+
+- **Terreno á venda com 300m² no bairro Village Dunas em Balneário Gaivota**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-em-balneario-gaivota-sc-1471491227
+
+- **Terreno á venda com 300m² no bairro Santa Fé em Balneário Gaivota / SC**
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-santa-fe-em-balneario-gaivota-sc-1471490489
+
+- **Terreno á venda com 264m² no bairro Valverde em Balneário Gaivota / SC**
+  - 💰 R$ 77.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-264m-no-bairro-valverde-em-balneario-gaivota-sc-1471489245
+
+- **Terreno á venda com 300m² no bairro Village dunas 2 em Balneário Gaivo**
+  - 💰 R$ 49.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-2-em-balneario-gaivota-sc-1471489255
+
+- **Terreno á venda com 300m² no bairro Jardim Ultramar em Balneário Gaivo**
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-jardim-ultramar-em-balneario-gaivota-sc-1471489251
+
+- **Terreno á venda com 300m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1471489240
+
+- **Terreno á venda com 375m² no bairro TURIMAR em Balneário Gaivota / SC**
+  - 💰 R$ 150.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-375m-no-bairro-turimar-em-balneario-gaivota-sc-1471488477
+
+- **Terreno á venda com 288m² no bairro Guarajuba em Balneário Gaivota / S**
+  - 💰 R$ 69.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-288m-no-bairro-guarajuba-em-balneario-gaivota-sc-1471488454
+
+- **Terreno á venda com 300m² no bairro Village Dunas Oeste em Balneário G**
+  - 💰 R$ 87.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-oeste-em-balneario-gaivota-sc-1471487926
+
+- **Terreno á venda com 300m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1471487513
+
+- **Terreno á venda com 300m² no bairro Jardim Ultramar em Balneário Gaivo**
+  - 💰 R$ 189.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-jardim-ultramar-em-balneario-gaivota-sc-1471188733
+
+- **Terreno á venda com 300m² no bairro Janaina em Balneário Gaivota / SC**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-janaina-em-balneario-gaivota-sc-1471188527
+
+- **Terreno á venda com 375m² no bairro TURIMAR em Balneário Gaivota / SC**
+  - 💰 R$ 299.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-375m-no-bairro-turimar-em-balneario-gaivota-sc-1471188499
+
+- **Terreno 300m² em Gaivotas/SC**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-em-gaivotas-sc-1435320180
+
+- **Terreno na 1ª quadra do mar no Bairro Areias Claras**
+  - 💰 R$ 199.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-1-quadra-do-mar-no-bairro-areias-claras-1470969987
+
+- **2 terrenos geminados 600 metros**
+  - 💰 R$ 165.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-geminados-600-metros-1470880581
+
+- **Terreno Praia Turimar, Próximo a Interpraias**
+  - 💰 R$ 155.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-turimar-proximo-a-interpraias-1470655982
+
+- **Terrenos PARCELADOS na região central de Balneário Gaivota/SC no bairr**
+  - 💰 R$ 224.000 | 📐 330 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-na-regiao-central-de-balneario-gaivota-sc-no-bairro-brilhamares-1470655984
+
+- **TERRENO DE ESQUINA 100 METROS DO MAR**
+  - 💰 R$ 890.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-100-metros-do-mar-1470655260
+
+- **Terreno na Avenida pronto para construir bairro Sumaré, 30m do mar**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-avenida-pronto-para-construir-bairro-sumare-30m-do-mar-1470655270
+
+- **Terreno PARCELADO, de esquina, 860m da Beira Mar**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-de-esquina-860m-da-beira-mar-1470655165
+
+- **Terreno Praia Janaina**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-janaina-1470655170
+
+- **Terreno pronto para construir..**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-1470655147
+
+- **TERRENO ESQUINA a 350 METROS DO MAR**
+  - 💰 R$ 490.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-a-350-metros-do-mar-1470654354
+
+- **4 terrenos juntos no Loteamento Areias Claras**
+  - 💰 R$ 520.000 | 📐 1250 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/4-terrenos-juntos-no-loteamento-areias-claras-1470654350
+
+- **Terreno com 300 m², próximo do centro e da PRAIA, localizado, no LITOR**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-300-m-proximo-do-centro-e-da-praia-localizado-no-litoral-sul-de-santa-cata-1470653464
+
+- **Terreno na Quadra Beira Mar Lagoa cortada**
+  - 💰 R$ 350.000 | 📐 350 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-quadra-beira-mar-lagoa-cortada-1470653460
+
+- **Terrenos loteamento Parque das Gaivotas**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-loteamento-parque-das-gaivotas-1470653368
+
+- **Terrenos de Esquina parcelados direto com proprietário**
+  - 💰 R$ 250.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-de-esquina-parcelados-direto-com-proprietario-1470652812
+
+- **Esquina a 150 metros do mar no condomínio Lagoa Cortada**
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/esquina-a-150-metros-do-mar-no-condominio-lagoa-cortada-1470652775
+
+- **Seu terreno próximo do centro e do MAR, em Balneário Gaivota/SC**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-terreno-proximo-do-centro-e-do-mar-em-balneario-gaivota-sc-1470652769
+
+- **VILLAGE DUNAS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/village-dunas-1470652178
+
+- **Terreno PARCELADO na região central de Balneário Gaivota/SC no bairro **
+  - 💰 R$ 180.000 | 📐 310 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-na-regiao-central-de-balneario-gaivota-sc-no-bairro-brilhamares-1470652138
+
+- **TERRENO 400 METROS DO MAR**
+  - 💰 R$ 300.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-400-metros-do-mar-1470652126
+
+- **Terreno na 1ª quadra APENAS 130m da PRAIA**
+  - 💰 R$ 210.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-1-quadra-apenas-130m-da-praia-1470652149
+
+- **TERRENO A 500 M DA PRAIA VILLAGE DUNAS**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-500-m-da-praia-village-dunas-1470652142
+
+- **Terreno Praia Nova Torres**
+  - 💰 R$ 72.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-nova-torres-1470651683
+
+- **Terreno Praia Areias Claras a 350m da Beira Mar**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-areias-claras-a-350m-da-beira-mar-1470651378
+
+- **Terreno no bairro Areias Claras**
+  - 💰 R$ 130.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-areias-claras-1470651385
+
+- **Terreno a 400m da Praia**
+  - 💰 R$ 62.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-400m-da-praia-1470650834
+
+- **TERRENO DE ESQUINA 300 MERTOS DO MAR**
+  - 💰 R$ 650.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-300-mertos-do-mar-1470650840
+
+- **Terreno Praia Areias Claras 230m da Beira Mar**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-areias-claras-230m-da-beira-mar-1470650221
+
+- **Terrenos prontos para construir, Turimar - Balneário Gaivota**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-prontos-para-construir-turimar-balneario-gaivota-1470650204
+
+- **Seu terreno próximo ao Mar e do centro, em Balneário Gaivota/SC**
+  - 💰 R$ 147.000 | 📐 330 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-terreno-proximo-ao-mar-e-do-centro-em-balneario-gaivota-sc-1470650210
+
+- **TERRENO DE FRENTE INTERPRAIAS**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-frente-interpraias-1470650220
+
+- **Lotes de frente para a AV INTERPRAIAS no Bairro BRILHAMARES**
+  - 💰 R$ 310.000 | 📐 450 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-de-frente-para-a-av-interpraias-no-bairro-brilhamares-1470650203
+
+- **Terreno à beira mar na Praia Lagoa Cortada**
+  - 💰 R$ 890.000 | 📐 350 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-beira-mar-na-praia-lagoa-cortada-1470649890
+
+- **Terreno na av. Inter Praias**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-av-inter-praias-1470649891
+
+- **Terreno no bairro Areias Claras..**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-areias-claras-1470649585
+
+- **Terreno no Village Dunas I - 3 lotes**
+  - 💰 R$ 690.000 | 📐 900 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-village-dunas-i-3-lotes-1470649564
+
+- **Terreno a 500mts da Praia**
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-500mts-da-praia-1470649233
+
+- **Lote na área central com ótima localização**
+  - 💰 R$ 215.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-area-central-com-otima-localizacao-1470649239
+
+- **Terreno - Lagoa de Fora - Balneário Gaivota - SC**
+  - 💰 R$ 125.000 | 📐 432 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lagoa-de-fora-balneario-gaivota-sc-1470649109
+
+- **Esquina no centro da cidade  170 metros do mar**
+  - 💰 R$ 490.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/esquina-no-centro-da-cidade-170-metros-do-mar-1470648413
+
+- **Terreno Village Dunas Norte**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-village-dunas-norte-1470648235
+
+- **TERRENO 450 METROS DO MAR**
+  - 💰 R$ 290.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450-metros-do-mar-1470648228
+
+- **Terreno Parcelado no Areias Claras**
+  - 💰 R$ 151.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-no-areias-claras-1470648220
+
+- **Terreno no bairro Turimar em Balneário Gaivota SC.**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-turimar-em-balneario-gaivota-sc-1470648224
+
+- **TERRENO DE ESQUINA 600 METROS DO MAR**
+  - 💰 R$ 320.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-600-metros-do-mar-1470647484
+
+- **Terreno PARCELADO na região central de Balneário Gaivota/SC no bairro **
+  - 💰 R$ 180.000 | 📐 310 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-na-regiao-central-de-balneario-gaivota-sc-no-bairro-brilhamares-1470647293
+
+- **Terreno parcelado pronto para construir.**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-pronto-para-construir-1470647296
+
+- **Terreno de esquina, a 100 metros do mar, na Village Dunas**
+  - 💰 R$ 249.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-100-metros-do-mar-na-village-dunas-1470647279
+
+- **Terreno no Lagoa Cortada APENAS 700m da PRAIA**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-lagoa-cortada-apenas-700m-da-praia-1470647290
+
+- **Dois terrenos Juntos no bairro Janaína**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-juntos-no-bairro-janaina-1470647274
+
+- **Terreno de esquina Jardim ultramar**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-jardim-ultramar-1470647276
+
+- **Terreno apenas 210 metros do mar, pronto para construir**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-apenas-210-metros-do-mar-pronto-para-construir-1470647286
+
+- **Esquina com casa, a 50 metros do mar, Turimar - Balneário Gaivota**
+  - 💰 R$ 950.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/esquina-com-casa-a-50-metros-do-mar-turimar-balneario-gaivota-1470647113
+
+- **Terreno Village Dunas Norte**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-village-dunas-norte-1470647092
+
+- **Terreno na Área central da Cidade**
+  - 💰 R$ 260.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-area-central-da-cidade-1470647094
+
+- **Terreno Praia Sumaré I, 200m da Beira Mar**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-sumare-i-200m-da-beira-mar-1470647096
+
+- **Terreno no bairro Brilhamares**
+  - 💰 R$ 139.000 | 📐 330 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-brilhamares-1470647098
+
+- **Ótimo terreno na beira mar na Lagoa Cortada (Bairro Furnas)**
+  - 💰 R$ 1.600.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-na-beira-mar-na-lagoa-cortada-bairro-furnas-1470647105
+
+- **Terreno próximo a 7ª avenida bairro Jardim Ultramar**
+  - 💰 R$ 108.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-7-avenida-bairro-jardim-ultramar-1470647093
+
+- **Terreno Guarajuba**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-guarajuba-1470647099
+
+- **Terrenos PARCELADOS na região central de Balneário Gaivota/SC no bairr**
+  - 💰 R$ 170.000 | 📐 310 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-na-regiao-central-de-balneario-gaivota-sc-no-bairro-brilhamares-1470647103
+
+- **Terreno beira mar no bairro Jardim Ultramar**
+  - 💰 R$ 890.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-beira-mar-no-bairro-jardim-ultramar-1470647082
+
+- **Terreno Av. Interpraias**
+  - 💰 R$ 179.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-av-interpraias-1470647083
+
+- **Terreno de frente para avenida Central a 24 metros do mar**
+  - 💰 R$ 350.000 | 📐 350 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-frente-para-avenida-central-a-24-metros-do-mar-1470647078
+
+- **Terreno a 200 metros do mar, na Village Dunas, em Balneário Gaivota SC**
+  - 💰 R$ 185.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-200-metros-do-mar-na-village-dunas-em-balneario-gaivota-sc-1470646892
+
+- **2 terrenos juntos no Bairro LAGOA CORTADA..**
+  - 💰 R$ 430.000 | 📐 687 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-juntos-no-bairro-lagoa-cortada-1470646895
+
+- **Terreno Village Dunas Norte**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-village-dunas-norte-1470646866
+
+- **Terreno Apenas 120mts da avenida beira Mar**
+  - 💰 R$ 198.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-apenas-120mts-da-avenida-beira-mar-1470646841
+
+- **Terreno Praia Nova Torres 300m do Mar, Parcelado**
+  - 💰 R$ 79.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-nova-torres-300m-do-mar-parcelado-1470646868
+
+- **Terreno de frente para interpraia e frente Mar**
+  - 💰 R$ 500.000 | 📐 620 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-frente-para-interpraia-e-frente-mar-1470646843
+
+- **TERRENO DE ESQUINA 450mt do mar NA TURIMAR**
+  - 💰 R$ 380.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-450mt-do-mar-na-turimar-1470646885
+
+- **Três terrenos juntos a 300 metros do mar**
+  - 💰 R$ 120.000 | 📐 925 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tres-terrenos-juntos-a-300-metros-do-mar-1470646848
+
+- **Terreno á venda com 330m² no bairro Brilhamares em Balneário Gaivota /**
+  - 💰 R$ 190.000 | 📐 330 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-330m-no-bairro-brilhamares-em-balneario-gaivota-sc-1470569303
+
+- **Parcelados a 400m da praia**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parcelados-a-400m-da-praia-1469936771
+
+- **Parcelados a 350m da Praia**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parcelados-a-350m-da-praia-1469936142
+
+- **Parcelados a 300m da Praia**
+  - 💰 R$ 90.000 | 📐 2 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parcelados-a-300m-da-praia-1469935405
+
+- **Terreno para Venda em Balneário Gaivota, Janaina**
+  - 💰 R$ 75.000 | 📐 366 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-janaina-1469084686
+
+- **UlTIMO DISPONÍVEL NA RUA DA TURIMAR.**
+  - 💰 R$ 699.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ultimo-disponivel-na-rua-da-turimar-1468875938
+
+- **Terreno 300 m² figuerinha Balneário gaivota**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300-m-figuerinha-balneario-gaivota-1468494342
+
+- **Terreno em Balneário Gaivota SC**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-gaivota-sc-1449989187
+
+- **Vende-se terreno em condomínio lagoa cortada em torres**
+  - 💰 R$ 100.000 | 📐 ? m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-em-condominio-lagoa-cortada-em-torres-1466911111
+
+- **Terreno à venda na Praia Valverde  Balneário Gaivota/SC**
+  - 💰 R$ 160.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-valverde-balneario-gaivota-sc-1466304682
+
+- **Terreno para Venda em Balneário Gaivota, Jardim Ultramar**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-jardim-ultramar-1466287452
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas II**
+  - 💰 R$ 45.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-ii-1464574664
+
+- **TERRENOS À VENDA  EXCELENTE PARA INVESTIMENTO**
+  - 💰 R$ 40.000 | 📐 324 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-venda-excelente-para-investimento-1463857192
+
+- **Terreno Areias Claras Oportunidade Limitada**
+  - 💰 R$ 88.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-claras-oportunidade-limitada-1463648419
+
+- **TERRENO PRONTO PARA CONSTRUIR EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 74.000 | 📐 268 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-em-balneario-gaivota-1463364167
+
+- **TERRENO PARA INVESTIMENTO EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 68.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-em-balneario-gaivota-1463336048
+
+- **Terreno Comercial na Avenida Interpraias  Praia Village Dunas Excelent**
+  - 💰 R$ 185.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-na-avenida-interpraias-praia-village-dunas-excelente-oportunidade-para-1463335998
+
+- **TERRENO PARA INVESTIMENTO ESCRITURADO EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-escriturado-em-balneario-gaivota-1463333948
+
+- **OPORTUNIDADE PARCELADA PARA INVESTIMENTO EM NOVA TORRES**
+  - 💰 R$ 62.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-parcelada-para-investimento-em-nova-torres-1463331248
+
+- **Se você procura terreno para investimento seguro, em Balneário Gaivota**
+  - 💰 R$ 64.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/se-voce-procura-terreno-para-investimento-seguro-em-balneario-gaivota-a-praia-que-mais-cr-1463331250
+
+- **TERRENO ESCRITURADO E PARCELADO IDEAL PARA INVESTIMENTO EM BALNEÁRIO G**
+  - 💰 R$ 62.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-e-parcelado-ideal-para-investimento-em-balneario-gaivota-1463331234
+
+- **2 LOTES LADO A LADO A POUCOS METROS DO MAR**
+  - 💰 R$ 68.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-lotes-lado-a-lado-a-poucos-metros-do-mar-1463330876
+
+- **TERRENO ESCRITURADO COM FRENTE VOLTADA AO NORTE EM BALNEÁRIO**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-com-frente-voltada-ao-norte-em-balneario-1463330586
+
+- **Oportunidade de Investimento  450m do Mar! Se você busca um investimen**
+  - 💰 R$ 64.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-450m-do-mar-se-voce-busca-um-investimento-promissor-no-lito-1463330526
+
+- **OPORTUNIDADE PARA INVESTIMENTO NA PRAIA QUE MAIS CRESCE NO SUL DO BRAS**
+  - 💰 R$ 42.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-investimento-na-praia-que-mais-cresce-no-sul-do-brasil-1463330523
+
+- **TERRENO PARA INVESTIMENTO ESCRITURADO EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-escriturado-em-balneario-gaivota-1463330199
+
+- **TERRENO ESCRITURADO PARA INVESTIMENTO EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 68.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-para-investimento-em-balneario-gaivota-1463330205
+
+- **TERRENO PARA INVESTIMENTO NO BAIRRO VILLAGE DUNAS 2**
+  - 💰 R$ 42.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-no-bairro-village-dunas-2-1463330171
+
+- **Terreno a 350m do mar na Praia Santa Fé  Alto potencial de valorização**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-350m-do-mar-na-praia-santa-fe-alto-potencial-de-valorizacao-se-voce-busca-um-i-1463330175
+
+- **TERRENO ESCRITURADO E REGISTRADO A 700 METROS DO MAR NA PRAIA TROPICAL**
+  - 💰 R$ 59.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-e-registrado-a-700-metros-do-mar-na-praia-tropical-em-balneario-gaaivo-1463330180
+
+- **TERRENO ESCRITURADO A 500 METROS DO MAR EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 68.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-a-500-metros-do-mar-em-balneario-gaivota-1463330066
+
+- **Oportunidade de Investimento  450m do Mar! Se você busca um investimen**
+  - 💰 R$ 64.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-450m-do-mar-se-voce-busca-um-investimento-promissor-no-lito-1463330072
+
+- **TERRENO DE ESQUINA ESCRITURADO A 600 METROS DO MAR EM BALNEÁRIO GAIVOT**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-escriturado-a-600-metros-do-mar-em-balneario-gaivota-1463330010
+
+- **Oportunidade de Investimento  200m do Mar! Se você busca um investimen**
+  - 💰 R$ 63.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-200m-do-mar-se-voce-busca-um-investimento-promissor-no-lito-1463329999
+
+- **PRAIA TURIMAR EM BALNEÁRIO GAIVOTA/SC!**
+  - 💰 R$ 400.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/praia-turimar-em-balneario-gaivota-sc-1463329985
+
+- **TERRENO ESCRITURADO DE FRENTE PARA AVENIDA PRINCIPAL NO BAIRRO SUMARÉ **
+  - 💰 R$ 68.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-de-frente-para-avenida-principal-no-bairro-sumare-em-balneario-gaivota-1463330001
+
+- **TERRENO DE ESQUINA JÁ PARCELADO DIRETO COM O PROPRIETÁRIO**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-ja-parcelado-direto-com-o-proprietario-1463329978
+
+- **TERRENO DE ESQUINA ESCRITURADO E PARCELADO A 500 METROS DO MAR A 500 M**
+  - 💰 R$ 62.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-escriturado-e-parcelado-a-500-metros-do-mar-a-500-metros-do-mar-1463329979
+
+- **TERRENO PARCELADO E ESCRITURADO EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 62.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-e-escriturado-em-balneario-gaivota-1463329980
+
+- **TERRENO ESCRITURADO A POUCOS METROS DO MAR EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 88.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-a-poucos-metros-do-mar-em-balneario-gaivota-1463329991
+
+- **TERRENO ESCRITURADO A 250 METROS DO MAR EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-a-250-metros-do-mar-em-balneario-gaivota-1463329992
+
+- **Terreno escriturado próximo ao mar.**
+  - 💰 R$ 195.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-proximo-ao-mar-1463031418
+
+- **TERRENO PRÓXIMO A OITAVA AVENIDA COM FRENTE VOLTADA AO MAR**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-oitava-avenida-com-frente-voltada-ao-mar-1463027379
+
+- **TERRENO NA TERCEIRA QUADRA DO MAR EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-terceira-quadra-do-mar-em-balneario-gaivota-1463027381
+
+- **TERRENO A 200 METROS DO MAR E A 2KM DO CENTRO DA CIDADE**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-200-metros-do-mar-e-a-2km-do-centro-da-cidade-1463026883
+
+- **TERRENO NA PRAIA JANAÍNA PRÓXIMO A LAGOA CORTADA EM BALNEÁRIO GAIVOTAA**
+  - 💰 R$ 78.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-janaina-proximo-a-lagoa-cortada-em-balneario-gaivotaa-1463026874
+
+- **OPORTUNIDADE PRÓXIMO AO MAR EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-proximo-ao-mar-em-balneario-gaivota-1463026853
+
+- **TERRENO DE ESQUINA ESCRITURADO E REGISTRADO EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-escriturado-e-registrado-em-balneario-gaivota-1463026746
+
+- **TERRENO NA AVENIDA INTERPRAIAS A 1KM DO CENTRO DA CIDADE**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-avenida-interpraias-a-1km-do-centro-da-cidade-1463026695
+
+- **A Oportunidade que Grandes Investidores Procuram: 1200m² Frente ao Mar**
+  - 💰 R$ 1.600.000 | 📐 1200 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/a-oportunidade-que-grandes-investidores-procuram-1200m-frente-ao-mar-no-coracao-de-balne-1463026638
+
+- **Terreno no Balneário das Furnas (Condomínio Lagoa Cortada) em Balneári**
+  - 💰 R$ 119.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-balneario-das-furnas-condominio-lagoa-cortada-em-balneario-gaivota-sc-local-1463026428
+
+- **Terreno Entre o Mar e a Lagoa  Praia Janaína! Uma oportunidade única p**
+  - 💰 R$ 89.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-entre-o-mar-e-a-lagoa-praia-janaina-uma-oportunidade-unica-para-investir-ou-cons-1463026388
+
+- **Terreno frente mar a 1km do centro da cidade no Bairro Turimar.**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-a-1km-do-centro-da-cidade-no-bairro-turimar-1463026413
+
+- **Terrenos parcelados prontos para construir no Novo Jardim!!**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-prontos-para-construir-no-novo-jardim-1463026389
+
+- **Terreno próximo ao Mar e a Lagoa Cortada**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-ao-mar-e-a-lagoa-cortada-1463026169
+
+- **TERRENO ESCRITURADO DE FRENTE PARA AV. INTERPRAIAS**
+  - 💰 R$ 89.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-de-frente-para-av-interpraias-1463026036
+
+- **Terreno no Balneário das Furnas em Balneário Gaivota/SC - Medidas: 12x**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-balneario-das-furnas-em-balneario-gaivota-sc-medidas-12x25-300m--escritu-1463025372
+
+- **Terreno à Venda no Bairro Valverde  Frente Leste | Próximo ao Mar**
+  - 💰 R$ 60.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-valverde-frente-leste-proximo-ao-mar-1461283923
+
+- **Terreno bairro Village Dunas em Balneário Gaivota..**
+  - 💰 R$ 128.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-village-dunas-em-balneario-gaivota-1461279144
+
+- **Dois terrenos juntos de esquina na Avenida Interpraias**
+  - 💰 R$ 175.000 | 📐 432 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-juntos-de-esquina-na-avenida-interpraias-1460681750
+
+- **TERRENO ESCRITURADO COM FRENTE PARA DUAS RUAS**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-com-frente-para-duas-ruas-1460379362
+
+- **terreno na avenida principal do bairro tropical em balneario gaivota**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-avenida-principal-do-bairro-tropical-em-balneario-gaivota-1459644211
+
+- **Terreno à Venda  Bairro Sumaré, Balneário Gaivota (SC)**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-sumare-balneario-gaivota-sc-1459641850
+
+- **Terreno para Venda em Balneário Gaivota, Jardim Ultramar**
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-jardim-ultramar-1459495383
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-1459484887
+
+- **Oportunidade Terreno a 300m da Beira-Mar! 600m², frente norte, com lot**
+  - 💰 R$ 165.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-a-300m-da-beira-mar-600m-frente-norte-com-lote-de-esquina-ideal-1456433412
+
+- **Terreno à Venda  Bairro Areias Claras Primeira quadra do mar**
+  - 💰 R$ 189.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-areias-claras-primeira-quadra-do-mar-1454741347
+
+- **Terreno de Esquina com 300m² a 500m do Mar**
+  - 💰 R$ 212.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-com-300m-a-500m-do-mar-1454563645
+
+- **Três Terrenos Praia Valverde 300m² Cada Terreno**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tres-terrenos-praia-valverde-300m-cada-terreno-1453879387
+
+- **Terreno com 300m² por valor super acessível! Frente oeste, 12x25m, pla**
+  - 💰 R$ 59.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-300m-por-valor-super-acessivel-frente-oeste-12x25m-plano-pronto-para-cons-1453461317
+
+- **Terreno para Venda em Balneário Gaivota, Areias Claras**
+  - 💰 R$ 80.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-areias-claras-1452509348
+
+- **Terreno à venda no Loteamento Capão Bonito  Balneário Gaivota/SC**
+  - 💰 R$ 80.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-capao-bonito-balneario-gaivota-sc-1452470288
+
+- **Terreno à venda no Loteamento Capão Bonito  Balneário Gaivota/SC**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-capao-bonito-balneario-gaivota-sc-1452469165
+
+- **Terreno à venda no Loteamento Capão Bonito  Balneário Gaivota/SC**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-capao-bonito-balneario-gaivota-sc-1452468432
+
+- **Terreno à venda no Loteamento Capão Bonito  Balneário Gaivota/SC**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-capao-bonito-balneario-gaivota-sc-1452468415
+
+- **Terreno à venda, 264 m² por R$ 80.000,00 - Valverde - Balneário Gaivot**
+  - 💰 R$ 80.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-264-m-por-r-80-000-00-valverde-balneario-gaivota-sc-1451226878
+
+- **LOTEAMENTO CAPÃO BONITO**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-capao-bonito-1451032930
+
+- **Terreno à venda, 300 m² por R$ 59.000,00 - Sumare - Balneário Gaivota/**
+  - 💰 R$ 59.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-59-000-00-sumare-balneario-gaivota-sc-1450899238
+
+- **Terreno à 500 metros do mar  Praia Areias Claras**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-500-metros-do-mar-praia-areias-claras-1450882395
+
+- **TERRENO 500 METROS DO MAR**
+  - 💰 R$ 129.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-500-metros-do-mar-1450881200
+
+- **TERRENO NA 5° QUADRA DO MAR**
+  - 💰 R$ 129.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-5-quadra-do-mar-1450881189
+
+- **TERRENO APENAS 150mt DO MAR - BAIRRO JARDIM ULTAMAR**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-apenas-150mt-do-mar-bairro-jardim-ultamar-1450342739
+
+- **Dois Terrenos na Praia Sumaré 600m²**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-na-praia-sumare-600m-1449009271
+
+- **Terreno à Venda no Condomínio Lagoa Cortada  Localização Privilegiada**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-lagoa-cortada-localizacao-privilegiada-1449006006
+
+- **TERRENO BAIRRO TURIMAR 500MT DO MAR**
+  - 💰 R$ 230.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-turimar-500mt-do-mar-1449005459
+
+- **Terreno 150 metros do mar bairro Janaina**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-150-metros-do-mar-bairro-janaina-1449005171
+
+- **TERRENO 800 METROS DO MAR**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-800-metros-do-mar-1449005172
+
+- **Excelente Área com 6 Terrenos à Beira-Mar em Balneário Gaivota!**
+  - 💰 R$ 7.000.000 | 📐 1800 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-area-com-6-terrenos-a-beira-mar-em-balneario-gaivota-1448859259
+
+- **Terreno beira mar pronto para construir na praia Lagoa Cortada - Balne**
+  - 💰 R$ 800.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-beira-mar-pronto-para-construir-na-praia-lagoa-cortada-balneario-gaivota-1448691088
+
+- **TERRENO 500 METROS DO MAR**
+  - 💰 R$ 129.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-500-metros-do-mar-1448544127
+
+- **Terreno no loteamento Novo Jardim em Balneário Gaivota-SC**
+  - 💰 R$ 119.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-novo-jardim-em-balneario-gaivota-sc-1447860143
+
+- **Terreno no loteamento Novo Jardim em Balneário Gaivota-SC**
+  - 💰 R$ 114.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-novo-jardim-em-balneario-gaivota-sc-1447860155
+
+- **Lote de esquina, próximo ao mar**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-proximo-ao-mar-1447627256
+
+- **Opções exclusivas com parcelamento direto**
+  - 💰 R$ 139.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/opcoes-exclusivas-com-parcelamento-direto-1447624110
+
+- **Mais de uma opção na mesma quadra  invista parcelado e com segurança!**
+  - 💰 R$ 126.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/mais-de-uma-opcao-na-mesma-quadra-invista-parcelado-e-com-seguranca-1447624131
+
+- **Terreno para investimento, na área central**
+  - 💰 R$ 68.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-na-area-central-1447434743
+
+- **Terreno de Esquina | 425m² | Apenas 500m do Mar!**
+  - 💰 R$ 300.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-425m-apenas-500m-do-mar-1446911206
+
+- **Incrível oportunidade - Terreno Entre duas avenidas**
+  - 💰 R$ 139.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/incrivel-oportunidade-terreno-entre-duas-avenidas-1446911231
+
+- **20 terrenos juntos a 350 metros do mar, no bairro Areias Claras**
+  - 💰 R$ 3.000.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/20-terrenos-juntos-a-350-metros-do-mar-no-bairro-areias-claras-1446911217
+
+- **TERRENO NO BAIRRO AREIAS CLARAS, BALNEÁRIO GAIVOTA- SANTA CATARINA**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-areias-claras-balneario-gaivota-santa-catarina-1446885299
+
+- **Seu Terreno em Areias Claras por Ótimo Preço!**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-terreno-em-areias-claras-por-otimo-preco-1446880554
+
+- **Terreno Ideal no bairro Santa Fé: Construa Seu Futuro Aqui**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ideal-no-bairro-santa-fe-construa-seu-futuro-aqui-1446880538
+
+- **Terreno Ideal em Areias Claras: Invista Já!**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ideal-em-areias-claras-invista-ja-1446880521
+
+- **Seu Refúgio em Balneário Gaivota!**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-refugio-em-balneario-gaivota-1446880383
+
+- **"Terreno à Venda: Vista para o Mar em Balneário Gaivota**
+  - 💰 R$ 350.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-vista-para-o-mar-em-balneario-gaivota-1446880314
+
+- **Terreno em Areias Claras, SC - Ótimo Preço!**
+  - 💰 R$ 153.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-areias-claras-sc-otimo-preco-1446880194
+
+- **Terreno de 300m² com frente leste! A poucos metros da praia. Preço ace**
+  - 💰 R$ 59.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300m-com-frente-leste-a-poucos-metros-da-praia-preco-acessivel-e-alto-potenc-1444190841
+
+- **Terreno 300m² a 750m da Praia  Frente Norte e Preço Acessível para Inv**
+  - 💰 R$ 59.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-a-750m-da-praia-frente-norte-e-preco-acessivel-para-investir-com-seguranca-1444190609
+
+- **TERRENO NO BAIRRO VILLAGE DUNAS PRÓXIMO DA INTERPRAIAS**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-village-dunas-proximo-da-interpraias-1443841294
+
+- **Terreno à venda, 300 m² por R$ 60.000,00 - Sumare - Balneário Gaivota/**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-60-000-00-sumare-balneario-gaivota-sc-1443485015
+
+- **Terreno com 400m² 6° Quadra do Mar**
+  - 💰 R$ 600.000 | 📐 400 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-400m-6-quadra-do-mar-1443198814
+
+- **TERRENO A 250 METROS DO MAR NA PRAIA TROPICAL**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-250-metros-do-mar-na-praia-tropical-1443163235
+
+- **TERRENO A APENAS 250 METROS DO MAR NA PRAIA TROPICAL SC**
+  - 💰 R$ 102.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-apenas-250-metros-do-mar-na-praia-tropical-sc-1443162984
+
+- **Lote de Esquina a Apenas 40m do Mar  1ª Quadra na 7ª Avenida!**
+  - 💰 R$ 470.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-a-apenas-40m-do-mar-1-quadra-na-7-avenida-1442865664
+
+- **Terreno a 200 metros do mar no condomínio Lagoa Cortada**
+  - 💰 R$ 210.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-200-metros-do-mar-no-condominio-lagoa-cortada-1442171074
+
+- **TERRENO EM BAIRRO NOBRE BAL. GAIVOTA SC**
+  - 💰 R$ 180.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-bairro-nobre-bal-gaivota-sc-1442169666
+
+- **TERRENO A POUCOS METROS DO MAR PRÓXIMO A TORRES**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-poucos-metros-do-mar-proximo-a-torres-1442167611
+
+- **Terreno pronto para constuir, Balneário Gaivota - Lagoa Cortada**
+  - 💰 R$ 175.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-constuir-balneario-gaivota-lagoa-cortada-1442167470
+
+- **Esquina para investimento a 300 metros da Av. Interpraia na praia Lago**
+  - 💰 R$ 49.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/esquina-para-investimento-a-300-metros-da-av-interpraia-na-praia-lagoa-cortada-1442167460
+
+- **Terreno para investimento a 300 metros da Av. Interpraia na Lagoa Cort**
+  - 💰 R$ 45.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-a-300-metros-da-av-interpraia-na-lagoa-cortada-1442167266
+
+- **Terreno de esquina, em um dos melhores bairros de Balneário Gaivota SC**
+  - 💰 R$ 220.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-um-dos-melhores-bairros-de-balneario-gaivota-sc-1442167260
+
+- **Terreno Praia Village Dunas II, 500m da Beira Mar**
+  - 💰 R$ 48.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-village-dunas-ii-500m-da-beira-mar-1442166858
+
+- **TERRENO À VENDA DE ESQUINA  PRAIA, AVENIDA QUERO-QUERO!**
+  - 💰 R$ 175.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-de-esquina-praia-avenida-quero-quero-1441552169
+
+- **Ótimo terreno próximo ao Centro da cidade**
+  - 💰 R$ 165.000 | 📐 330 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-proximo-ao-centro-da-cidade-1441551962
+
+- **Terreno na Praia Turimar na 7° Quadra do Mar**
+  - 💰 R$ 290.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-turimar-na-7-quadra-do-mar-1441551607
+
+- **TERRENO NO BAIRRO AREIAS CLARAS**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-areias-claras-1441254820
+
+- **Terreno plano no Balneário Gaivota apenas 600 m do mar**
+  - 💰 R$ 298.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-no-balneario-gaivota-apenas-600-m-do-mar-1441143051
+
+- **terreno - Santa Fé 2**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-santa-fe-2-1440958273
+
+- **TERRENO PROXIMO A PREFEITURA**
+  - 💰 R$ 190.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-prefeitura-1440309538
+
+- **TERRENO PROXIMO A INTERPRAIAS**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-interpraias-1440309352
+
+- **Terrenos Jardim Ultramar Próximo a 4° Avenida**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-jardim-ultramar-proximo-a-4-avenida-1440307522
+
+- **Terreno em Balneário Gaivota Pronto para Construir**
+  - 💰 R$ 59.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-gaivota-pronto-para-construir-1440021498
+
+- **OPORTUNIDADE DE INVESTIMENTO NA PRAIA!**
+  - 💰 R$ 45.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-na-praia-1440019923
+
+- **Terreno de Esquina à Venda  Nova Torres, Balneário Gaivota**
+  - 💰 R$ 80.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-nova-torres-balneario-gaivota-1440020023
+
+- **Terreno Frente Para Principal Rua do Bairro em Balneário Gaivota**
+  - 💰 R$ 59.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-para-principal-rua-do-bairro-em-balneario-gaivota-1440019827
+
+- **Terreno na Praia Nova Torres Próximo a Interpraias**
+  - 💰 R$ 55.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-nova-torres-proximo-a-interpraias-1440019579
+
+- **Terreno de Esquina em Balneário Gaivota/ Praia Nova torres**
+  - 💰 R$ 55.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-balneario-gaivota-praia-nova-torres-1440019016
+
+- **Terreno a 100 metros do mar, valor abaixo de mercado**
+  - 💰 R$ 179.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-100-metros-do-mar-valor-abaixo-de-mercado-1439721532
+
+- **Terreno na 2² quadra do mar no Village Dunas**
+  - 💰 R$ 185.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-2-quadra-do-mar-no-village-dunas-1439720908
+
+- **Oportunidade, 2 lotes juntos próximos à beira-mar!**
+  - 💰 R$ 72.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-2-lotes-juntos-proximos-a-beira-mar-1439444925
+
+- **Terreno à venda  Lagoa Cortada / Interpraias**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-lagoa-cortada-interpraias-1438727733
+
+- **Terreno a poucos metros do mar**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-poucos-metros-do-mar-1438586614
+
+- **Terreno em Bella Torres**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-bella-torres-1438332065
+
+- **Terreno de esquina 500m da Praia**
+  - 💰 R$ 320.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-500m-da-praia-1438332075
+
+- **TERRENO ESCRITURADO A 250 METROS DO MAR EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-a-250-metros-do-mar-em-balneario-gaivota-1437807869
+
+- **TERRENO A POUCOS METROS DA LAGOA CORTADA EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-poucos-metros-da-lagoa-cortada-em-balneario-gaivota-1437651642
+
+- **Terreno à 300m da Beira Mar, Praia Village Dunas II**
+  - 💰 R$ 57.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-300m-da-beira-mar-praia-village-dunas-ii-1437458086
+
+- **Terreno frente leste a 900m do mar..**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-leste-a-900m-do-mar-1436713218
+
+- **Dois terrenos juntos frente mar próximo a 7ª Avenida**
+  - 💰 R$ 360.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-juntos-frente-mar-proximo-a-7-avenida-1436712174
+
+- **Terreno a 100 metros do mar, no centro**
+  - 💰 R$ 280.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-100-metros-do-mar-no-centro-1436612663
+
+- **Terreno para Venda em Balneário Gaivota, Turimar**
+  - 💰 R$ 320.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-turimar-1436361685
+
+- **Terreno para Venda em Balneário Gaivota, Balneário das Furnas**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-balneario-das-furnas-1436082401
+
+- **Dois Terrenos Próximos ao Mar com Excelente Potencial de Construção**
+  - 💰 R$ 1.115.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-proximos-ao-mar-com-excelente-potencial-de-construcao-1436051503
+
+- **Terreno a 70 metros da Av. Inter Praias**
+  - 💰 R$ 49.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-70-metros-da-av-inter-praias-1435380886
+
+- **Terreno Comercial/moradia de frente Av. Interpraias**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-moradia-de-frente-av-interpraias-1433788109
+
+- **Terrenos Perto do Mar Praia da Gaivota**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-perto-do-mar-praia-da-gaivota-1433489403
+
+- **Terreno Beira Mar Praia Areias Claras**
+  - 💰 R$ 330.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-beira-mar-praia-areias-claras-1432466646
+
+- **Terreno Frente Para o Mar 2°Quadra do Mar**
+  - 💰 R$ 265.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-para-o-mar-2-quadra-do-mar-1432466433
+
+- **Terreno a 250m do Mar Frente Oeste**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-250m-do-mar-frente-oeste-1432466369
+
+- **Terreno a 200m da Av. Interpraias**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-200m-da-av-interpraias-1432466045
+
+- **Terrenos Juntos Parcelado Próximo ao Centro**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-juntos-parcelado-proximo-ao-centro-1432466044
+
+- **Terreno 396,09m²: Versatilidade e Vistas Incríveis!**
+  - 💰 R$ 200.000 | 📐 396 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-396-09m-versatilidade-e-vistas-incriveis-1432359284
+
+- **Terreno de Esquina a 300 metros do mar no condomínio Furnas em Balneár**
+  - 💰 R$ 220.000 | 📐 343 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-300-metros-do-mar-no-condominio-furnas-em-balneario-gaivota-sc-1432297231
+
+- **Terreno à Venda  Praia Nova Torres, Balneário Gaivota/SC**
+  - 💰 R$ 65.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-praia-nova-torres-balneario-gaivota-sc-1432181055
+
+- **Terrenos a poucos metros do Mar no lagoa Cortada**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-poucos-metros-do-mar-no-lagoa-cortada-1432181048
+
+- **Terreno pronto para construir no mais belo loteamento da cidade**
+  - 💰 R$ 200.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-no-mais-belo-loteamento-da-cidade-1432180949
+
+- **Duas Ótimas opções para investir em Balneário Gaivota**
+  - 💰 R$ 420.000 | 📐 750 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/duas-otimas-opcoes-para-investir-em-balneario-gaivota-1432180973
+
+- **Terreno próximo a AV:Interpraias a 550 metros do Mar!!**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-av-interpraias-a-550-metros-do-mar-1432180979
+
+- **Terreno pronto para Construir próximo a escola e todo comércio**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-proximo-a-escola-e-todo-comercio-1432180982
+
+- **Terreno na praia Village Dunas**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-village-dunas-1432180873
+
+- **Bela Esquina no melhor Loteamento da Cidade**
+  - 💰 R$ 199.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/bela-esquina-no-melhor-loteamento-da-cidade-1432180861
+
+- **Terreno a poucos metros do mar na praia Janaina**
+  - 💰 R$ 140.000 | 📐 350 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-poucos-metros-do-mar-na-praia-janaina-1432180866
+
+- **Esquina na praia Areias Claras**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/esquina-na-praia-areias-claras-1432180833
+
+- **Terreno 326m²: Versatilidade e Vistas Incríveis!**
+  - 💰 R$ 200.000 | 📐 326 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-326m-versatilidade-e-vistas-incriveis-1431766285
+
+- **Terreno para Venda em Balneário Gaivota, Balneário das Furnas**
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-balneario-das-furnas-1431637914
+
+- **Terreno a Beira-Mar**
+  - 💰 R$ 170.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-beira-mar-1431584507
+
+- **Terreno com parcelamento na Nova Torres**
+  - 💰 R$ 99.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-parcelamento-na-nova-torres-1431379312
+
+- **Terreno parcelado bairro Nova Torres**
+  - 💰 R$ 99.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-bairro-nova-torres-1431375438
+
+- **Terreno no Loteamento Caminho da Lagoa..**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-caminho-da-lagoa-1431101435
+
+- **Terreno Esquina 2 Quadra do Mar no VilageDunas**
+  - 💰 R$ 199.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-2-quadra-do-mar-no-vilagedunas-1430982157
+
+- **Terreno de Esquina na Avenida a 800m do Mar**
+  - 💰 R$ 87.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-na-avenida-a-800m-do-mar-1430898938
+
+- **Terreno no Condomínio Lagoa Cortada a Poucos Metros do Mar**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-lagoa-cortada-a-poucos-metros-do-mar-1430898604
+
+- **Terreno na 3° Quadra do Mar Frente Sul**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-3-quadra-do-mar-frente-sul-1430446719
+
+- **Área de terra com fundo para lagoa de Sombrio**
+  - 💰 R$ 500.000 | 📐 20000 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-de-terra-com-fundo-para-lagoa-de-sombrio-1430054395
+
+- **Terreno a 300m do Mar Prox. a 8º Avenida**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-300m-do-mar-prox-a-8-avenida-1429552745
+
+- **2 Terrenos juntos a 50 metros do mar, na Lagoa Cortada**
+  - 💰 R$ 285.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-juntos-a-50-metros-do-mar-na-lagoa-cortada-1429552557
+
+- **Terreno pronto para construir, Balneário Gaivota - Lagoa Cortada**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-balneario-gaivota-lagoa-cortada-1429552433
+
+- **Terreno a 70mt do mar na Sumare**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-70mt-do-mar-na-sumare-1429147563
+
+- **Terreno parcelado no loteamento Novo Jardim Ultrmar**
+  - 💰 R$ 114.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-no-loteamento-novo-jardim-ultrmar-1429147547
+
+- **Terreno a 300m do Mar Prox. a 8º Avenida**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-300m-do-mar-prox-a-8-avenida-1429045129
+
+- **Terreno - Lagoa Cortada**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lagoa-cortada-1428744971
+
+- **Imóvel para venda tem 300 metros quadrados em Praia Lagoa Cortada - Ba**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-300-metros-quadrados-em-praia-lagoa-cortada-balneario-gaivota-sc-1428715972
+
+- **Terreno a venda**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1428448394
+
+- **Terreno na segunda do mar**
+  - 💰 R$ 270.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-segunda-do-mar-1428448396
+
+- **Lotes com Preço Especial em Área em Crescimento**
+  - 💰 R$ 55.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-com-preco-especial-em-area-em-crescimento-1428448274
+
+- **Terreno De Esquina a 100m da Beira Mar**
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-100m-da-beira-mar-1428448262
+
+- **Terreno segunda quadra do mar**
+  - 💰 R$ 89.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-segunda-quadra-do-mar-1428448167
+
+- **Terreno à venda**
+  - 💰 R$ 71.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1428448154
+
+- **TERRENO A UMA QUADRA DO MAR - BAIRRO JARDIM ULTRAMAR!**
+  - 💰 R$ 245.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-uma-quadra-do-mar-bairro-jardim-ultramar-1428447937
+
+- **Terreno próximo a praça**
+  - 💰 R$ 115.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-praca-1428447938
+
+- **Terreno à Venda Lagoa Cortada  400m do Mar!**
+  - 💰 R$ 175.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-lagoa-cortada-400m-do-mar-1428447847
+
+- **Terreno a venda da Lagoa de Fora em Balneário Gaivota-SC**
+  - 💰 R$ 110.000 | 📐 395 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-da-lagoa-de-fora-em-balneario-gaivota-sc-1428023407
+
+- **Belíssima oportunidade no bairro Janaína**
+  - 💰 R$ 83.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belissima-oportunidade-no-bairro-janaina-1426888004
+
+- **Terreno á 750m do mar para investimento**
+  - 💰 R$ 47.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-750m-do-mar-para-investimento-1426300017
+
+- **Terreno na segunda quadra do mar para investimento**
+  - 💰 R$ 62.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-segunda-quadra-do-mar-para-investimento-1426299521
+
+- **Loteamento Oasis na Lagoa de Fora Balneário Gaivota**
+  - 💰 R$ 149.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-oasis-na-lagoa-de-fora-balneario-gaivota-1426107206
+
+- **Terreno Comercial Frente Av. Interpraias e Frente Mar na Praia Valverd**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-frente-av-interpraias-e-frente-mar-na-praia-valverde-1425983567
+
+- **Terreno na Praia Valverde 300m do Mar**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-valverde-300m-do-mar-1425983474
+
+- **Terreno Frente Mar a 200m da Areia da Praia**
+  - 💰 R$ 175.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-a-200m-da-areia-da-praia-1425983146
+
+- **Terreno a Venda Segunda Quadra do Mar**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-segunda-quadra-do-mar-1425982947
+
+- **LINDO TERRENO NO BAIRRO FURNAS O MAIS DESEJADO DA CIDADE**
+  - 💰 R$ 98.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-no-bairro-furnas-o-mais-desejado-da-cidade-1425982848
+
+- **TERRENO ESCRITURADO NO BAIRRO MAIS QUERIDO DA CIDADE**
+  - 💰 R$ 98.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-no-bairro-mais-querido-da-cidade-1425982844
+
+- **Terreno de Esquina na praia Valverde Balneário Gaivota - SC**
+  - 💰 R$ 55.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-na-praia-valverde-balneario-gaivota-sc-1425982897
+
+- **TERRENO ESCRITURADO NA PRIMEIRA QUADRA DO MAR EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 88.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-na-primeira-quadra-do-mar-em-balneario-gaivota-1425982871
+
+- **Terreno na Praia Nova Torres em Balneario Gaivota**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-nova-torres-em-balneario-gaivota-1425982893
+
+- **Oportunidade Limitada Terreno no Bairro Furnas (Lagoa Cortada)**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-limitada-terreno-no-bairro-furnas-lagoa-cortada-1425982845
+
+- **Terreno segunda Quadra a 100mt do Mar**
+  - 💰 R$ 500.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-segunda-quadra-a-100mt-do-mar-1425982856
+
+- **Terreno Rural 22,6 ha 100% aproveitavel , Frente fazenda Petropar, Fun**
+  - 💰 R$ 2.400.000 | 📐 226000 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-22-6-ha-100-aproveitavel-frente-fazenda-petropar-fundos-lagoa-sombrio-1425122646
+
+- **Terreno para investimento a 750m do mar**
+  - 💰 R$ 47.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-a-750m-do-mar-1424680765
+
+- **Terreno na segunda quadra do mar Village Dunas II**
+  - 💰 R$ 62.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-segunda-quadra-do-mar-village-dunas-ii-1424491734
+
+- **Terreno na Praia Nova Torres- Balneario Gaivota SC**
+  - 💰 R$ 95.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-nova-torres-balneario-gaivota-sc-1423359622
+
+- **Terreno Bairro Furnas ( Lagoa Cortada)**
+  - 💰 R$ 140.000 | 📐 324 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-furnas-lagoa-cortada-1423067386
+
+- **Terreno Santa Fé ll**
+  - 💰 R$ 152.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-santa-fe-ll-1423067279
+
+- **Terreno na Praia Nova Torres- Balneario Gaivota SC**
+  - 💰 R$ 70.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-nova-torres-balneario-gaivota-sc-1422874105
+
+- **Terreno à Venda  Condomínio Lagoa Cortada**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-condominio-lagoa-cortada-1422873204
+
+- **Terreno na Praia Nova Torres- Balneario Gaivota SC**
+  - 💰 R$ 75.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-nova-torres-balneario-gaivota-sc-1422872896
+
+- **Terreno Vilagedunas -Balneario Gaivota**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vilagedunas-balneario-gaivota-1422872905
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas**
+  - 💰 R$ 210.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-1422780225
+
+- **Terreno para Venda em Balneário Gaivota, Santa Fé II**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-santa-fe-ii-1422779280
+
+- **Terreno de Esquina 450mt do Mar no Bairro Furnas**
+  - 💰 R$ 215.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-450mt-do-mar-no-bairro-furnas-1422741879
+
+- **Terreno Praia Guarajuba**
+  - 💰 R$ 73.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-guarajuba-1422741685
+
+- **TERRENO SUMARE 1**
+  - 💰 R$ 68.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sumare-1-1422741490
+
+- **Terreno 200mt do Mar SUMARE**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-200mt-do-mar-sumare-1422741519
+
+- **Terreno Rural 4,8 ha 100% aproveitavel**
+  - 💰 R$ 200.000 | 📐 48000 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-4-8-ha-100-aproveitavel-1422741263
+
+- **Terreno a poucos metros do Mar**
+  - 💰 R$ 300.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-poucos-metros-do-mar-1422741240
+
+- **Terreno a 180 metros do mar bairro Jardim Ultramar**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-180-metros-do-mar-bairro-jardim-ultramar-1422084273
+
+- **Terreno Frente Mar bairro Jardim Ultramar**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-bairro-jardim-ultramar-1422084174
+
+- **TERRENO ESCRITURADO COM EXELENTE LOCALIZAÇÃO**
+  - 💰 R$ 155.000 | 📐 330 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-com-exelente-localizacao-1422084086
+
+- **Dois terrenos juntos à 700m do mar Sumaré**
+  - 💰 R$ 100.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-juntos-a-700m-do-mar-sumare-1422084063
+
+- **Chácara à venda com 3.7 hectares em localização privilegiada**
+  - 💰 R$ 660.000 | 📐 80 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-com-3-7-hectares-em-localizacao-privilegiada-1421341697
+
+- **Terreno Balneário Gaivota**
+  - 💰 R$ 76.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-balneario-gaivota-1420889686
+
+- **Terreno à venda, 300 m² por R$ 65.000,00 - Sumaré I - Balneário Gaivot**
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-65-000-00-sumare-i-balneario-gaivota-sc-1420711934
+
+- **Terreno à venda, 300 m² por R$ 89.900,00 - Sumare - Balneário Gaivota/**
+  - 💰 R$ 89.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-89-900-00-sumare-balneario-gaivota-sc-1420038181
+
+- **Terreno à venda, 300 m² por R$ 89.900,00 - Sumare - Balneário Gaivota/**
+  - 💰 R$ 89.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-89-900-00-sumare-balneario-gaivota-sc-1420037834
+
+- **Terreno à venda, 300 m² por R$ 85.900,00 - Sumare - Balneário Gaivota/**
+  - 💰 R$ 85.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-85-900-00-sumare-balneario-gaivota-sc-1420037532
+
+- **Terreno para Venda em Balneário Gaivota, Balneário das Furnas**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-balneario-das-furnas-1416839505
+
+- **Super Oportunidade! Terreno de 297m² na Lagoa de Fora  Apenas 90m da R**
+  - 💰 R$ 100.000 | 📐 297 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/super-oportunidade-terreno-de-297m-na-lagoa-de-fora-apenas-90m-da-rodovia-jose-tiskoski-1411525827
+
+- **Terreno 330m² a 600m da Praia em Balneário Gaivota  Oportunidade Única**
+  - 💰 R$ 169.600 | 📐 330 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-330m-a-600m-da-praia-em-balneario-gaivota-oportunidade-unica-1407779990
+
+- **Terreno para Venda em Balneário Gaivota, Balneário Tropical**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-balneario-tropical-1404614731
+
+- **Terreno à venda, 300 m² por R$ 110.000,00 - Sumare - Balneário Gaivota**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-110-000-00-sumare-balneario-gaivota-sc-1401820093
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas II**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-ii-1399285450
+
+- **Terreno para Venda em Balneário Gaivota, Balneário das Furnas**
+  - 💰 R$ 265.000 | 📐 325 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-balneario-das-furnas-1397479438
+
+- **Terreno a venda da Lagoa de Fora em Balneário Gaivota-SC**
+  - 💰 R$ 140.000 | 📐 589 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-da-lagoa-de-fora-em-balneario-gaivota-sc-1395725441
+
+- **Terreno à venda, 300 m² por R$ 95.000,00 - Sumare - Balneário Gaivota/**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-95-000-00-sumare-balneario-gaivota-sc-1386027735
+
+- **Terreno à venda, 264 m² por R$ 99.000 - Valverde - Balneário Gaivota/S**
+  - 💰 R$ 99.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-264-m-por-r-99-000-valverde-balneario-gaivota-sc-1385809920
+
+- **Terreno à venda, 300 m² por R$ 75.000,00 - Sumare - Balneário Gaivota/**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-75-000-00-sumare-balneario-gaivota-sc-1385809834
+
+- **Terreno à venda, 300 m² por R$ 90.000,00 - Sumare - Balneário Gaivota/**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-90-000-00-sumare-balneario-gaivota-sc-1385809813
+
+- **Terreno à venda, 300 m² por R$ 60.000,00 - Sumaré I - Balneário Gaivot**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-60-000-00-sumare-i-balneario-gaivota-sc-1385809732
+
+- **Terreno para Venda em Balneário Gaivota, Turimar**
+  - 💰 R$ 160.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-turimar-1385366262
+
+- **Terreno para Venda em Balneário Gaivota, VILLAGE DUNAS**
+  - 💰 R$ 153.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-1380960014
+
+- **TE13575TE13575**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/te13575te13575-1363761455
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-1341746630
+
+- **excecelente terreno localizado no bairro lagoa de fora. Sombrio SC**
+  - 💰 R$ 150.000 | 📐 420 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excecelente-terreno-localizado-no-bairro-lagoa-de-fora-sombrio-sc-1254952166
+
+- **Terreno para Venda em Balneário Gaivota, Janaina**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-janaina-1247733048
+
+- **Terreno para Venda em Balneário Gaivota, Turimar**
+  - 💰 R$ 190.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-turimar-1227621725
+
+- **Terreno à venda, 288 m² por R$ 220.000,00 - Centro - Balneário Gaivota**
+  - 💰 R$ 220.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-288-m-por-r-220-000-00-centro-balneario-gaivota-sc-1049797352
+
+- **Sítio à venda, 3 dormitórios sendo 1 suíte, Figueira Bordignon - Timbé**
+  - 💰 R$ 550.000 | 📐 200 m²
+  - 📍  — Timbé do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-3-dormitorios-sendo-1-suite-figueira-bordignon-timbe-do-sul-sc-1383250022
+
