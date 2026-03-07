@@ -437,14 +437,21 @@
       border-bottom: 1px solid var(--border);
     }
 
-    /* ── ABAS VIZINHOS NA POPUP ── */
+    .popup-abas-titulo {
+      font-size: 10px;
+      font-weight: 600;
+      color: var(--muted);
+      text-transform: uppercase;
+      letter-spacing: .06em;
+      margin-top: 10px;
+      padding-top: 10px;
+      border-top: 1px solid var(--border);
+      margin-bottom: 6px;
+    }
     .popup-abas {
       display: flex;
       flex-wrap: wrap;
       gap: 5px;
-      margin-top: 10px;
-      padding-top: 10px;
-      border-top: 1px solid var(--border);
     }
     .popup-aba {
       width: 28px; height: 28px;
@@ -616,7 +623,7 @@
 
   <div id="contador">
     <b id="n-vis">0</b> de <b>3669</b> anúncios visíveis
-    <div id="atualizado">Atualizado: 07/03/2026 21:57</div>
+    <div id="atualizado">Atualizado: 07/03/2026 22:04</div>
   </div>
 </div>
 
@@ -719,11 +726,12 @@ function buildPopup(lista, idx) {
   // Abas de vizinhos
   let abas = '';
   if (lista.length > 1) {
-    abas = `<div class="popup-abas">` +
+    abas = `<div class="popup-abas-titulo">📍 Imóveis próximos a esse</div>
+    <div class="popup-abas">` +
       lista.map((v, i) => `
         <div class="popup-aba ${i === idx ? 'ativa' : ''}"
              onclick="trocarAba(this, ${i})"
-             title="${v.preco_fmt}">
+             title="${v.preco_fmt} · ${v.area_fmt}">
           ${i + 1}
         </div>`).join('') +
       `</div>`;
@@ -750,14 +758,17 @@ function buildPopup(lista, idx) {
 
 // Raio para agrupar vizinhos na popup (graus ~200m)
 const RAIO_VIZINHOS = 0.002;
-let _popupAtual = null; // { lista, marker }
+let _popupAtual = null;
 
 function abrirPopupAgrupada(marcadorClicado) {
   const d0 = marcadorClicado._d;
 
-  // Encontra todos os marcadores próximos visíveis
+  // Só inclui marcadores que passaram nos filtros ativos (estão em `visiveis`)
+  const idsVisiveis = new Set(visiveis.map(d => d.id));
+
   const lista = marcadores.filter(m => {
     if (!m._d) return false;
+    if (!idsVisiveis.has(m._d.id)) return false; // respeita filtros
     const dlat = m._d.lat - d0.lat;
     const dlon = m._d.lon - d0.lon;
     return Math.sqrt(dlat*dlat + dlon*dlon) <= RAIO_VIZINHOS;
@@ -772,20 +783,22 @@ function abrirPopupAgrupada(marcadorClicado) {
 
   _popupAtual = { lista, marker: marcadorClicado };
 
-  const popup = L.popup({ maxWidth: 300, minWidth: 280, closeButton: true })
+  L.popup({ maxWidth: 300, minWidth: 280, closeButton: true })
     .setLatLng(marcadorClicado.getLatLng())
     .setContent(buildPopup(lista, 0))
     .openOn(map);
 
-  // Botão voltar mobile fecha popup
+  // Botão voltar mobile — empurra estado e escuta popstate
   history.pushState({ popup: true }, '');
-  window.onpopstate = (e) => {
-    if (map.isPopupOpen()) {
-      map.closePopup();
-      history.replaceState(null, '');
-    }
-  };
 }
+
+// Listener global de popstate — fecha popup ao apertar voltar
+window.addEventListener('popstate', (e) => {
+  if (map.isPopupOpen()) {
+    map.closePopup();
+    e.preventDefault();
+  }
+});
 
 // Troca aba dentro da popup
 function trocarAba(el, idx) {
