@@ -623,7 +623,7 @@
 
   <div id="contador">
     <b id="n-vis">0</b> de <b>3669</b> anúncios visíveis
-    <div id="atualizado">Atualizado: 07/03/2026 22:04</div>
+    <div id="atualizado">Atualizado: 07/03/2026 22:11</div>
   </div>
 </div>
 
@@ -759,22 +759,24 @@ function buildPopup(lista, idx) {
 // Raio para agrupar vizinhos na popup (graus ~200m)
 const RAIO_VIZINHOS = 0.002;
 let _popupAtual = null;
+let _popupObj = null; // referência direta ao objeto popup aberto
 
 function abrirPopupAgrupada(marcadorClicado) {
   const d0 = marcadorClicado._d;
 
-  // Só inclui marcadores que passaram nos filtros ativos (estão em `visiveis`)
-  const idsVisiveis = new Set(visiveis.map(d => d.id));
+  // visiveis é preenchido pela função aplicar() — filtra por área/preço/novo
+  // Usa os IDs dos marcadores que estão no cluster (passaram nos filtros)
+  const idsNoCluster = new Set();
+  cluster.eachLayer(m => { if (m._d) idsNoCluster.add(m._d.id); });
 
   const lista = marcadores.filter(m => {
     if (!m._d) return false;
-    if (!idsVisiveis.has(m._d.id)) return false; // respeita filtros
+    if (!idsNoCluster.has(m._d.id)) return false;
     const dlat = m._d.lat - d0.lat;
     const dlon = m._d.lon - d0.lon;
     return Math.sqrt(dlat*dlat + dlon*dlon) <= RAIO_VIZINHOS;
   }).map(m => m._d);
 
-  // Ordena: o clicado primeiro, resto por preço
   lista.sort((a, b) => {
     if (a === d0) return -1;
     if (b === d0) return 1;
@@ -783,33 +785,33 @@ function abrirPopupAgrupada(marcadorClicado) {
 
   _popupAtual = { lista, marker: marcadorClicado };
 
-  L.popup({ maxWidth: 300, minWidth: 280, closeButton: true })
+  _popupObj = L.popup({ maxWidth: 300, minWidth: 280, closeButton: true })
     .setLatLng(marcadorClicado.getLatLng())
-    .setContent(buildPopup(lista, 0))
-    .openOn(map);
+    .setContent(buildPopup(lista, 0));
 
-  // Botão voltar mobile — empurra estado e escuta popstate
+  _popupObj.openOn(map);
+
+  // Empurra estado para interceptar botão voltar
   history.pushState({ popup: true }, '');
 }
 
-// Listener global de popstate — fecha popup ao apertar voltar
-window.addEventListener('popstate', (e) => {
-  if (map.isPopupOpen()) {
+// Botão voltar fecha popup em vez de sair do site
+window.addEventListener('popstate', () => {
+  if (_popupObj && map.hasLayer(_popupObj)) {
+    map.removeLayer(_popupObj);
+    _popupObj = null;
+  } else if (map.isPopupOpen && map.isPopupOpen()) {
     map.closePopup();
-    e.preventDefault();
   }
 });
 
 // Troca aba dentro da popup
 function trocarAba(el, idx) {
   if (!_popupAtual) return;
-  map.openPopup(
-    L.popup({ maxWidth: 300, minWidth: 280, closeButton: true })
-      .setLatLng(_popupAtual.marker.getLatLng())
-      .setContent(buildPopup(_popupAtual.lista, idx))
-  );
-  // Reaplica estado do histórico
-  history.replaceState({ popup: true }, '');
+  _popupObj = L.popup({ maxWidth: 300, minWidth: 280, closeButton: true })
+    .setLatLng(_popupAtual.marker.getLatLng())
+    .setContent(buildPopup(_popupAtual.lista, idx));
+  _popupObj.openOn(map);
 }
 
 const marcadores = DADOS.map(d => {
