@@ -593,7 +593,7 @@
 
   <div id="contador">
     <b id="n-vis">0</b> de <b>3669</b> anúncios visíveis
-    <div id="atualizado">Atualizado: 07/03/2026 21:32</div>
+    <div id="atualizado">Atualizado: 07/03/2026 21:40</div>
   </div>
 </div>
 
@@ -649,7 +649,7 @@ function toggleTheme() {
 }
 
 // ── Mapa ──
-const map = L.map('map', { zoomControl: false }).setView([-28.6808, -49.3697], 12);
+const map = L.map('map', { zoomControl: false }).setView([-29.1044, -49.7839], 11);
 L.control.zoom({ position: 'topleft' }).addTo(map);
 
 const tileLayer = L.tileLayer('https://{s}.basemaps.cartocdn.com/light_all/{z}/{x}/{y}{r}.png', {
@@ -660,34 +660,14 @@ tileLayer.addTo(map);
 
 
 // ── Marcadores ──
-const ZOOM_FOTO = 12; // zoom para aparecer fotos (mais cedo)
-const MAX_FOTOS = 10;
-
-// Dispersa marcadores com mesma coordenada para não empilhar
-(function dispersarDuplicados() {
-  const vistos = {};
-  DADOS.forEach(d => {
-    const chave = `${d.lat.toFixed(4)},${d.lon.toFixed(4)}`;
-    vistos[chave] = (vistos[chave] || 0) + 1;
-    const n = vistos[chave];
-    if (n > 1) {
-      // Espalha em espiral ao redor do ponto original
-      const angulo = (n - 1) * 2.4; // ângulo em radianos (espiral áurea)
-      const raio   = 0.0003 * Math.sqrt(n - 1);
-      d.lat = d.lat + raio * Math.cos(angulo);
-      d.lon = d.lon + raio * Math.sin(angulo);
-    }
-  });
-})();
 
 let cluster = L.markerClusterGroup({
   chunkedLoading: true,
   maxClusterRadius: 50,
-  disableClusteringAtZoom: ZOOM_FOTO, // desagrupa automaticamente no zoom certo
 });
 map.addLayer(cluster);
 
-function criarIconeBolinha(d) {
+function criarIcone(d) {
   return L.divIcon({
     className: '',
     html: `<div style="
@@ -698,57 +678,12 @@ function criarIconeBolinha(d) {
       font-size:12px;
       box-shadow:0 2px 8px rgba(0,0,0,.5);
       border:2px solid rgba(255,255,255,.15);
+      transition:transform .15s;
     ">${d.novo ? '★' : '⌂'}</div>`,
     iconSize: [26,26],
     iconAnchor: [13,13],
     popupAnchor: [0,-16],
   });
-}
-
-function criarIconeFoto(d) {
-  const borda = d.novo ? '#f43f5e' : d.cor;
-  if (d.foto) {
-    return L.divIcon({
-      className: '',
-      html: `<div style="
-        width:104px; height:104px;
-        border-radius:12px;
-        border:3px solid ${borda};
-        box-shadow:0 4px 16px rgba(0,0,0,.7);
-        overflow:hidden;
-        background:#1a1d27;
-        cursor:pointer;
-        position:relative;
-      ">
-        <img src="${d.foto}" style="width:100%;height:100%;object-fit:cover;"
-          onerror="this.parentElement.innerHTML='🏡'">
-        ${d.novo ? '<div style="position:absolute;top:3px;right:3px;background:#f43f5e;color:white;font-size:9px;font-weight:700;padding:2px 5px;border-radius:4px;">NEW</div>' : ''}
-      </div>`,
-      iconSize: [104,104],
-      iconAnchor: [52,52],
-      popupAnchor: [0,-56],
-    });
-  }
-  // Sem foto: bolinha maior
-  return L.divIcon({
-    className: '',
-    html: `<div style="
-      background:${d.cor};
-      border-radius:50%;
-      width:36px;height:36px;
-      display:flex;align-items:center;justify-content:center;
-      font-size:16px;
-      box-shadow:0 3px 12px rgba(0,0,0,.6);
-      border:3px solid ${borda};
-    ">${d.novo ? '★' : '⌂'}</div>`,
-    iconSize: [36,36],
-    iconAnchor: [18,18],
-    popupAnchor: [0,-20],
-  });
-}
-
-function criarIcone(d) {
-  return map.getZoom() >= ZOOM_FOTO ? criarIconeFoto(d) : criarIconeBolinha(d);
 }
 
 function buildPopup(d) {
@@ -775,36 +710,11 @@ function buildPopup(d) {
 }
 
 const marcadores = DADOS.map(d => {
-  const m = L.marker([d.lat, d.lon], { icon: criarIconeBolinha(d) });
+  const m = L.marker([d.lat, d.lon], { icon: criarIcone(d) });
   m.bindPopup(buildPopup(d), { maxWidth: 300, minWidth: 280 });
   m.bindTooltip(`${d.novo ? '🆕 ' : ''}${d.preco_fmt} · ${d.area_fmt}`);
   m._d = d;
   return m;
-});
-
-// ── Troca ícones ao mudar zoom ──
-let _fotoTimeout = null;
-map.on('zoomend moveend', () => {
-  clearTimeout(_fotoTimeout);
-  _fotoTimeout = setTimeout(() => {
-    const zoom = map.getZoom();
-    const bounds = map.getBounds();
-
-    if (zoom >= ZOOM_FOTO) {
-      // Pega só marcadores visíveis na tela, limita a MAX_FOTOS
-      const visiveis = marcadores
-        .filter(m => m._d && bounds.contains(m.getLatLng()))
-        .slice(0, MAX_FOTOS);
-
-      marcadores.forEach(m => {
-        const ehVisivel = visiveis.includes(m);
-        m.setIcon(ehVisivel ? criarIconeFoto(m._d) : criarIconeBolinha(m._d));
-      });
-    } else {
-      // Volta para bolinhas em zoom baixo
-      marcadores.forEach(m => m.setIcon(criarIconeBolinha(m._d)));
-    }
-  }, 200); // debounce 200ms para não travar ao arrastar
 });
 
 // ── Sidebar ──
