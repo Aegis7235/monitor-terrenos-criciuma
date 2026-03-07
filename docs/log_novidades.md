@@ -18406,3 +18406,51 @@
 
 ## ✅ Sem novidades — 07/03/2026 20:55
 
+
+## 🆕 9 novos anúncios — 07/03/2026 21:08
+
+- **SÍTIO A VENDA em NOVA TRENTO**
+  - 💰 R$ 280.000 | 📐 4100 m²
+  - 📍 Centro — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-nova-trento-1473781191
+
+- **Sítio em Anitápolis 35.000m2**
+  - 💰 R$ 300.000 | 📐 35000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-anitapolis-35-000m2-1483835530
+
+- **Lote no Condomínio Garopaba Internacional**
+  - 💰 R$ 700.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-condominio-garopaba-internacional-1415428893
+
+- **Oportunidade! Terreno em Praia de Fora - Palhoça**
+  - 💰 R$ 8.000 | 📐 4584 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-praia-de-fora-palhoca-1451189340
+
+- **Vendo ou troco  3 terrenos**
+  - 💰 R$ 150.000 | 📐 7500 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-3-terrenos-1477323579
+
+- **Lote de terreno**
+  - 💰 R$ 45.000 | 📐 12 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-terreno-1467261861
+
+- **Terreno na Praia do Rosa 360m2 na área central com escritura**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-do-rosa-360m2-na-area-central-com-escritura-1471988603
+
+- **Terreno 239m² - Bela Vista**
+  - 💰 R$ 304.000 | 📐 239 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-239m-bela-vista-1425978027
+
+- **Rancho Queimado SC - Terreno Condomínio Vila Dorf à Venda, Boa Vista, **
+  - 💰 R$ 305.000 | 📐 1663 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/rancho-queimado-sc-terreno-condominio-vila-dorf-a-venda-boa-vista-1-663-00-m-1480534935
+
