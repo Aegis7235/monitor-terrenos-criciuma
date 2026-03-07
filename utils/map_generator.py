@@ -648,7 +648,7 @@ def gerar_mapa(anuncios, novos_ids=None, output="docs/mapa.html"):
 
   <div class="f-block">
     <div class="f-label">Área mínima <span id="lbl-area">0 m²</span></div>
-    <input type="range" id="sl-area" min="0" max="{area_max}" step="50" value="0">
+    <input type="range" id="sl-area" min="0" max="{area_max}" step="50" value="5000">
   </div>
 
   <div class="f-block">
@@ -899,6 +899,7 @@ document.getElementById('tog-novos').addEventListener('change', aplicar);
 document.getElementById('sidebar-search').addEventListener('input', () => buildSidebar(visiveis));
 
 // Init
+document.getElementById('lbl-area').textContent = '5.000 m²';
 aplicar();
 
 // ── Mobile: painel expande ao clicar no título ──
