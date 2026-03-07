@@ -16,8 +16,9 @@ LOG = "docs/log_novidades.md"
 
 # ── Configurações ─────────────────────────────────────────────────────────────
 LIMITE_PENDENTES = 50    # Se houver mais pendentes que isso, pula o scraping
-GEO_POR_RODADA   = 999  # Quantos anúncios geocodificar por execução
+GEO_POR_RODADA   = 200  # Quantos anúncios geocodificar por execução
 FORCAR_SCRAPING  = False # True = ignora o limite de pendentes e força scraping
+APENAS_MAPA      = False # True = pula scraping e geocodificação, só gera o mapa
 # ─────────────────────────────────────────────────────────────────────────────
 
 
@@ -47,7 +48,10 @@ def main():
     # 1. Banco
     init_db()
 
-    # 2. Verifica pendentes
+    if APENAS_MAPA:
+        print("\n🗺️  Modo APENAS_MAPA — pulando scraping e geocodificação...")
+    else:
+        # 2. Verifica pendentes
     pendentes = carregar_sem_coordenadas(LIMITE_PENDENTES + 1)
     novos = []
 
@@ -69,10 +73,11 @@ def main():
         pendentes = carregar_sem_coordenadas(GEO_POR_RODADA)
 
     # 5. Geocodifica pendentes
-    pendentes = carregar_sem_coordenadas(GEO_POR_RODADA)
-    if pendentes:
-        print(f"\n▶ Geocodificando {len(pendentes)} anúncios...")
-        geocodificar_anuncios(pendentes, atualizar_coordenadas)
+    if not APENAS_MAPA:
+        pendentes = carregar_sem_coordenadas(GEO_POR_RODADA)
+        if pendentes:
+            print(f"\n▶ Geocodificando {len(pendentes)} anúncios...")
+            geocodificar_anuncios(pendentes, atualizar_coordenadas)
 
     # 6. Mapa
     print("\n▶ Gerando mapa...")
