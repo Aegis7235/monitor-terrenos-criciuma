@@ -1,7 +1,24 @@
-import json, time, re, requests, os
+"""
+OLX Scraper — sem ScraperAPI
+Usa cloudscraper + headers realistas para bypass do Cloudflare.
+Fallback automático para ScraperAPI se cloudscraper falhar (opcional).
+"""
+import json, time, re, os
 from bs4 import BeautifulSoup
 from datetime import datetime
 
+try:
+    import cloudscraper
+    _scraper = cloudscraper.create_scraper(
+        browser={"browser": "chrome", "platform": "windows", "mobile": False}
+    )
+except ImportError:
+    import requests as _scraper_fallback
+    _scraper = None
+
+import requests
+
+# Opcional: só usado se cloudscraper falhar e a chave estiver definida
 SCRAPERAPI_KEY = os.environ.get("SCRAPERAPI_KEY", "")
 
 OLX_URLS = [
@@ -11,18 +28,58 @@ OLX_URLS = [
     "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/nova-veneza",
     "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/cocal-do-sul",
     "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/morro-da-fumaca",
+    # Expanda adicionando mais cidades abaixo:
+    # "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/sideropolis",
+    # "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/maracaja",
+    # "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/sangao",
 ]
+
+HEADERS = {
+    "User-Agent": (
+        "Mozilla/5.0 (Windows NT 10.0; Win64; x64) "
+        "AppleWebKit/537.36 (KHTML, like Gecko) "
+        "Chrome/124.0.0.0 Safari/537.36"
+    ),
+    "Accept-Language": "pt-BR,pt;q=0.9,en-US;q=0.8",
+    "Accept": "text/html,application/xhtml+xml,application/xml;q=0.9,*/*;q=0.8",
+    "Referer": "https://www.olx.com.br/",
+}
+
+
+def _get_cloudscraper(url):
+    """Tenta buscar com cloudscraper (gratuito, bypassa Cloudflare)."""
+    try:
+        r = _scraper.get(url, headers=HEADERS, timeout=30)
+        if r.status_code == 200 and len(r.text) > 5000:
+            return r
+        print(f"[OLX] cloudscraper retornou {r.status_code} / {len(r.text)} bytes")
+    except Exception as e:
+        print(f"[OLX] cloudscraper erro: {e}")
+    return None
+
+
+def _get_scraperapi(url):
+    """Fallback pago — só usa se SCRAPERAPI_KEY estiver definida."""
+    if not SCRAPERAPI_KEY:
+        return None
+    try:
+        payload = {"api_key": SCRAPERAPI_KEY, "url": url, "country_code": "br", "render": "false"}
+        r = requests.get("https://api.scraperapi.com/", params=payload, timeout=60)
+        if r.status_code == 200:
+            print("[OLX] ⚠️  Usou ScraperAPI (fallback pago)")
+            return r
+    except Exception as e:
+        print(f"[OLX] ScraperAPI erro: {e}")
+    return None
 
 
 def _get(url):
-    payload = {
-        "api_key": SCRAPERAPI_KEY,
-        "url": url,
-        "country_code": "br",
-        "render": "false",
-    }
-    r = requests.get("https://api.scraperapi.com/", params=payload, timeout=60)
-    return r
+    """Tenta cloudscraper primeiro; cai no ScraperAPI só se necessário."""
+    r = _get_cloudscraper(url)
+    if r:
+        return r
+    print("[OLX] cloudscraper falhou → tentando ScraperAPI...")
+    return _get_scraperapi(url)
 
 
 def _total_paginas(soup):
@@ -33,6 +90,12 @@ def _total_paginas(soup):
             if m:
                 total = int(m.group(1))
                 return max(1, (total + 24) // 25)
+        # Fallback: conta paginação no HTML
+        pags = soup.find_all("a", attrs={"data-testid": re.compile(r"pagination")})
+        if pags:
+            nums = [int(re.search(r'\d+', p.get_text()).group()) for p in pags if re.search(r'\d+', p.get_text())]
+            if nums:
+                return max(nums)
     except Exception:
         pass
     return 10
@@ -40,7 +103,6 @@ def _total_paginas(soup):
 
 def parsear_card(section):
     try:
-        # URL e ID
         link = section.find("a", attrs={"data-testid": "adcard-link"})
         if not link:
             return None
@@ -50,20 +112,17 @@ def parsear_card(section):
         if not anuncio_id:
             return None
 
-        # Título
         titulo = ""
         titulo_tag = section.find("h2", class_=re.compile(r"olx-adcard__title"))
         if titulo_tag:
             titulo = titulo_tag.get_text(strip=True)
 
-        # Preço
         preco = None
         preco_tag = section.find("h3", class_=re.compile(r"olx-adcard__price"))
         if preco_tag:
             nums = re.sub(r"\D", "", preco_tag.get_text(strip=True))
             preco = int(nums) if nums else None
 
-        # Localização
         cidade, bairro = "", ""
         loc_tag = section.find("p", class_=re.compile(r"olx-adcard__location"))
         if loc_tag:
@@ -71,7 +130,6 @@ def parsear_card(section):
             cidade = partes[0] if partes else ""
             bairro = partes[1] if len(partes) > 1 else ""
 
-        # Área
         area = None
         detail = section.find("div", class_=re.compile(r"olx-adcard__detail"), attrs={"aria-label": True})
         if detail:
@@ -83,7 +141,6 @@ def parsear_card(section):
             if m:
                 area = int(re.sub(r"\.", "", m.group(1)))
 
-        # Foto — primeiro <source srcSet="...webp"> dentro de olx-adcard__media
         foto = None
         media = section.find("div", class_=re.compile(r"olx-adcard__media"))
         if media:
@@ -121,6 +178,9 @@ def scrape_olx():
             print(f"[OLX] Página {pagina}: {url}")
             try:
                 r = _get(url)
+                if not r:
+                    print(f"[OLX] Sem resposta — encerrando esta URL")
+                    break
                 if r.status_code != 200:
                     print(f"[OLX] HTTP {r.status_code} — encerrando")
                     break
@@ -145,7 +205,8 @@ def scrape_olx():
                 if pagina >= total_pags:
                     break
 
-                time.sleep(2)
+                # Delay aleatório para não parecer bot
+                time.sleep(2.5 + (pagina % 3) * 0.7)
 
             except Exception as e:
                 print(f"[OLX] Erro: {e}")
