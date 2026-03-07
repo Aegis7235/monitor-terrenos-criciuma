@@ -1,9 +1,10 @@
 """
-OLX Scraper — sem ScraperAPI
-Usa cloudscraper + headers realistas para bypass do Cloudflare.
-Fallback automático para ScraperAPI se cloudscraper falhar (opcional).
+OLX Scraper — cloudscraper com fallback ScraperAPI
+Logs explícitos de qual método foi usado em cada página.
+Usa URL regional SC para pegar todas as cidades de uma vez,
+mais URLs específicas para cidades menores com menos anúncios.
 """
-import json, time, re, os
+import time, re, os
 from bs4 import BeautifulSoup
 from datetime import datetime
 
@@ -13,25 +14,35 @@ try:
         browser={"browser": "chrome", "platform": "windows", "mobile": False}
     )
 except ImportError:
-    import requests as _scraper_fallback
     _scraper = None
 
 import requests
 
-# Opcional: só usado se cloudscraper falhar e a chave estiver definida
 SCRAPERAPI_KEY = os.environ.get("SCRAPERAPI_KEY", "")
 
+BASE = "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao"
+
 OLX_URLS = [
-    "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/criciuma",
-    "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/icara",
-    "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/forquilhinha",
-    "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/nova-veneza",
-    "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/cocal-do-sul",
-    "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/morro-da-fumaca",
-    # Expanda adicionando mais cidades abaixo:
-    # "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/sideropolis",
-    # "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/maracaja",
-    # "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao/outras-cidades/sangao",
+    # URL regional — pega TODOS os terrenos da região de uma vez
+    # Inclui Criciúma, Içara, Tubarão, Araranguá e todas as cidades automaticamente
+    f"{BASE}",
+
+    # Cidades menores que podem não aparecer na busca regional
+    f"{BASE}/outras-cidades/nova-veneza",
+    f"{BASE}/outras-cidades/cocal-do-sul",
+    f"{BASE}/outras-cidades/morro-da-fumaca",
+    f"{BASE}/outras-cidades/sideropolis",
+    f"{BASE}/outras-cidades/treviso",
+    f"{BASE}/outras-cidades/urussanga",
+    f"{BASE}/outras-cidades/lauro-muller",
+    f"{BASE}/outras-cidades/sangao",
+    f"{BASE}/outras-cidades/maracaja",
+    f"{BASE}/outras-cidades/jaguaruna",
+    f"{BASE}/outras-cidades/turvo",
+    f"{BASE}/outras-cidades/jacinto-machado",
+    f"{BASE}/outras-cidades/sombrio",
+    f"{BASE}/outras-cidades/santa-rosa-do-sul",
+    f"{BASE}/outras-cidades/praia-grande",
 ]
 
 HEADERS = {
@@ -45,41 +56,51 @@ HEADERS = {
     "Referer": "https://www.olx.com.br/",
 }
 
+# Contadores para resumo no final
+_stats = {"cloudscraper": 0, "scraperapi": 0, "falhou": 0}
+
 
 def _get_cloudscraper(url):
-    """Tenta buscar com cloudscraper (gratuito, bypassa Cloudflare)."""
+    if not _scraper:
+        return None
     try:
         r = _scraper.get(url, headers=HEADERS, timeout=30)
         if r.status_code == 200 and len(r.text) > 5000:
             return r
-        print(f"[OLX] cloudscraper retornou {r.status_code} / {len(r.text)} bytes")
+        print(f"[OLX] cloudscraper → {r.status_code} / {len(r.text)} bytes")
     except Exception as e:
         print(f"[OLX] cloudscraper erro: {e}")
     return None
 
 
 def _get_scraperapi(url):
-    """Fallback pago — só usa se SCRAPERAPI_KEY estiver definida."""
     if not SCRAPERAPI_KEY:
         return None
     try:
         payload = {"api_key": SCRAPERAPI_KEY, "url": url, "country_code": "br", "render": "false"}
         r = requests.get("https://api.scraperapi.com/", params=payload, timeout=60)
-        if r.status_code == 200:
-            print("[OLX] ⚠️  Usou ScraperAPI (fallback pago)")
+        if r.status_code == 200 and len(r.text) > 5000:
             return r
+        print(f"[OLX] ScraperAPI → {r.status_code}")
     except Exception as e:
         print(f"[OLX] ScraperAPI erro: {e}")
     return None
 
 
 def _get(url):
-    """Tenta cloudscraper primeiro; cai no ScraperAPI só se necessário."""
     r = _get_cloudscraper(url)
     if r:
+        _stats["cloudscraper"] += 1
+        print(f"[OLX] ✅ GRÁTIS (cloudscraper)")
         return r
-    print("[OLX] cloudscraper falhou → tentando ScraperAPI...")
-    return _get_scraperapi(url)
+    print(f"[OLX] cloudscraper falhou → tentando ScraperAPI...")
+    r = _get_scraperapi(url)
+    if r:
+        _stats["scraperapi"] += 1
+        print(f"[OLX] ⚠️  PAGO (ScraperAPI)")
+        return r
+    _stats["falhou"] += 1
+    return None
 
 
 def _total_paginas(soup):
@@ -90,7 +111,6 @@ def _total_paginas(soup):
             if m:
                 total = int(m.group(1))
                 return max(1, (total + 24) // 25)
-        # Fallback: conta paginação no HTML
         pags = soup.find_all("a", attrs={"data-testid": re.compile(r"pagination")})
         if pags:
             nums = [int(re.search(r'\d+', p.get_text()).group()) for p in pags if re.search(r'\d+', p.get_text())]
@@ -169,34 +189,36 @@ def parsear_card(section):
 
 def scrape_olx():
     anuncios = []
+    _stats["cloudscraper"] = 0
+    _stats["scraperapi"] = 0
+    _stats["falhou"] = 0
 
     for base_url in OLX_URLS:
         total_pags = None
+        nome_url = base_url.split("/")[-1] or "regional-sc"
+        print(f"\n[OLX] ── {nome_url} ──")
 
-        for pagina in range(1, 11):
+        for pagina in range(1, 21):
             url = f"{base_url}?o={pagina}" if pagina > 1 else base_url
-            print(f"[OLX] Página {pagina}: {url}")
+            print(f"[OLX] Página {pagina}...")
             try:
                 r = _get(url)
                 if not r:
-                    print(f"[OLX] Sem resposta — encerrando esta URL")
-                    break
-                if r.status_code != 200:
-                    print(f"[OLX] HTTP {r.status_code} — encerrando")
+                    print(f"[OLX] Sem resposta — próxima URL")
                     break
 
                 soup = BeautifulSoup(r.text, "lxml")
 
                 if total_pags is None:
                     total_pags = _total_paginas(soup)
-                    print(f"[OLX] Total estimado de páginas: {total_pags}")
+                    print(f"[OLX] Total de páginas: {total_pags}")
 
                 cards = soup.find_all("section", class_=re.compile(r"olx-adcard"))
                 if not cards:
-                    print(f"[OLX] Nenhum card na página {pagina} — fim")
+                    print(f"[OLX] Sem cards — fim desta URL")
                     break
 
-                print(f"[OLX] Página {pagina}: {len(cards)} cards")
+                print(f"[OLX] {len(cards)} cards encontrados")
                 for card in cards:
                     a = parsear_card(card)
                     if a:
@@ -205,7 +227,6 @@ def scrape_olx():
                 if pagina >= total_pags:
                     break
 
-                # Delay aleatório para não parecer bot
                 time.sleep(2.5 + (pagina % 3) * 0.7)
 
             except Exception as e:
@@ -214,5 +235,10 @@ def scrape_olx():
 
     vistos = set()
     unicos = [a for a in anuncios if a["id"] not in vistos and not vistos.add(a["id"])]
+
+    print(f"\n[OLX] ── Resumo de requisições ──")
+    print(f"[OLX] ✅ Grátis (cloudscraper): {_stats['cloudscraper']} páginas")
+    print(f"[OLX] ⚠️  Pago  (ScraperAPI):   {_stats['scraperapi']} páginas")
+    print(f"[OLX] ❌ Falhou:                {_stats['falhou']} páginas")
     print(f"[OLX] Total: {len(unicos)} anúncios únicos")
     return unicos
