@@ -743,20 +743,19 @@ const tileLayer = L.tileLayer('https://{{s}}.basemaps.cartocdn.com/light_all/{{z
 }});
 tileLayer.addTo(map);
 
-L.circle([{CRICIUMA[0]}, {CRICIUMA[1]}], {{
-  radius: 30000,
-  color: '#6366f1',
-  fill: true,
-  fillOpacity: 0.04,
-  weight: 1,
-  dashArray: '6 4'
-}}).bindTooltip('Raio de 30km').addTo(map);
 
 // ── Marcadores ──
-let cluster = L.markerClusterGroup({{ chunkedLoading: true, maxClusterRadius: 50 }});
+const ZOOM_FOTO = 14; // zoom mínimo para mostrar fotos
+const MAX_FOTOS = 10; // máximo de fotos visíveis ao mesmo tempo
+
+let cluster = L.markerClusterGroup({{
+  chunkedLoading: true,
+  maxClusterRadius: 50,
+  disableClusteringAtZoom: ZOOM_FOTO, // desagrupa automaticamente no zoom certo
+}});
 map.addLayer(cluster);
 
-function criarIcone(d) {{
+function criarIconeBolinha(d) {{
   return L.divIcon({{
     className: '',
     html: `<div style="
@@ -767,12 +766,57 @@ function criarIcone(d) {{
       font-size:12px;
       box-shadow:0 2px 8px rgba(0,0,0,.5);
       border:2px solid rgba(255,255,255,.15);
-      transition:transform .15s;
     ">${{d.novo ? '★' : '⌂'}}</div>`,
     iconSize: [26,26],
     iconAnchor: [13,13],
     popupAnchor: [0,-16],
   }});
+}}
+
+function criarIconeFoto(d) {{
+  const borda = d.novo ? '#f43f5e' : d.cor;
+  if (d.foto) {{
+    return L.divIcon({{
+      className: '',
+      html: `<div style="
+        width:52px; height:52px;
+        border-radius:8px;
+        border:3px solid ${{borda}};
+        box-shadow:0 3px 12px rgba(0,0,0,.6);
+        overflow:hidden;
+        background:#1a1d27;
+        cursor:pointer;
+        position:relative;
+      ">
+        <img src="${{d.foto}}" style="width:100%;height:100%;object-fit:cover;"
+          onerror="this.parentElement.innerHTML='🏡'">
+        ${{d.novo ? '<div style="position:absolute;top:2px;right:2px;background:#f43f5e;color:white;font-size:7px;font-weight:700;padding:1px 3px;border-radius:3px;">NEW</div>' : ''}}
+      </div>`,
+      iconSize: [52,52],
+      iconAnchor: [26,26],
+      popupAnchor: [0,-30],
+    }});
+  }}
+  // Sem foto: bolinha maior
+  return L.divIcon({{
+    className: '',
+    html: `<div style="
+      background:${{d.cor}};
+      border-radius:50%;
+      width:36px;height:36px;
+      display:flex;align-items:center;justify-content:center;
+      font-size:16px;
+      box-shadow:0 3px 12px rgba(0,0,0,.6);
+      border:3px solid ${{borda}};
+    ">${{d.novo ? '★' : '⌂'}}</div>`,
+    iconSize: [36,36],
+    iconAnchor: [18,18],
+    popupAnchor: [0,-20],
+  }});
+}}
+
+function criarIcone(d) {{
+  return map.getZoom() >= ZOOM_FOTO ? criarIconeFoto(d) : criarIconeBolinha(d);
 }}
 
 function buildPopup(d) {{
@@ -799,11 +843,36 @@ function buildPopup(d) {{
 }}
 
 const marcadores = DADOS.map(d => {{
-  const m = L.marker([d.lat, d.lon], {{ icon: criarIcone(d) }});
+  const m = L.marker([d.lat, d.lon], {{ icon: criarIconeBolinha(d) }});
   m.bindPopup(buildPopup(d), {{ maxWidth: 300, minWidth: 280 }});
   m.bindTooltip(`${{d.novo ? '🆕 ' : ''}}${{d.preco_fmt}} · ${{d.area_fmt}}`);
   m._d = d;
   return m;
+}});
+
+// ── Troca ícones ao mudar zoom ──
+let _fotoTimeout = null;
+map.on('zoomend moveend', () => {{
+  clearTimeout(_fotoTimeout);
+  _fotoTimeout = setTimeout(() => {{
+    const zoom = map.getZoom();
+    const bounds = map.getBounds();
+
+    if (zoom >= ZOOM_FOTO) {{
+      // Pega só marcadores visíveis na tela, limita a MAX_FOTOS
+      const visiveis = marcadores
+        .filter(m => m._d && bounds.contains(m.getLatLng()))
+        .slice(0, MAX_FOTOS);
+
+      marcadores.forEach(m => {{
+        const ehVisivel = visiveis.includes(m);
+        m.setIcon(ehVisivel ? criarIconeFoto(m._d) : criarIconeBolinha(m._d));
+      }});
+    }} else {{
+      // Volta para bolinhas em zoom baixo
+      marcadores.forEach(m => m.setIcon(criarIconeBolinha(m._d)));
+    }}
+  }}, 200); // debounce 200ms para não travar ao arrastar
 }});
 
 // ── Sidebar ──
