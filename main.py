@@ -1,11 +1,10 @@
 """
-Monitor de Terrenos — Criciúma/SC (raio 30km)
+Monitor de Terrenos — Sul Catarinense
 Roda no GitHub Actions a cada 6h. Salva mapa + log em /docs (GitHub Pages).
 """
 import os
 from datetime import datetime
 from scrapers.olx_scraper import scrape_olx
-from scrapers.vivareal_zap_scraper import scrape_vivareal_zap
 from utils.database import (
     init_db, salvar_anuncios, carregar_todos,
     carregar_sem_coordenadas, atualizar_coordenadas, total_no_banco
@@ -14,9 +13,12 @@ from utils.geocoder import geocodificar_anuncios
 from utils.map_generator import gerar_mapa
 
 LOG = "docs/log_novidades.md"
-LIMITE_PENDENTES = 50
-FORCAR_SCRAPING   = False   # Mude para False após rodar uma vez   # Se houver mais que isso sem coordenadas, pula o scraping
-GEO_POR_RODADA   = 999  # Quantos anúncios geocodificar por execução
+
+# ── Configurações ─────────────────────────────────────────────────────────────
+LIMITE_PENDENTES = 50    # Se houver mais pendentes que isso, pula o scraping
+GEO_POR_RODADA   = 200  # Quantos anúncios geocodificar por execução
+FORCAR_SCRAPING  = False # True = ignora o limite de pendentes e força scraping
+# ─────────────────────────────────────────────────────────────────────────────
 
 
 def escrever_log(novos):
@@ -38,36 +40,32 @@ def escrever_log(novos):
 def main():
     sep = "=" * 55
     print(sep)
-    print("  Monitor de Terrenos | Criciúma/SC | raio 30km")
+    print("  Monitor de Terrenos | Sul Catarinense")
     print(f"  {datetime.now().strftime('%d/%m/%Y %H:%M:%S')}")
     print(sep)
 
     # 1. Banco
     init_db()
 
-    # 2. Verifica pendentes antes de gastar créditos da API
+    # 2. Verifica pendentes
     pendentes = carregar_sem_coordenadas(LIMITE_PENDENTES + 1)
     novos = []
 
     if len(pendentes) > LIMITE_PENDENTES and not FORCAR_SCRAPING:
         print(f"\n⏭️  {len(pendentes)} anúncios pendentes de geocodificação.")
-        print(f"   Scraping pulado para economizar créditos da API.")
+        print(f"   Scraping pulado — geocodificando primeiro.")
     else:
-        print(f"\n  Pendentes: {len(pendentes)} — abaixo do limite, iniciando scraping...")
+        print(f"\n  Pendentes: {len(pendentes)} — iniciando scraping...")
 
-        # 3. Coleta
+        # 3. Coleta OLX
         print("\n▶ Coletando OLX...")
         olx = scrape_olx()
-        print("\n▶ Coletando ZAP/VivaReal...")
-        zap = scrape_vivareal_zap()
-        todos = olx + zap
-        print(f"\n  Total coletado: {len(todos)} anúncios")
+        print(f"\n  Total coletado: {len(olx)} anúncios")
 
         # 4. Salva / detecta novos
-        novos = salvar_anuncios(todos)
+        novos = salvar_anuncios(olx)
         print(f"  🆕 Novos: {len(novos)}")
 
-        # Recarrega pendentes após salvar os novos
         pendentes = carregar_sem_coordenadas(GEO_POR_RODADA)
 
     # 5. Geocodifica pendentes
