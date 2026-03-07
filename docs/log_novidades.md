@@ -6551,3 +6551,21 @@
   - 📍 Monte Castelo — Tubarão
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-condominio-quinta-do-lago-monte-castelo-tubarao-sc-1483156126
 
+
+## 🆕 3 novos anúncios — 07/03/2026 16:51
+
+- **Terreno para Venda em Balneário Gaivota, SANTA FÉ**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-santa-fe-1483744768
+
+- **Vedendo terreno**
+  - 💰 R$ 60.000 | 📐 420 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vedendo-terreno-1483740291
+
+- **Terreno em Ibiraquera- Imbituba com 180,00 m2**
+  - 💰 R$ 550.000 | 📐 180 m²
+  - 📍 Ibiraquera — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ibiraquera-imbituba-com-180-00-m2-1483717501
+
