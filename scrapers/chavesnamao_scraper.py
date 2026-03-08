@@ -262,19 +262,24 @@ def extrair_offers_ldjson(soup: BeautifulSoup) -> list[dict]:
 
             # ItemList ou AggregateOffer com lista de offers
             elif tipo in ("ItemList", "Product", "RealEstateListing"):
-                for sub in obj.get("offers", []) + obj.get("itemListElement", []):
-                    if isinstance(sub, dict):
-                        if sub.get("@type") == "Offer":
-                            a = parsear_offer(sub)
+                raw_offers = obj.get("offers", [])
+                raw_items  = obj.get("itemListElement", [])
+                # Garante que ambos são listas
+                if isinstance(raw_offers, dict): raw_offers = [raw_offers]
+                if isinstance(raw_items,  dict): raw_items  = [raw_items]
+                for sub in (raw_offers + raw_items):
+                    if not isinstance(sub, dict):
+                        continue
+                    if sub.get("@type") == "Offer":
+                        a = parsear_offer(sub)
+                        if a:
+                            offers.append(a)
+                    elif sub.get("@type") == "ListItem":
+                        inner = sub.get("item", {})
+                        if isinstance(inner, dict) and inner.get("@type") == "Offer":
+                            a = parsear_offer(inner)
                             if a:
                                 offers.append(a)
-                        # ListItem pode ter "item" dentro
-                        elif sub.get("@type") == "ListItem":
-                            inner = sub.get("item", {})
-                            if isinstance(inner, dict) and inner.get("@type") == "Offer":
-                                a = parsear_offer(inner)
-                                if a:
-                                    offers.append(a)
 
             # Bloco com "offers" no topo (ex: Product com offers:[...])
             elif "offers" in obj:
