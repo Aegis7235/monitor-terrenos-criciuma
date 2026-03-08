@@ -4,3 +4,4 @@ cloudscraper==1.2.71
 folium==0.17.0
 geopy==2.4.1
 lxml==5.1.0
+playwright
