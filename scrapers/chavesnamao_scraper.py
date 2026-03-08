@@ -242,15 +242,35 @@ def extrair_offers_ldjson(soup):
                         if a:
                             offers.append(a)
 
-            # offers (AggregateOffer etc)
+            # offers — pode ser Offer direto, ItemList, ou AggregateOffer
             raw = obj.get("offers", [])
             if isinstance(raw, dict):
                 raw = [raw]
             for sub in raw:
-                if isinstance(sub, dict) and sub.get("@type") == "Offer":
+                if not isinstance(sub, dict):
+                    continue
+                if sub.get("@type") == "Offer":
                     a = parsear_offer(sub)
                     if a:
                         offers.append(a)
+                elif sub.get("@type") == "ItemList":
+                    # RealEstateListing -> offers -> ItemList -> itemListElement -> Offer
+                    subitems = sub.get("itemListElement", [])
+                    if isinstance(subitems, dict):
+                        subitems = [subitems]
+                    for subitem in subitems:
+                        if not isinstance(subitem, dict):
+                            continue
+                        if subitem.get("@type") == "Offer":
+                            a = parsear_offer(subitem)
+                            if a:
+                                offers.append(a)
+                        elif subitem.get("@type") == "ListItem":
+                            inner = subitem.get("item", {})
+                            if isinstance(inner, dict) and inner.get("@type") == "Offer":
+                                a = parsear_offer(inner)
+                                if a:
+                                    offers.append(a)
 
     return offers
 
