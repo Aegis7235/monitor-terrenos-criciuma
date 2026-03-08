@@ -18,46 +18,35 @@ import requests
 
 SCRAPERAPI_KEY = os.environ.get("SCRAPERAPI_KEY", "")
 
-BASE = "https://www.chavesnamao.com.br/terrenos-a-venda/sc-santa-catarina"
+BASE_TERRENOS = "https://www.chavesnamao.com.br/terrenos-a-venda"
+BASE_CHACARAS = "https://www.chavesnamao.com.br/chacaras-a-venda"
 
-# Cidades do sul catarinense — slugs do Chaves na Mão
-CNM_URLS = [
+# Cidades do sul catarinense — padrão: /sc-{cidade}/
+# Coleta terrenos + chácaras (ambas categorias relevantes para o projeto)
+_CIDADES = [
     # ── Núcleo ────────────────────────────────────────────────────────────────
-    f"{BASE}/criciuma/",
-    f"{BASE}/icara/",
-    f"{BASE}/forquilhinha/",
-    f"{BASE}/ararangua/",
+    "sc-criciuma", "sc-icara", "sc-forquilhinha", "sc-ararangua",
 
     # ── Extremo Sul SC ────────────────────────────────────────────────────────
-    f"{BASE}/sombrio/",
-    f"{BASE}/santa-rosa-do-sul/",
-    f"{BASE}/sao-joao-do-sul/",
-    f"{BASE}/passo-de-torres/",
-    f"{BASE}/balneario-gaivota/",
-    f"{BASE}/praia-grande/",
-    f"{BASE}/timbe-do-sul/",
-    f"{BASE}/jacinto-machado/",
+    "sc-sombrio", "sc-santa-rosa-do-sul", "sc-sao-joao-do-sul",
+    "sc-passo-de-torres", "sc-balneario-gaivota", "sc-praia-grande",
+    "sc-timbe-do-sul", "sc-jacinto-machado",
 
     # ── Região de Turvo ───────────────────────────────────────────────────────
-    f"{BASE}/turvo/",
-    f"{BASE}/meleiro/",
-    f"{BASE}/ermo/",
-    f"{BASE}/morro-grande/",
+    "sc-turvo", "sc-meleiro", "sc-ermo", "sc-morro-grande",
 
     # ── Serra / Transição ─────────────────────────────────────────────────────
-    f"{BASE}/lauro-muller/",
-    f"{BASE}/sideropolis/",
-    f"{BASE}/urussanga/",
-    f"{BASE}/nova-veneza/",
-    f"{BASE}/cocal-do-sul/",
-    f"{BASE}/morro-da-fumaca/",
+    "sc-lauro-muller", "sc-sideropolis", "sc-urussanga",
+    "sc-nova-veneza", "sc-cocal-do-sul", "sc-morro-da-fumaca",
 
     # ── Litoral Sul ───────────────────────────────────────────────────────────
-    f"{BASE}/balneario-rincao/",
-    f"{BASE}/jaguaruna/",
-    f"{BASE}/sangao/",
-    f"{BASE}/maracaja/",
+    "sc-balneario-rincao", "sc-jaguaruna", "sc-sangao", "sc-maracaja",
 ]
+
+CNM_URLS = (
+    [f"{BASE_TERRENOS}/{c}/" for c in _CIDADES] +
+    [f"{BASE_CHACARAS}/{c}/"  for c in _CIDADES]
+)
 
 HEADERS = {
     "User-Agent": (
