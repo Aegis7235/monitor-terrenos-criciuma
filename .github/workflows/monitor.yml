@@ -1,35 +1,23 @@
 name: Monitor de Terrenos
-
 on:
   workflow_dispatch:
   schedule:
     - cron: "0 3,9,15,21 * * *"
-
 jobs:
   monitorar:
     runs-on: ubuntu-latest
     permissions:
       contents: write
-
     steps:
       - uses: actions/checkout@v4
-
       - uses: actions/setup-python@v5
         with:
           python-version: "3.11"
-
       - run: pip install -r requirements.txt
-
-      - name: Instalar Playwright
-        run: |
-          pip install playwright
-          playwright install chromium --with-deps
-
       - name: Executar monitor
         env:
           SCRAPERAPI_KEY: ${{ secrets.SCRAPERAPI_KEY }}
         run: python main.py
-
       - run: |
           git config user.email "bot@monitor-terrenos"
           git config user.name "Monitor Bot"
