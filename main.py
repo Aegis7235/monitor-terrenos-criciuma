@@ -23,7 +23,7 @@ APENAS_MAPA      = False # True = pula scraping e geocodificação, só gera o m
 
 # Fontes ativas — comente a linha ou mude para False para desativar
 FONTES = {
-    "olx":         True,
+    "olx":         False,
     "chavesnamao": True,
 }
 # ─────────────────────────────────────────────────────────────────────────────
