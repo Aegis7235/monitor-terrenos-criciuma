@@ -281,7 +281,39 @@ def scrape_chavesnamao():
 
                 if pagina == 1:
                     total_pags = _total_paginas(soup)
-                    print(f"[CNM] {total_pags} paginas | ldjson={len(soup.find_all('script', type='application/ld+json'))}")
+                    scripts = soup.find_all("script", type="application/ld+json")
+                    print(f"[CNM] {total_pags} paginas | {len(scripts)} blocos ld+json | html={len(html)} bytes")
+
+                    # Dump completo para diagnóstico — mostra estrutura de cada bloco
+                    for i, tag in enumerate(scripts):
+                        raw = tag.string or ""
+                        try:
+                            obj = json.loads(raw)
+                            objs = obj if isinstance(obj, list) else [obj]
+                            for j, o in enumerate(objs):
+                                tipo = o.get("@type", "?")
+                                chaves = list(o.keys())
+                                # itemListElement
+                                items = o.get("itemListElement", [])
+                                if isinstance(items, dict): items = [items]
+                                tipos_items = [x.get("@type","?") for x in items if isinstance(x, dict)]
+                                # offers
+                                offs = o.get("offers", [])
+                                if isinstance(offs, dict): offs = [offs]
+                                tipos_offs = [x.get("@type","?") for x in offs if isinstance(x, dict)]
+                                print(f"[CNM]   [{i}.{j}] @type={tipo} chaves={chaves}")
+                                if tipos_items:
+                                    print(f"[CNM]        itemListElement[{len(tipos_items)}]: {tipos_items[:5]}")
+                                if tipos_offs:
+                                    print(f"[CNM]        offers[{len(tipos_offs)}]: {tipos_offs[:5]}")
+                        except Exception as e:
+                            print(f"[CNM]   [{i}] JSON invalido: {e} | primeiros 200 chars: {raw[:200]}")
+
+                    # Salva HTML completo para inspecao manual
+                    os.makedirs("docs", exist_ok=True)
+                    with open(f"docs/debug_cnm_{nome_url}_p{pagina}.html", "w", encoding="utf-8") as dbg:
+                        dbg.write(html)
+                    print(f"[CNM] HTML salvo: docs/debug_cnm_{nome_url}_p{pagina}.html")
 
                 novos_offers = extrair_offers_ldjson(soup)
 
