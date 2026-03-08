@@ -1,8 +1,10 @@
 """
 Chaves na Mão Scraper — Sul Catarinense
-cloudscraper com fallback ScraperAPI. Mesma estrutura do OLX scraper.
+cloudscraper com fallback ScraperAPI.
+Extrai dados via <script type="application/ld+json"> (Schema.org Offer),
+estratégia muito mais robusta que parsear HTML/Next.js.
 """
-import time, re, os
+import time, re, os, json
 from bs4 import BeautifulSoup
 from datetime import datetime
 
@@ -21,8 +23,6 @@ SCRAPERAPI_KEY = os.environ.get("SCRAPERAPI_KEY", "")
 BASE_TERRENOS = "https://www.chavesnamao.com.br/terrenos-a-venda"
 BASE_CHACARAS = "https://www.chavesnamao.com.br/chacaras-a-venda"
 
-# Cidades do sul catarinense — padrão: /sc-{cidade}/
-# Coleta terrenos + chácaras (ambas categorias relevantes para o projeto)
 _CIDADES = [
     # ── Núcleo ────────────────────────────────────────────────────────────────
     "sc-criciuma", "sc-icara", "sc-forquilhinha", "sc-ararangua",
@@ -61,6 +61,8 @@ HEADERS = {
 
 _stats = {"cloudscraper": 0, "scraperapi": 0, "falhou": 0}
 
+
+# ── HTTP ──────────────────────────────────────────────────────────────────────
 
 def _get_cloudscraper(url):
     if not _scraper:
@@ -105,189 +107,195 @@ def _get(url):
     return None
 
 
+# ── Paginação ─────────────────────────────────────────────────────────────────
+
 def _total_paginas(soup):
-    """Detecta número total de páginas na listagem do Chaves na Mão."""
+    """Detecta número total de páginas via links ?pagina=N ou contagem de imóveis."""
     try:
-        # Chaves na Mão usa paginação com links ?pagina=N
         pags = soup.find_all("a", href=re.compile(r'pagina=\d+'))
         if pags:
-            nums = []
-            for p in pags:
-                m = re.search(r'pagina=(\d+)', p.get("href", ""))
-                if m:
-                    nums.append(int(m.group(1)))
+            nums = [int(re.search(r'pagina=(\d+)', p["href"]).group(1))
+                    for p in pags if re.search(r'pagina=(\d+)', p.get("href", ""))]
             if nums:
                 return max(nums)
 
-        # Fallback: busca span/div com total de imóveis
         total_tag = soup.find(string=re.compile(r'\d+\s+im[oó]ve[li]s?', re.I))
         if total_tag:
             m = re.search(r'(\d+)', total_tag)
             if m:
-                total = int(m.group(1))
-                return max(1, (total + 19) // 20)  # ~20 por página
+                return max(1, (int(m.group(1)) + 19) // 20)
     except Exception:
         pass
     return 5  # fallback conservador
 
 
-def _extrair_id(url):
-    """Extrai ID único do anúncio pela URL."""
-    # Padrão: /imovel/12345678/ ou /terreno-a-venda/slug-12345678/
-    m = re.search(r'/(\d{6,})(?:/|$)', url)
+# ── Extração principal via ld+json ────────────────────────────────────────────
+
+def _extrair_area_url(url: str) -> int | None:
+    """Tenta extrair área em m² diretamente da URL do anúncio.
+    Ex: ...criciuma-sao-simao-3162m2-RS590000/...  →  3162
+    """
+    m = re.search(r'-(\d+(?:[.,]\d+)?)m2-', url, re.I)
+    if m:
+        return int(re.sub(r'[.,]', '', m.group(1)))
+    return None
+
+
+def _extrair_area_floorsize(item_offered: dict) -> int | None:
+    """Extrai área do campo floorSize.unitText  ex: '3.162m²' ou '200m²'."""
+    fs = item_offered.get("floorSize", {})
+    texto = fs.get("unitText", "")
+    if texto:
+        m = re.search(r'([\d.,]+)', texto)
+        if m:
+            return int(re.sub(r'[.,]', '', m.group(1)))
+    return None
+
+
+def _extrair_id(url: str) -> str | None:
+    m = re.search(r'/id-(\d+)/', url)
     return m.group(1) if m else None
 
 
-def parsear_card(card):
-    """
-    Parseia um card de anúncio do Chaves na Mão.
-    O site usa classes como 'property-card', 'listing-card', ou similar.
-    Tenta múltiplas estratégias para máxima robustez.
-    """
+def parsear_offer(offer: dict) -> dict | None:
+    """Parseia um objeto @type:Offer do ld+json do Chaves na Mão."""
     try:
-        # ── URL e ID ──
-        link = card.find("a", href=re.compile(r'/imovel/|/terreno'))
-        if not link:
-            link = card.find("a", href=True)
-        if not link:
-            return None
+        url      = offer.get("url", "")
+        titulo   = offer.get("name", "").strip()
+        preco_s  = offer.get("price", "0")
 
-        url = link.get("href", "")
-        if not url.startswith("http"):
-            url = "https://www.chavesnamao.com.br" + url
+        if not url or not titulo:
+            return None
 
         anuncio_id = _extrair_id(url)
         if not anuncio_id:
             return None
 
-        # ── Título ──
-        titulo = ""
-        for sel in [
-            card.find("h2"),
-            card.find("h3"),
-            card.find(class_=re.compile(r'title|titulo|heading', re.I)),
-        ]:
-            if sel and sel.get_text(strip=True):
-                titulo = sel.get_text(strip=True)
-                break
+        # Preço
+        try:
+            preco = int(float(str(preco_s))) if preco_s else None
+            if preco == 0:
+                preco = None
+        except (ValueError, TypeError):
+            preco = None
 
-        # ── Preço ──
-        preco = None
-        for sel in [
-            card.find(class_=re.compile(r'price|preco|valor', re.I)),
-            card.find("span", string=re.compile(r'R\$')),
-            card.find(string=re.compile(r'R\$\s*[\d\.]+')),
-        ]:
-            if sel:
-                texto = sel.get_text(strip=True) if hasattr(sel, 'get_text') else str(sel)
-                nums = re.sub(r"\D", "", re.sub(r'R\$', '', texto))
-                if nums and int(nums) > 1000:
-                    preco = int(nums)
-                    break
+        # Item ofertado (dados do imóvel)
+        item = offer.get("itemOffered", {})
 
-        # ── Área ──
-        area = None
-        texto_card = card.get_text(" ", strip=True)
-        for pattern in [
-            r'(\d[\d\.]*)\s*m[²2]',
-            r'(\d[\d\.]*)\s*metros?\s*quadrados?',
-            r'[Áá]rea[:\s]+(\d[\d\.]*)',
-        ]:
-            m = re.search(pattern, texto_card, re.I)
+        # Área: tenta floorSize → URL → descrição
+        area = _extrair_area_floorsize(item)
+        if not area:
+            area = _extrair_area_url(url)
+        if not area:
+            desc = item.get("description", "")
+            m = re.search(r'([\d.,]+)\s*m[²2]', desc, re.I)
             if m:
-                area = int(re.sub(r"\.", "", m.group(1)))
-                if area > 0:
-                    break
+                area = int(re.sub(r'[.,]', '', m.group(1)))
 
-        # ── Localização ──
-        cidade, bairro = "", ""
-        for sel in [
-            card.find(class_=re.compile(r'location|localiza|endereco|address', re.I)),
-            card.find(class_=re.compile(r'city|cidade', re.I)),
-        ]:
-            if sel:
-                partes = [p.strip() for p in re.split(r'[,\-–]', sel.get_text(strip=True)) if p.strip()]
-                cidade  = partes[0] if partes else ""
-                bairro  = partes[1] if len(partes) > 1 else ""
-                break
+        # Endereço
+        addr   = item.get("address", {})
+        bairro = addr.get("addressLocality", "").strip()
+        regiao = addr.get("addressRegion", "")   # ex: "Criciúma, SC"
+        cidade = regiao.split(",")[0].strip() if regiao else ""
+        estado = regiao.split(",")[-1].strip() if "," in regiao else "SC"
+        rua    = addr.get("streetAddress", "").strip()
+        if rua in ("não disponível", ""):
+            rua = ""
 
-        # Se não achou cidade, tenta extrair do título ou URL
-        if not cidade:
-            m = re.search(r'em\s+([A-ZÀ-Ú][a-zà-ú]+(?:\s+[A-ZÀ-Ú][a-zà-ú]+)*)', titulo)
-            if m:
-                cidade = m.group(1)
+        # Coordenadas
+        geo  = item.get("geo", {})
+        lat  = float(geo.get("latitude",  0) or 0)
+        lon  = float(geo.get("longitude", 0) or 0)
 
-        # ── Foto ──
-        foto = None
-        for img_tag in [
-            card.find("img", src=re.compile(r'https?://')),
-            card.find("img", attrs={"data-src": True}),
-            card.find("img", attrs={"data-lazy": True}),
-        ]:
-            if img_tag:
-                foto = (
-                    img_tag.get("src") or
-                    img_tag.get("data-src") or
-                    img_tag.get("data-lazy") or
-                    ""
-                )
-                if foto and "placeholder" not in foto and "blank" not in foto:
-                    break
-                foto = None
+        # Foto
+        foto = item.get("image", "")
+
+        # Descrição curta
+        descricao = item.get("description", "")[:300]
 
         return {
             "id":          f"cnm_{anuncio_id}",
-            "titulo":      titulo[:120] or "Terreno à venda",
+            "titulo":      titulo[:120],
             "preco":       preco,
             "area_m2":     area,
             "cidade":      cidade,
             "bairro":      bairro,
-            "estado":      "SC",
+            "rua":         rua,
+            "estado":      estado,
+            "lat":         lat if lat != 0 else None,
+            "lon":         lon if lon != 0 else None,
             "url":         url,
             "fonte":       "ChavesNaMão",
             "foto":        foto,
-            "descricao":   "",
+            "descricao":   descricao,
             "data_coleta": datetime.now().isoformat(),
         }
 
     except Exception as e:
-        print(f"[CNM] Erro ao parsear card: {e}")
+        print(f"[CNM] Erro ao parsear offer: {e}")
         return None
 
 
-def _encontrar_cards(soup):
+def extrair_offers_ldjson(soup: BeautifulSoup) -> list[dict]:
     """
-    Tenta múltiplas estratégias para encontrar os cards de anúncios.
-    O Chaves na Mão pode mudar classes com o tempo.
+    Varre todos os <script type="application/ld+json"> da página
+    e coleta objetos @type:Offer (diretos ou dentro de ItemList/Product).
     """
-    estrategias = [
-        # Estratégia 1: classes conhecidas
-        lambda: soup.find_all(class_=re.compile(r'property-card|listing-card|imovel-card|card-imovel', re.I)),
-        # Estratégia 2: artigos com link para imóvel
-        lambda: [a.parent for a in soup.find_all("a", href=re.compile(r'/imovel/')) if a.parent],
-        # Estratégia 3: divs com preço dentro
-        lambda: [d for d in soup.find_all("div", recursive=False) if d.find(string=re.compile(r'R\$'))],
-        # Estratégia 4: li dentro de ul de listagem
-        lambda: soup.find("ul", class_=re.compile(r'list|listing|results', re.I)) and
-                soup.find("ul", class_=re.compile(r'list|listing|results', re.I)).find_all("li") or [],
-    ]
-
-    for estrategia in estrategias:
+    offers = []
+    for tag in soup.find_all("script", type="application/ld+json"):
         try:
-            cards = estrategia()
-            if cards and len(cards) > 0:
-                return cards
-        except Exception:
+            data = json.loads(tag.string or "")
+        except (json.JSONDecodeError, TypeError):
             continue
 
-    return []
+        # Pode ser lista no topo
+        items = data if isinstance(data, list) else [data]
 
+        for obj in items:
+            tipo = obj.get("@type", "")
+
+            # Offer direto
+            if tipo == "Offer":
+                a = parsear_offer(obj)
+                if a:
+                    offers.append(a)
+
+            # ItemList ou AggregateOffer com lista de offers
+            elif tipo in ("ItemList", "Product", "RealEstateListing"):
+                for sub in obj.get("offers", []) + obj.get("itemListElement", []):
+                    if isinstance(sub, dict):
+                        if sub.get("@type") == "Offer":
+                            a = parsear_offer(sub)
+                            if a:
+                                offers.append(a)
+                        # ListItem pode ter "item" dentro
+                        elif sub.get("@type") == "ListItem":
+                            inner = sub.get("item", {})
+                            if isinstance(inner, dict) and inner.get("@type") == "Offer":
+                                a = parsear_offer(inner)
+                                if a:
+                                    offers.append(a)
+
+            # Bloco com "offers" no topo (ex: Product com offers:[...])
+            elif "offers" in obj:
+                raw = obj["offers"]
+                lista = raw if isinstance(raw, list) else [raw]
+                for sub in lista:
+                    if isinstance(sub, dict) and sub.get("@type") == "Offer":
+                        a = parsear_offer(sub)
+                        if a:
+                            offers.append(a)
+
+    return offers
+
+
+# ── Scraper principal ─────────────────────────────────────────────────────────
 
 def scrape_chavesnamao():
     anuncios = []
     _stats["cloudscraper"] = 0
-    _stats["scraperapi"] = 0
-    _stats["falhou"] = 0
+    _stats["scraperapi"]   = 0
+    _stats["falhou"]       = 0
 
     for base_url in CNM_URLS:
         total_pags = None
@@ -295,7 +303,6 @@ def scrape_chavesnamao():
         print(f"\n[CNM] ── {nome_url} ──")
 
         for pagina in range(1, 11):  # máx 10 páginas por cidade
-            # Chaves na Mão usa ?pagina=N para paginação
             url = f"{base_url}?pagina={pagina}" if pagina > 1 else base_url
             print(f"[CNM] Página {pagina}...")
 
@@ -307,32 +314,30 @@ def scrape_chavesnamao():
 
                 soup = BeautifulSoup(r.text, "lxml")
 
-                # DEBUG — remove após corrigir o parser
-                if pagina == 1 and "criciuma" in base_url:
-                    import os as _os
-                    _os.makedirs("docs", exist_ok=True)
-                    with open("docs/debug_cnm.html", "w", encoding="utf-8") as _f:
-                        _f.write(r.text)
-                    print("[CNM] DEBUG: HTML salvo em docs/debug_cnm.html")
+                # Detecta total de páginas na 1ª requisição
+                if pagina == 1:
                     total_pags = _total_paginas(soup)
-                    print(f"[CNM] Total de páginas: {total_pags}")
+                    print(f"[CNM] Total de páginas estimado: {total_pags}")
 
-                cards = _encontrar_cards(soup)
-                if not cards:
-                    print(f"[CNM] Sem cards — fim desta cidade")
+                    # DEBUG: salva HTML apenas para primeira cidade de cada tipo
+                    if "criciuma" in base_url:
+                        os.makedirs("docs", exist_ok=True)
+                        with open("docs/debug_cnm.html", "w", encoding="utf-8") as f:
+                            f.write(r.text)
+                        print("[CNM] DEBUG: HTML salvo em docs/debug_cnm.html")
+
+                novos_offers = extrair_offers_ldjson(soup)
+
+                if not novos_offers:
+                    print(f"[CNM] Sem offers no ld+json — fim desta cidade")
                     break
 
-                print(f"[CNM] {len(cards)} cards encontrados")
+                print(f"[CNM] {len(novos_offers)} offers encontrados")
                 antes = len(anuncios)
-                for card in cards:
-                    a = parsear_card(card)
-                    if a and a.get("titulo") and a.get("url"):
-                        anuncios.append(a)
+                anuncios.extend(novos_offers)
+                print(f"[CNM] {len(anuncios) - antes} anúncios adicionados")
 
-                novos = len(anuncios) - antes
-                print(f"[CNM] {novos} anúncios válidos desta página")
-
-                if not novos or pagina >= total_pags:
+                if pagina >= total_pags:
                     break
 
                 time.sleep(2.0 + (pagina % 3) * 0.5)
