@@ -18752,3 +18752,2111 @@
 
 ## ✅ Sem novidades — 08/03/2026 22:03
 
+
+## 🆕 421 novos anúncios — 08/03/2026 22:24
+
+- **Terreno à venda na Avenida Centenário, Centro, Criciúma**
+  - 💰 R$ 2.610.000 | 📐 549 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-centro-549m2-RS2610000/id-16480522/
+
+- **Terreno de esquina a venda Loteamento Vale do Horizonte Linha Anta Cri**
+  - 💰 R$ 90.000 | 📐 432 m²
+  - 📍 Linha Anta — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-linha-anta-432m2-RS90000/id-32984146/
+
+- **Terreno à venda no Sangão, Criciúma**
+  - 💰 R$ 95.000 | 📐 368 m²
+  - 📍 Sangão — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-sangao-368m2-RS95000/id-35668872/
+
+- **Terreno à venda na Rodovia Alexandre Beloli, 530, Primeira Linha, Cric**
+  - 💰 R$ 490.000 | 📐 560 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-primeira-linha-827m2-RS490000/id-35239806/
+
+- **Genebra - Terreno em Loteamento no Bairro Mina do Mato em Criciúma**
+  - 💰 R$ 160.000 | 📐 360 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-mina-do-mato-360m2-RS160000/id-28806669/
+
+- **Terreno à venda na Rua Lucas Peruchi, 100, São Defende, Criciúma**
+  - 💰 R$ 130.000 | 📐 450 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-sao-defende-450m2-RS130000/id-40038945/
+
+- **Terreno à venda no Próspera, Criciúma**
+  - 💰 R$ 300.000 | 📐 460 m²
+  - 📍 Próspera — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-prospera-460m2-RS300000/id-39434784/
+
+- **Terreno à venda na Itamar Blasius, --, Pinheirinho, Criciúma**
+  - 💰 R$ 155.000 | 📐 364 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-pinheirinho-364m2-RS155000/id-36005381/
+
+- **Terreno à venda na Rua Cassimiro Pizzoni, 325, Vila Isabel, Criciúma, **
+  - 💰 R$ 270.000 | 📐 490 m²
+  - 📍 Vila Isabel — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-vila-isabel-490m2-RS270000/id-37418722/
+
+- **Terreno à venda no Bosque do Repouso, Criciúma**
+  - 💰 R$ 165.000 | 📐 336 m²
+  - 📍 Bosque do Repouso — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-bosque-do-repouso-336m2-RS165000/id-13238363/
+
+- **Terreno à venda na Rua Othília Bussolo Stopassoli, 1, Pio Corrêa, Cric**
+  - 💰 R$ 700.000 | 📐 503 m²
+  - 📍 Pio Corrêa — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-pio-correa-503m2-RS700000/id-32289048/
+
+- **Oportunidade Única em CRICIUMA - SC | Tipo: Terreno | Negociação: Leil**
+  - 💰 R$ 193.966 | 📐 361 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-sao-defende-50m2-RS193966/id-39217859/
+
+- **Terreno à venda na Rodovia Leonardo Bialeck, S/N, Linha Batista, Crici**
+  - 💰 R$ 2.500.000 | 📐 7182 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-linha-batista-7182m2-RS2500000/id-10771001/
+
+- **Terrenos Loteamento Portal da Primeira Linha - Criciúma/SC**
+  - 💰 R$ 180.000 | 📐 360 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-primeira-linha-360m2-RS180000/id-37748812/
+
+- **Terreno à venda no Archimedes Naspolini, Criciúma**
+  - 💰 R$ 166.059 | 📐 380 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-criciuma-archimedes-naspolini-380m2-RS166059/id-8359292/
+
+- **Terreno à venda no Cristo Rei, Içara**
+  - 💰 R$ 123.000 | 📐 36010 m²
+  - 📍 Cristo Rei — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-cristo-rei-RS123000/id-39434663/
+
+- **Terreno à venda no Cristo Rei, Içara**
+  - 💰 R$ 140.000 | 📐 378 m²
+  - 📍 Cristo Rei — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-cristo-rei-378m2-RS140000/id-36742368/
+
+- **Excelente Oportunidade de Terreno Desmembrado em Içara-SC - BR-101**
+  - 💰 R$ 1.200.000 | 📐 2801 m²
+  - 📍 Vila Nova — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-vila-nova-2801m2-RS1200000/id-33554862/
+
+- **Terreno no bairro Aurora na Içara, loteamento Jardim Amélia**
+  - 💰 R$ 92.350 | 📐 360 m²
+  - 📍 Aurora — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-aurora-360m2-RS92350/id-24982599/
+
+- **Terreno à venda na Rodovia Angelo Valvassori, Cristo Rei, Içara**
+  - 💰 R$ 119.500 | 📐 366 m²
+  - 📍 Cristo Rei — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-cristo-rei-366m2-RS119500/id-32591552/
+
+- **Terreno à venda na Rua Jaguaruna, Balneário Rincão, Içara**
+  - 💰 R$ 120.000 | 📐 288 m²
+  - 📍 Balneário Rincão — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-balneario-rincao-288m2-RS120000/id-39160721/
+
+- **Terreno à venda na Quadra F, --, Centro, Içara**
+  - 💰 R$ 200.000 | 📐 20 m²
+  - 📍 Centro — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-centro-360m2-RS200000/id-36005338/
+
+- **Terreno à venda no Demboski, Içara**
+  - 💰 R$ 120.000 | 📐 377 m²
+  - 📍 Demboski — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-demboski-377m2-RS120000/id-14862981/
+
+- **Terreno | Lote - Loteamento Bellagio - Pronto para construir - Aceita **
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍 Linha Anta — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-linha-anta-360m2-RS95000/id-37621097/
+
+- **Terreno à venda na R. Miguel Amador Fernandes, Segunda Linha, Içara**
+  - 💰 R$ 120.000 | 📐 408 m²
+  - 📍 Segunda Linha — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-segunda-linha-408m2-RS120000/id-33834823/
+
+- **Terreno à venda na Sanga Funda, Içara**
+  - 💰 R$ 115.000 | 📐 394 m²
+  - 📍 Sanga Funda — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-sanga-funda-394m2-RS115000/id-38958000/
+
+- **Terreno à venda na Rua Projetada B, S/N, Demboski, Içara**
+  - 💰 R$ 130.000 | 📐 364 m²
+  - 📍 Demboski — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-demboski-364m2-RS130000/id-34101944/
+
+- **Terreno à venda no Jardim Silvana, Içara**
+  - 💰 R$ 200.000 | 📐 425 m²
+  - 📍 Jardim Silvana — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-jardim-silvana-425m2-RS200000/id-39434875/
+
+- **Terreno à venda no Demboski, Içara**
+  - 💰 R$ 120.000 | 📐 423 m²
+  - 📍 Demboski — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-demboski-423m2-RS120000/id-32517200/
+
+- **Terreno à venda no Demboski, Içara**
+  - 💰 R$ 250.000 | 📐 387 m²
+  - 📍 Demboski — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-icara-demboski-387m2-RS250000/id-19490458/
+
+- **Terreno à venda em Santa Cruz, Forquilhinha**
+  - 💰 R$ 90.000 | 📐 364 m²
+  - 📍 Santa Cruz — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-forquilhinha-santa-cruz-364m2-RS90000/id-36276503/
+
+- **Terreno à venda em Santa Cruz, Forquilhinha**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍 Santa Cruz — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-forquilhinha-santa-cruz-360m2-RS95000/id-39919033/
+
+- **Terreno em boa localização do bairro Santa Cruz em Forquilhinha.**
+  - 💰 R$ 128.000 | 📐 20 m²
+  - 📍 Santa Cruz — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-forquilhinha-santa-cruz-343m2-RS128000/id-38061848/
+
+- **Terreno à venda no Ouro Negro, Forquilhinha**
+  - 💰 R$ 150.000 | 📐 425 m²
+  - 📍 Ouro Negro — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-forquilhinha-ouro-negro-425m2-RS150000/id-39369349/
+
+- **Terreno à venda em Santa Cruz, Forquilhinha**
+  - 💰 R$ 135.000 | 📐 ? m²
+  - 📍 Santa Cruz — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-forquilhinha-santa-cruz-RS135000/id-39434673/
+
+- **Terreno alto e plano no loteamento Jardim Califórnia em Forquilhinha**
+  - 💰 R$ 110.000 | 📐 20 m²
+  - 📍 Santa Cruz — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-forquilhinha-santa-cruz-368m2-RS110000/id-36005425/
+
+- **Terreno à venda em Santa Cruz, Forquilhinha**
+  - 💰 R$ 117.751 | 📐 360 m²
+  - 📍 Santa Cruz — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-forquilhinha-santa-cruz-360m2-RS117751/id-32818600/
+
+- **Terreno à venda na Vila Lourdes, Forquilhinha**
+  - 💰 R$ 169.000 | 📐 386 m²
+  - 📍 Vila Lourdes — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-forquilhinha-vila-lourdes-386m2-RS169000/id-39434725/
+
+- **Apartamento de alto padrão Centro de Forquilhinha - Westfalen Residenz**
+  - 💰 R$ 851.353 | 📐 116 m²
+  - 📍 Centro — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-com-garagem-sc-forquilhinha-centro-20m2-RS851353/id-38569617/
+
+- **Casa a venda 3 quartos 1 suite 2 vagas de garagem Forquilhinha**
+  - 💰 R$ 370.000 | 📐 70 m²
+  - 📍 Santa Cruz — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-forquilhinha-santa-cruz-449m2-RS370000/id-38691385/
+
+- **Casa com 3 quartos à venda no Santa Líbera, Forquilhinha**
+  - 💰 R$ 250.000 | 📐 63 m²
+  - 📍 Santa Líbera — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-forquilhinha-santa-libera-RS250000/id-39434669/
+
+- **Casa com 2 quartos à venda na Vila Franca, Forquilhinha**
+  - 💰 R$ 272.000 | 📐 53 m²
+  - 📍 Vila Franca — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-forquilhinha-vila-franca-RS272000/id-39434823/
+
+- **Casa com 2 quartos à venda na Fortunato Dordete, 01, Santa Isabel, For**
+  - 💰 R$ 280.000 | 📐 336 m²
+  - 📍 Santa Isabel — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-forquilhinha-santa-isabel-336m2-RS280000/id-39521526/
+
+- **Chácara / sítio à venda no Centro, Forquilhinha**
+  - 💰 R$ 850.000 | 📐 ? m²
+  - 📍 Centro — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-forquilhinha-centro-RS850000/id-39434708/
+
+- **Casa com 4 quartos à venda em Santa Ana, Forquilhinha**
+  - 💰 R$ 1.250.000 | 📐 224 m²
+  - 📍 Santa Ana — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-forquilhinha-santa-ana-300m2-RS1250000/id-28603048/
+
+- **Terreno à venda no Caverazinho, Araranguá**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-caverazinho-RS85000/id-25969715/
+
+- **Terreno à venda na Rua Governador Celso Ramos, Coloninha, Araranguá**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-coloninha-300m2-RS85000/id-37518089/
+
+- **Terreno à venda no Caverazinho, Araranguá**
+  - 💰 R$ 50.000 | 📐 ? m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-caverazinho-RS50000/id-39515475/
+
+- **Terreno à venda, 568 m² por R$ 890.000,00 - Cidade Alta - Araranguá/SC**
+  - 💰 R$ 890.000 | 📐 568 m²
+  - 📍 Cidade Alta — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-cidade-alta-568m2-RS890000/id-37260411/
+
+- **Terrenos Loteamento Jardim das Palmas - Caverazinho - Araranguá/SC**
+  - 💰 R$ 99.918 | 📐 322 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-caverazinho-322m2-RS99918/id-36846874/
+
+- **Terreno à venda no Coloninha, Araranguá**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-coloninha-300m2-RS110000/id-27931494/
+
+- **Terreno à venda no Sanga da Areia, Araranguá**
+  - 💰 R$ 106.000 | 📐 340 m²
+  - 📍 Sanga da Areia — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-sanga-da-areia-340m2-RS106000/id-28132453/
+
+- **Terreno no Loteamento Galápagos/ B. Polícia Federal/ Araranguá/ SC**
+  - 💰 R$ 109.629 | 📐 300 m²
+  - 📍 Polícia Rodoviária — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-policia-rodoviaria-300m2-RS109629/id-32591502/
+
+- **Terreno à venda no Coloninha, Araranguá**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-coloninha-300m2-RS120000/id-37917824/
+
+- **Terreno à venda no Loteamento Portal dos Açores - Caverazinho - Araran**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-caverazinho-300m2-RS100000/id-39952574/
+
+- **Terreno à venda na Lot. Pôr do Sol, Morro dos Conventos, Araranguá por**
+  - 💰 R$ 157.000 | 📐 315 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-morro-dos-conventos-315m2-RS157000/id-38642295/
+
+- **Terreno à venda na Rua José Manoel Gomes, Sanga da Toca, Araranguá**
+  - 💰 R$ 2.100.000 | 📐 18240 m²
+  - 📍 Sanga da Toca — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-sanga-da-toca-18240m2-RS2100000/id-29546565/
+
+- **Terreno à venda na Rodovia Afonso Guizzo, 1, Centro, Araranguá por R$ **
+  - 💰 R$ 11.000.000 | 📐 35000 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-centro-35000m2-RS11000000/id-23361637/
+
+- **Terreno à venda no Coloninha, Araranguá**
+  - 💰 R$ 1.300.000 | 📐 1776 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-coloninha-1776m2-RS1300000/id-14749911/
+
+- **Terreno a Venda  - Loteamento Solar das Rosas - 12m x 28m aterrado pro**
+  - 💰 R$ 130.000 | 📐 336 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-ararangua-caverazinho-RS130000/id-32595837/
+
+- **Terreno à venda no São Francisco, Sombrio**
+  - 💰 R$ 134.900 | 📐 336 m²
+  - 📍 São Francisco — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-sao-francisco-336m2-RS134900/id-36559451/
+
+- **Terreno à venda na João José de Guimarães, 1, Centro, Sombrio por R$ 2**
+  - 💰 R$ 2.500.000 | 📐 1977 m²
+  - 📍 Centro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-centro-1977m2-RS2500000/id-24768100/
+
+- **Terreno à venda em Nova Guarita, Sombrio**
+  - 💰 R$ 134.900 | 📐 375 m²
+  - 📍 Nova Guarita — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-nova-guarita-375m2-RS134900/id-39575146/
+
+- **Terreno à venda na Pedro Joaquim Cunha, 10, Parque das Avenidas, Sombr**
+  - 💰 R$ 320.000 | 📐 783 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-parque-das-avenidas-783m2-RS320000/id-29833628/
+
+- **Terreno à venda em Nova Guarita, Sombrio**
+  - 💰 R$ 110.000 | 📐 368 m²
+  - 📍 Nova Guarita — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-nova-guarita-368m2-RS110000/id-38333998/
+
+- **Terreno à venda em Nova Guarita, Sombrio**
+  - 💰 R$ 110.000 | 📐 347 m²
+  - 📍 Nova Guarita — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-nova-guarita-347m2-RS110000/id-32928679/
+
+- **Terreno à venda no Centro, Sombrio**
+  - 💰 R$ 1.300.000 | 📐 700 m²
+  - 📍 Centro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-centro-700m2-RS1300000/id-26535196/
+
+- **Terreno à venda no São Luiz, Sombrio**
+  - 💰 R$ 720.000 | 📐 1205 m²
+  - 📍 São Luiz — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-sao-luiz-1205m2-RS720000/id-25603066/
+
+- **Terreno à venda no São Camilo, Sombrio**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍 São Camilo — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-sao-camilo-300m2-RS100000/id-25603104/
+
+- **Terreno à venda no Boa Esperança, Sombrio**
+  - 💰 R$ 98.000 | 📐 418 m²
+  - 📍 Boa Esperança — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-boa-esperanca-418m2-RS98000/id-37111922/
+
+- **Terreno à venda no São Luiz, Sombrio**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 São Luiz — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-sao-luiz-360m2-RS250000/id-29109395/
+
+- **Terreno à venda no Parque das Avenidas, Sombrio**
+  - 💰 R$ 280.000 | 📐 316 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-parque-das-avenidas-316m2-RS280000/id-25603133/
+
+- **Terreno à venda no São Luiz, Sombrio**
+  - 💰 R$ 900.000 | 📐 1677 m²
+  - 📍 São Luiz — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-sao-luiz-1677m2-RS900000/id-25603126/
+
+- **Terreno à venda no São Camilo, Sombrio**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍 São Camilo — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-sao-camilo-300m2-RS110000/id-38334005/
+
+- **Terreno à venda em Nova Guarita, Sombrio**
+  - 💰 R$ 110.000 | 📐 442 m²
+  - 📍 Nova Guarita — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-nova-guarita-442m2-RS110000/id-25603043/
+
+- **Terreno à venda na Vila São Cristovão, Santa Rosa do Sul**
+  - 💰 R$ 101.250 | 📐 252 m²
+  - 📍 Vila São Cristovão — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-santa-rosa-do-sul-vila-sao-cristovao-252m2-RS101250/id-36803989/
+
+- **Terreno à venda no Glorinha, Santa Rosa do Sul**
+  - 💰 R$ 800.000 | 📐 7438 m²
+  - 📍 Glorinha — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-santa-rosa-do-sul-glorinha-7438m2-RS800000/id-26459519/
+
+- **Terreno à venda na Rua Bairro Centro, 00, Centro, Santa Rosa do Sul**
+  - 💰 R$ 130.000 | 📐 315 m²
+  - 📍 Centro — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-santa-rosa-do-sul-centro-315m2-RS130000/id-36829635/
+
+- **Terreno à venda no Centro, Santa Rosa do Sul**
+  - 💰 R$ 70.000 | 📐 387 m²
+  - 📍 Centro — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-santa-rosa-do-sul-centro-387m2-RS70000/id-32019009/
+
+- **Terreno à venda na Vila São Cristovão, Santa Rosa do Sul**
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍 Vila São Cristovão — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-santa-rosa-do-sul-vila-sao-cristovao-300m2-RS65000/id-30949240/
+
+- **Terreno à venda na Vila São Cristovão, Santa Rosa do Sul**
+  - 💰 R$ 149.900 | 📐 287 m²
+  - 📍 Vila São Cristovão — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-santa-rosa-do-sul-vila-sao-cristovao-287m2-RS149900/id-33014003/
+
+- **Terreno à venda na Rua Bairro Centro, 00, Centro, Santa Rosa do Sul**
+  - 💰 R$ 110.000 | 📐 589 m²
+  - 📍 Centro — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-santa-rosa-do-sul-centro-589m2-RS110000/id-36829634/
+
+- **Chácara / sítio à venda no Barro Preto, Santa Rosa do Sul**
+  - 💰 R$ 740.000 | 📐 100000 m²
+  - 📍 Barro Preto — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-santa-rosa-do-sul-barro-preto-100000m2-RS740000/id-36974750/
+
+- **Chácara / sítio à venda no Glorinha, Santa Rosa do Sul**
+  - 💰 R$ 1.400.000 | 📐 75000 m²
+  - 📍 Glorinha — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-santa-rosa-do-sul-glorinha-75000m2-RS1400000/id-39344129/
+
+- **Chácara / sítio com 2 quartos à venda no Centro, Santa Rosa do Sul , 5**
+  - 💰 R$ 850.000 | 📐 5000 m²
+  - 📍 Centro — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-sc-santa-rosa-do-sul-centro-5000m2-RS850000/id-29546551/
+
+- **Chácara / sítio à venda na Zona Rural, Santa Rosa do Sul**
+  - 💰 R$ 270.000 | 📐 17000 m²
+  - 📍 Zona Rural — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-santa-rosa-do-sul-zona-rural-17000m2-RS270000/id-36974776/
+
+- **Casa para Venda em Santa Rosa do Sul, Centro, 4 dormitórios, 1 suíte, **
+  - 💰 R$ 530.000 | 📐 140 m²
+  - 📍 Centro — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-santa-rosa-do-sul-centro-440m2-RS530000/id-25603023/
+
+- **Sítio de 2 hectares, área plana apta para plantio e ótima localização.**
+  - 💰 R$ 230.000 | 📐 20000 m²
+  - 📍 Zona Rural — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-santa-rosa-do-sul-zona-rural-20000m2-RS230000/id-36974773/
+
+- **Casa para Venda em Santa Rosa do Sul, Glorinha, 5 dormitórios, 2 banhe**
+  - 💰 R$ 530.000 | 📐 713 m²
+  - 📍 Glorinha — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-sc-santa-rosa-do-sul-glorinha-713m2-RS530000/id-26827243/
+
+- **Chácara / sítio com 3 quartos à venda no Centro, Santa Rosa do Sul**
+  - 💰 R$ 1.400.000 | 📐 10500 m²
+  - 📍 Centro — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-santa-rosa-do-sul-centro-10500m2-RS1400000/id-29546484/
+
+- **Terreno à venda na Br 101 - Km, Vila Conceição, São João do Sul**
+  - 💰 R$ 175.000 | 📐 787 m²
+  - 📍 Vila Conceição — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sao-joao-do-sul-vila-conceicao-787m2-RS175000/id-26270217/
+
+- **Terreno à venda no Centro, São João do Sul**
+  - 💰 R$ 55.000 | 📐 12 m²
+  - 📍 Centro — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sao-joao-do-sul-centro-12m2-RS55000/id-29546751/
+
+- **Terreno à venda na Vila Santa Catarina, São João do Sul**
+  - 💰 R$ 150.000 | 📐 359 m²
+  - 📍 Vila Santa Catarina — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sao-joao-do-sul-vila-santa-catarina-359m2-RS150000/id-35931755/
+
+- **Terreno à venda no Centro, São João do Sul**
+  - 💰 R$ 1.000.000 | 📐 20000 m²
+  - 📍 Centro — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sao-joao-do-sul-centro-20000m2-RS1000000/id-29546457/
+
+- **Terreno à venda na Vila Santa Catarina, São João do Sul**
+  - 💰 R$ 130.000 | 📐 316 m²
+  - 📍 Vila Santa Catarina — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sao-joao-do-sul-vila-santa-catarina-316m2-RS130000/id-35931757/
+
+- **Terreno à venda no Centro, São João do Sul , 33 m2 por R$ 150.000**
+  - 💰 R$ 150.000 | 📐 33 m²
+  - 📍 Centro — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sao-joao-do-sul-centro-33m2-RS150000/id-29546543/
+
+- **Chácara / sítio com 2 quartos à venda na Estrada Geral Três Coqueiros,**
+  - 💰 R$ 790.000 | 📐 35000 m²
+  - 📍 Vila Conceição — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-sao-joao-do-sul-vila-conceicao-35000m2-RS790000/id-36974786/
+
+- **Chácara / sítio com 1 quarto à venda no Centro, São João do Sul**
+  - 💰 R$ 500.000 | 📐 900 m²
+  - 📍 Centro — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-1-quarto-com-garagem-sc-sao-joao-do-sul-centro-900m2-RS500000/id-35931756/
+
+- **Chácara / sítio à venda no Centro, São João do Sul**
+  - 💰 R$ 350.000 | 📐 40000 m²
+  - 📍 Centro — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sao-joao-do-sul-centro-40000m2-RS350000/id-29546718/
+
+- **Chácara / sítio com 1 quarto à venda na Estrada Geral De Encruzo, 100,**
+  - 💰 R$ 1.499.997 | 📐 90 m²
+  - 📍 Centro — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-1-quarto-sc-sao-joao-do-sul-centro-191768m2-RS1499997/id-28063424/
+
+- **Chácara à Venda – São João do Sul/SC – 5.262m² de Tranquilidade e Conf**
+  - 💰 R$ 1.200.000 | 📐 5262 m²
+  - 📍 Vila Santa Catarina — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-4-quartos-com-garagem-sc-sao-joao-do-sul-vila-santa-catarina-5262m2-RS1200000/id-35962820/
+
+- **Apartamento com 5 dormitórios à venda, 247 m² por R$ 361.178 - Centro **
+  - 💰 R$ 361.178 | 📐 247 m²
+  - 📍 Centro — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-5-quartos-com-garagem-sc-sao-joao-do-sul-centro-RS361178/id-5693745/
+
+- **Chácara / sítio com 3 quartos à venda no Três Coqueiros, São João do S**
+  - 💰 R$ 350.000 | 📐 4000 m²
+  - 📍 Três Coqueiros — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-sao-joao-do-sul-tres-coqueiros-4000m2-RS350000/id-36974745/
+
+- **Chácara / sítio à venda no Centro, São João do Sul**
+  - 💰 R$ 160.000 | 📐 6480 m²
+  - 📍 Centro — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sao-joao-do-sul-centro-6480m2-RS160000/id-36974765/
+
+- **Chácara / sítio à venda na Vila Conceição, São João do Sul**
+  - 💰 R$ 1.060.000 | 📐 70000 m²
+  - 📍 Vila Conceição — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sao-joao-do-sul-vila-conceicao-70000m2-RS1060000/id-37857529/
+
+- **Terreno plano  - localizado no Bairro Curralinhos, Loteamento Jardim A**
+  - 💰 R$ 85.000 | 📐 200 m²
+  - 📍 Curralinhos — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-curralinhos-200m2-RS85000/id-33537228/
+
+- **Terreno à venda em Passo de Torres: confira essa oportunidade!**
+  - 💰 R$ 160.000 | 📐 20 m²
+  - 📍 Balneário Bellatorres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-balneario-bellatorres-300m2-RS160000/id-36597758/
+
+- **Terreno à venda no Jardim América, Passo de Torres**
+  - 💰 R$ 30.457 | 📐 200 m²
+  - 📍 Jardim América — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-jardim-america-200m2-RS30457/id-36389956/
+
+- **Terreno à venda na Rua Miami, 00, Jardim América, Passo de Torres**
+  - 💰 Não informado | 📐 ? m²
+  - 📍 Jardim América — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-jardim-america/id-35061099/
+
+- **Terreno à venda, 1462 m² por R$ 380.000,00 - Curralinhos - Passo de To**
+  - 💰 R$ 380.000 | 📐 1462 m²
+  - 📍 Curralinhos — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-curralinhos-1462m2-RS380000/id-27608956/
+
+- **JARDIM AMÉRICA FLÓRIDA PARQUE - Terrenos Loteamento em Passo**
+  - 💰 R$ 96.891 | 📐 200 m²
+  - 📍 Jardim América — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-jardim-america-200m2-RS96891/id-18752276/
+
+- **Venda - Terrenos - Praia Xangri-Lá dos Mares - Passo de Torres - SC**
+  - 💰 R$ 98.000 | 📐 300 m²
+  - 📍 Xangrilá dos Mares — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-xangrila-dos-mares-300m2-RS98000/id-39897640/
+
+- **Terreno à venda, 265 m² por R$ 150.000 - Jardim America - Passo de Tor**
+  - 💰 R$ 150.000 | 📐 265 m²
+  - 📍 Jardim América — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-jardim-america-265m2-RS150000/id-37908658/
+
+- **Terreno à venda na Rua Miami, 004, Balneário Miratorres, Passo de Torr**
+  - 💰 R$ 217.000 | 📐 312 m²
+  - 📍 Balneário Miratorres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-balneario-miratorres-312m2-RS217000/id-35369353/
+
+- **Terreno à venda em Silveira, Passo de Torres**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍 Silveira — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-silveira-300m2-RS110000/id-32414238/
+
+- **Terreno à venda na Los Angeles, 41, Jardim América, Passo de Torres, 3**
+  - 💰 R$ 218.900 | 📐 300 m²
+  - 📍 Jardim América — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-jardim-america-300m2-RS218900/id-35482239/
+
+- **Terreno à venda na Rua Orlando, Jardim América, Passo de Torres**
+  - 💰 R$ 198.000 | 📐 220 m²
+  - 📍 Jardim América — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-jardim-america-220m2-RS198000/id-20962761/
+
+- **Terreno à venda na Bento Gonçalves, 165, Praia Caravelle, Passo de Tor**
+  - 💰 R$ 122.185 | 📐 220 m²
+  - 📍 Praia Caravelle — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-praia-caravelle-220m2-RS122185/id-19150820/
+
+- **Terreno à venda no Xangrilá dos Mares, Passo de Torres**
+  - 💰 R$ 129.000 | 📐 300 m²
+  - 📍 Xangrilá dos Mares — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-xangrila-dos-mares-RS129000/id-36435572/
+
+- **Terreno à venda na Rua Flórida Parque, --, Curralinhos, Passo de Torre**
+  - 💰 R$ 110.000 | 📐 248 m²
+  - 📍 Curralinhos — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-passo-de-torres-curralinhos-248m2-RS110000/id-29365073/
+
+- **Terreno à venda no Bairro Praia Sumaré I com 300 m² de área privativa**
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍 Sumaré — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-sumare-300m2-RS65000/id-32835131/
+
+- **Terreno para Venda em Balneário Gaivota, sulmar, 1 dormitório**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍 Sulmar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-sulmar-300m2-RS120000/id-11582612/
+
+- **Terreno à venda, 300 m² por R$ 70.000 - Lagoa Cortada - Balneário Gaiv**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍 Praia Janaína — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-praia-janaina-300m2-RS70000/id-37260510/
+
+- **Terreno á venda com 300m² no bairro Jardim Ultramar em Balneário Gaivo**
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍 Jardim Ultramar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-jardim-ultramar-300m2-RS230000/id-30623434/
+
+- **Terreno à venda na Praia Areias Claras, Balneário Gaivota**
+  - 💰 R$ 85.000 | 📐 312 m²
+  - 📍 Praia Areias Claras — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-praia-areias-claras-312m2-RS85000/id-36309087/
+
+- **Terreno à venda na Florianópolis, 10, Santa Fé, Balneário Gaivota por **
+  - 💰 R$ 170.000 | 📐 312 m²
+  - 📍 Santa Fé — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-santa-fe-312m2-RS170000/id-24743083/
+
+- **Terreno à venda na Praia Areias Claras, Balneário Gaivota , 312 m2 por**
+  - 💰 R$ 145.000 | 📐 312 m²
+  - 📍 Praia Areias Claras — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-praia-areias-claras-RS145000/id-39489429/
+
+- **Terreno à venda em Sumaré, Balneário Gaivota**
+  - 💰 R$ 75.900 | 📐 300 m²
+  - 📍 Sumaré — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-sumare-RS75900/id-36573132/
+
+- **Terreno à venda no Jardim Ultramar, Balneário Gaivota**
+  - 💰 R$ 180.500 | 📐 300 m²
+  - 📍 Jardim Ultramar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-jardim-ultramar-300m2-RS180500/id-36970476/
+
+- **Terreno à venda na Bahia, 01, Praia Turimar, Balneário Gaivota, 425 m2**
+  - 💰 R$ 298.000 | 📐 425 m²
+  - 📍 Praia Turimar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-praia-turimar-425m2-RS298000/id-35345850/
+
+- **Terreno à venda em Furnas, Balneário Gaivota**
+  - 💰 R$ 214.000 | 📐 300 m²
+  - 📍 Furnas — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-furnas-RS214000/id-36840444/
+
+- **Terreno à venda, 264 m² por R$ 99.000 - Valverde - Balneário Gaivota/S**
+  - 💰 R$ 99.000 | 📐 264 m²
+  - 📍 Praia Valverde — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-praia-valverde-264m2-RS99000/id-27336679/
+
+- **Terreno à venda na Marechal Deodoro, 02, Centro, Balneário Gaivota, 30**
+  - 💰 R$ 76.000 | 📐 300 m²
+  - 📍 Centro — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-centro-300m2-RS76000/id-27702224/
+
+- **Terreno à venda na L, K, R  e Av. D, Jardim Ultramar, Balneário Gaivot**
+  - 💰 R$ 265.000 | 📐 300 m²
+  - 📍 Jardim Ultramar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-jardim-ultramar-300m2-RS265000/id-18169036/
+
+- **Terreno à venda no Jardim Ultramar, Balneário Gaivota**
+  - 💰 R$ 113.000 | 📐 ? m²
+  - 📍 Jardim Ultramar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-gaivota-jardim-ultramar-RS113000/id-35062153/
+
+- **Terreno com 4.961² em praia grande/sc bairro alvorada á venda**
+  - 💰 R$ 450.000 | 📐 4961 m²
+  - 📍 Centro — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-praia-grande-centro-4961m2-RS450000/id-38543597/
+
+- **Terreno à venda no Rio Canoas, Praia Grande**
+  - 💰 R$ 139.993 | 📐 360 m²
+  - 📍 Rio Canoas — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-praia-grande-rio-canoas-360m2-RS139993/id-32924967/
+
+- **Terreno à venda no bairro Alto Da Esperança - Praia Grande/SC**
+  - 💰 R$ 85.000 | 📐 1600 m²
+  - 📍 Alto da Esperança — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-praia-grande-alto-da-esperanca-1600m2-RS85000/id-29546615/
+
+- **Chácara / sítio à venda no Vista Alegre, Praia Grande**
+  - 💰 R$ 710.000 | 📐 80000 m²
+  - 📍 Vista Alegre — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-praia-grande-vista-alegre-80000m2-RS710000/id-29546746/
+
+- **Chácara / sítio à venda na R. Irineu Bernhausen, Centro, Praia Grande**
+  - 💰 R$ 200.000 | 📐 11325 m²
+  - 📍 Centro — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-praia-grande-centro-11325m2-RS200000/id-29546588/
+
+- **Chácara / sítio à venda no Cachoeira de Fátima, Praia Grande**
+  - 💰 R$ 520.000 | 📐 ? m²
+  - 📍 Cachoeira de Fátima — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-praia-grande-cachoeira-de-fatima-RS520000/id-29546624/
+
+- **Chácara / sítio com 3 quartos à venda no Cachoeira de Fátima, Praia Gr**
+  - 💰 R$ 220.000 | 📐 2426 m²
+  - 📍 Cachoeira de Fátima — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-praia-grande-cachoeira-de-fatima-2426m2-RS220000/id-30269185/
+
+- **Casa com 1 quarto à venda no Alvorada, Praia Grande**
+  - 💰 R$ 1.500.000 | 📐 130 m²
+  - 📍 Alvorada — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-1-quarto-com-garagem-sc-praia-grande-alvorada-10000000m2-RS1500000/id-32773156/
+
+- **Linda área de terra para Sítio no centro Centro, Praia Grande/SC**
+  - 💰 R$ 580.000 | 📐 4960 m²
+  - 📍 Centro — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-praia-grande-centro-4960m2-RS580000/id-36974774/
+
+- **Casa com 2 quartos à venda no Centro, Praia Grande**
+  - 💰 R$ 649.000 | 📐 147 m²
+  - 📍 Centro — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-praia-grande-centro-1257m2-RS649000/id-32751787/
+
+- **Chácara / sítio à venda na Vila Rosa, Praia Grande**
+  - 💰 R$ 280.000 | 📐 11391 m²
+  - 📍 Vila Rosa — Praia Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-praia-grande-vila-rosa-11391m2-RS280000/id-29826492/
+
+- **Chácara / sítio à venda na Zona Rural, Timbé do Sul**
+  - 💰 R$ 1.200.000 | 📐 ? m²
+  - 📍 Zona Rural — Timbé do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-timbe-do-sul-zona-rural-RS1200000/id-26097462/
+
+- **Chácara / sítio com 2 quartos à venda no Centro, Timbé do Sul**
+  - 💰 R$ 402.000 | 📐 10 m²
+  - 📍 Centro — Timbé do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-timbe-do-sul-centro-10m2-RS402000/id-37917787/
+
+- **Sítio a venda no município de Tijucas - Timbe / SC Com 3 Quartos à ven**
+  - 💰 R$ 379.900 | 📐 1200 m²
+  - 📍 Zona Rural — Timbé do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-timbe-do-sul-zona-rural-1200m2-RS379900/id-23051843/
+
+- **Chácara / sítio à venda na Jacinto Machado, 1000, Centro, Jacinto Mach**
+  - 💰 R$ 350.000 | 📐 25000 m²
+  - 📍 Centro — Jacinto Machado
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-jacinto-machado-centro-25000m2-RS350000/id-39019259/
+
+- **Chácara / sítio com 4 quartos à venda no Pinheirinho Baixo, Jacinto Ma**
+  - 💰 R$ 1.050.000 | 📐 10700 m²
+  - 📍 Pinheirinho Baixo — Jacinto Machado
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-4-quartos-com-garagem-sc-jacinto-machado-pinheirinho-baixo-10700m2-RS1050000/id-36309109/
+
+- **Terreno à venda na Zona Rural, Turvo**
+  - 💰 R$ 2.000.000 | 📐 204545 m²
+  - 📍 Zona Rural — Turvo
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-turvo-zona-rural-204545m2-RS2000000/id-26949965/
+
+- **Apartamento com 3 quartos à venda no Centro, Turvo**
+  - 💰 R$ 1.200.000 | 📐 143 m²
+  - 📍 Centro — Turvo
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-turvo-centro-143m2-RS1200000/id-38065527/
+
+- **Chácara / sítio à venda na Zona Rural, Turvo**
+  - 💰 R$ 2.000.000 | 📐 204545 m²
+  - 📍 Zona Rural — Turvo
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-turvo-zona-rural-204545m2-RS2000000/id-26949361/
+
+- **Chácara / sítio à venda na Zona Rural, Turvo**
+  - 💰 R$ 2.000.000 | 📐 204545 m²
+  - 📍 Zona Rural — Turvo
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-turvo-zona-rural-204545m2-RS2000000/id-36973319/
+
+- **Casa semi mobiliada com dois terrenos no centro de Meleiro com 3 quart**
+  - 💰 R$ 595.000 | 📐 180 m²
+  - 📍 Centro — Meleiro
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-meleiro-centro-RS595000/id-35446788/
+
+- **Chácara / sítio à venda na Rua Bairro Soares, 00, Morro do Soares, Erm**
+  - 💰 R$ 270.000 | 📐 10000 m²
+  - 📍 Morro do Soares — Ermo
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-ermo-morro-do-soares-10000m2-RS270000/id-36829637/
+
+- **Chácara / sítio à venda no Centro, Morro Grande**
+  - 💰 R$ 1.400.000 | 📐 7200000 m²
+  - 📍 Centro — Morro Grande
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-morro-grande-centro-RS1400000/id-39434640/
+
+- **Terreno à venda na Zona Rural, Lauro Müller**
+  - 💰 R$ 920.000 | 📐 230000 m²
+  - 📍 Zona Rural — Lauro Müller
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-lauro-muller-zona-rural-230000m2-RS920000/id-24196676/
+
+- **Terreno à venda no Barro Branco, Lauro Müller**
+  - 💰 R$ 150.000 | 📐 20 m²
+  - 📍 Barro Branco — Lauro Müller
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-lauro-muller-barro-branco-20m2-RS150000/id-38829733/
+
+- **Área à venda, 4256100 m² por R$ 2.700.000,00 - Arizona - Lauro Müller/**
+  - 💰 R$ 2.700.000 | 📐 4256100 m²
+  - 📍 Arizona — Lauro Müller
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-lauro-muller-arizona-4256100m2-RS2700000/id-3968304/
+
+- **Exclusive Residence - Apartamento  cobertura Duplex mobiliado  com 3 s**
+  - 💰 R$ 8.750.000 | 📐 329 m²
+  - 📍 Centro — Lauro Müller
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-lauro-muller-centro-556m2-RS8750000/id-20689268/
+
+- **Casas na bela Cidade de Lauro Muller em Santa Catarina - Próximo Serra**
+  - 💰 R$ 500.000 | 📐 150 m²
+  - 📍 Centro — Lauro Müller
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-lauro-muller-centro-RS500000/id-36993226/
+
+- **Chácara / sítio à venda no Povoado de Itanema, Lauro Müller**
+  - 💰 R$ 180.000 | 📐 ? m²
+  - 📍 Povoado de Itanema — Lauro Müller
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-lauro-muller-povoado-de-itanema-RS180000/id-39434844/
+
+- **Exclusive Residence - Apartamento Gardupleá venda finamente mobiliado **
+  - 💰 R$ 7.590.000 | 📐 328 m²
+  - 📍 Centro — Lauro Müller
+  - 🔗 https://www.chavesnamao.com.br/imovel/cobertura-a-venda-3-quartos-com-garagem-sc-lauro-muller-centro-328m2-RS7590000/id-29290289/
+
+- **Chácara / sítio à venda no Centro, Lauro Müller**
+  - 💰 R$ 858.000 | 📐 219520 m²
+  - 📍 Centro — Lauro Müller
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-lauro-muller-centro-219520m2-RS858000/id-39512882/
+
+- **Terreno alto e plano, em ótima localização no b. São Jorge em Siderópo**
+  - 💰 R$ 85.000 | 📐 20 m²
+  - 📍 Vila São Jorge — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sideropolis-vila-sao-jorge-325m2-RS85000/id-36750748/
+
+- **Terreno à venda no Centro, Siderópolis**
+  - 💰 R$ 649.000 | 📐 611 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sideropolis-centro-611m2-RS649000/id-28603114/
+
+- **Terreno à venda na Estrada Bortolo Scarmagnani, Santa Luzia, Siderópol**
+  - 💰 R$ 112.000 | 📐 360 m²
+  - 📍 Santa Luzia — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sideropolis-santa-luzia-360m2-RS112000/id-32591754/
+
+- **Terreno à venda na Estrada Bortolo Scarmagnani, Santa Luzia, Siderópol**
+  - 💰 R$ 115.000 | 📐 360 m²
+  - 📍 Santa Luzia — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sideropolis-santa-luzia-360m2-RS115000/id-37171234/
+
+- **Terreno à venda na Santa Luzia, Siderópolis**
+  - 💰 R$ 115.000 | 📐 460 m²
+  - 📍 Santa Luzia — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sideropolis-santa-luzia-460m2-RS115000/id-28603183/
+
+- **Terreno com entrada facilitada: R$ 9.000,00 na Vila São Jorge em Sider**
+  - 💰 R$ 9.000 | 📐 20 m²
+  - 📍 Vila São Jorge — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sideropolis-vila-sao-jorge-369m2-RS9000/id-36005442/
+
+- **Terreno à venda no Centro, Siderópolis**
+  - 💰 R$ 1.714.939 | 📐 674 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sideropolis-centro-674m2-RS1714939/id-10285828/
+
+- **Terreno à venda na Domingos Saratto, --, Vila São Jorge, Siderópolis**
+  - 💰 R$ 140.000 | 📐 410 m²
+  - 📍 Vila São Jorge — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sideropolis-vila-sao-jorge-41m2-RS140000/id-36750743/
+
+- **Edifício Avezzano - Apartamento à venda no bairro Centro - Siderópolis**
+  - 💰 R$ 946.000 | 📐 127 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-sideropolis-centro-127m2-RS946000/id-39434897/
+
+- **Casa para Venda em Siderópolis, Vila São Jorge, 2 dormitórios, 2 banhe**
+  - 💰 R$ 490.000 | 📐 716 m²
+  - 📍 Vila São Jorge — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sideropolis-vila-sao-jorge-716m2-RS490000/id-24072788/
+
+- **Apartamento com 3 quartos à venda no Centro, Siderópolis**
+  - 💰 R$ 402.783 | 📐 61 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-sideropolis-centro-73m2-RS402783/id-32591467/
+
+- **Chácara / sítio à venda no Centro, Siderópolis**
+  - 💰 R$ 200.000 | 📐 ? m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sideropolis-centro-RS200000/id-39434890/
+
+- **Apartamento com 3 quartos à venda no Centro, Siderópolis**
+  - 💰 R$ 652.160 | 📐 91 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-sideropolis-centro-140m2-RS652160/id-8359267/
+
+- **Casa com 2 quartos à venda na Rua Antonio Caminatti, --, Vila São Jorg**
+  - 💰 R$ 370.000 | 📐 103 m²
+  - 📍 Vila São Jorge — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sideropolis-vila-sao-jorge-103m2-RS370000/id-35473645/
+
+- **Casa para Venda em Siderópolis, Centro, 5 dormitórios, 2 banheiros, 1 **
+  - 💰 R$ 650.000 | 📐 390 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-sc-sideropolis-centro-390m2-RS650000/id-27930758/
+
+- **Terreno no Loteamento Costa do Sol/ B. Bairro de Vila/ Urussanga/ SC**
+  - 💰 R$ 139.598 | 📐 409 m²
+  - 📍 De Villa — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-urussanga-de-villa-409m2-RS139598/id-32591705/
+
+- **Terreno à venda no Centro, Urussanga**
+  - 💰 R$ 180.000 | 📐 360 m²
+  - 📍 Centro — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-urussanga-centro-360m2-RS180000/id-39434629/
+
+- **Terreno no Loteamento Tramontin/ Bairro das Damas/ Urussanga/ SC**
+  - 💰 R$ 190.792 | 📐 360 m²
+  - 📍 Das Damas — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-urussanga-das-damas-360m2-RS190792/id-32591544/
+
+- **Terreno à venda no De Villa, Urussanga**
+  - 💰 R$ 120.000 | 📐 450 m²
+  - 📍 De Villa — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-urussanga-de-villa-450m2-RS120000/id-26541412/
+
+- **Casa com 4 quartos à venda na Rua Irmã Faustina, Centro, Urussanga**
+  - 💰 R$ 960.000 | 📐 217 m²
+  - 📍 Centro — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-urussanga-centro-217m2-RS960000/id-35437887/
+
+- **Casa para Venda em Urussanga, Figueira, 3 dormitórios, 1 banheiro, 1 v**
+  - 💰 R$ 650.000 | 📐 255 m²
+  - 📍 Figueira — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-urussanga-figueira-255m2-RS650000/id-36732051/
+
+- **Terreno à venda na Rua Donato Milanez, Caravaggio, Nova Veneza**
+  - 💰 R$ 165.000 | 📐 450 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-450m2-RS165000/id-18610512/
+
+- **Terreno à venda na Rua Apolonio Capeler, Centro, Nova Veneza**
+  - 💰 R$ 240.000 | 📐 402 m²
+  - 📍 Centro — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-centro-402m2-RS240000/id-35400184/
+
+- **Terreno para Venda em Nova Veneza, Nossa Senhora de Caravaggio**
+  - 💰 R$ 149.047 | 📐 363 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-363m2-RS149047/id-35734287/
+
+- **Terreno à venda no Centro, Nova Veneza**
+  - 💰 R$ 175.000 | 📐 360 m²
+  - 📍 Centro — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-centro-RS175000/id-39434647/
+
+- **Terreno à venda na Rua Donato Milanez, Caravaggio, Nova Veneza**
+  - 💰 R$ 135.000 | 📐 364 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-364m2-RS135000/id-35904554/
+
+- **Terreno à venda na Rua: Donato Milanez, Caravaggio, Nova Veneza**
+  - 💰 R$ 345.243 | 📐 570 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-570m2-RS345243/id-32591518/
+
+- **Terreno à venda na R. Donato Milanez - Caravaggio, Caravaggio, Nova Ve**
+  - 💰 R$ 165.000 | 📐 ? m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-RS165000/id-32591652/
+
+- **Terreno à venda na Rua Donato Milanez, Caravaggio, Nova Veneza**
+  - 💰 R$ 135.000 | 📐 364 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-364m2-RS135000/id-30635988/
+
+- **Terreno urbano Cidade gastronômica, mais charmosa do sul Catarinense, **
+  - 💰 R$ 8.000.000 | 📐 40000 m²
+  - 📍 Centro — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-centro-40000m2-RS8000000/id-39946874/
+
+- **Terreno à venda no São Bento Alto, Nova Veneza**
+  - 💰 R$ 280.000 | 📐 2 m²
+  - 📍 São Bento Alto — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-sao-bento-alto-2m2-RS280000/id-36005264/
+
+- **Terreno à venda na Vila Maria, Nova Veneza**
+  - 💰 R$ 165.000 | 📐 1496 m²
+  - 📍 Vila Maria — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-vila-maria-1496m2-RS165000/id-32517201/
+
+- **Terreno à venda no Centro, Nova Veneza**
+  - 💰 R$ 242.000 | 📐 474 m²
+  - 📍 Centro — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-centro-474m2-RS242000/id-11754727/
+
+- **Terreno no Loteamento Torre Di Campana - Residenziale/ B. Centro/ Nova**
+  - 💰 R$ 183.750 | 📐 373 m²
+  - 📍 Centro — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-centro-373m2-RS183750/id-32591655/
+
+- **9 hectares de terra, com infra estrutura, cachoeira e... em Nova Venez**
+  - 💰 R$ 1.100.000 | 📐 9 m²
+  - 📍 São Bento Alto — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-nova-veneza-sao-bento-alto-9m2-RS1100000/id-35473511/
+
+- **Casa para Venda em Nova Veneza, Caravaggio, 3 dormitórios, 1 suíte, 2 **
+  - 💰 R$ 1.490.000 | 📐 750 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-nova-veneza-caravaggio-750m2-RS1490000/id-29197992/
+
+- **Terreno à venda na Av. Natividade, Centro, Cocal do Sul**
+  - 💰 R$ 192.000 | 📐 360 m²
+  - 📍 Centro — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-cocal-do-sul-centro-360m2-RS192000/id-29487807/
+
+- **Terreno à venda na Avenida Valentin Fachin, 1000, Vila Nova, Cocal do **
+  - 💰 R$ 170.000 | 📐 365 m²
+  - 📍 Vila Nova — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-cocal-do-sul-vila-nova-365m2-RS170000/id-40112127/
+
+- **Loteamento Lucia Giassi/B. Jardim das Palmeiras/ Cocal do Sul/ SC**
+  - 💰 R$ 268.308 | 📐 407 m²
+  - 📍 Centro — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-cocal-do-sul-centro-407m2-RS268308/id-32591556/
+
+- **Terreno à venda no Horizonte, Cocal do Sul**
+  - 💰 R$ 286.000 | 📐 405 m²
+  - 📍 Horizonte — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-cocal-do-sul-horizonte-405m2-RS286000/id-39434768/
+
+- **Terreno à venda no Jardim das Palmeiras, Cocal do Sul**
+  - 💰 R$ 190.000 | 📐 365 m²
+  - 📍 Jardim das Palmeiras — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-cocal-do-sul-jardim-das-palmeiras-365m2-RS190000/id-8647557/
+
+- **Terreno à venda na Rua Manoel Caetano Da Silva, 602, Monte Carlos, Coc**
+  - 💰 R$ 192.306 | 📐 469 m²
+  - 📍 Monte Carlos — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-cocal-do-sul-monte-carlos-469m2-RS192306/id-35738896/
+
+- **Terreno à venda na Estrada Municipal, Jardim das Palmeiras, Cocal do S**
+  - 💰 R$ 529.978 | 📐 1125 m²
+  - 📍 Jardim das Palmeiras — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-cocal-do-sul-jardim-das-palmeiras-1125m2-RS529978/id-35061131/
+
+- **Terreno à venda na Rodovia Sc 108, Zona Rural, Cocal do Sul**
+  - 💰 R$ 120.000 | 📐 365 m²
+  - 📍 Zona Rural — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-cocal-do-sul-zona-rural-365m2-RS120000/id-20849391/
+
+- **Terreno à venda na Rodovia Sc 108, Zona Rural, Cocal do Sul**
+  - 💰 R$ 243.000 | 📐 480 m²
+  - 📍 Zona Rural — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-cocal-do-sul-zona-rural-480m2-RS243000/id-20849392/
+
+- **Terreno em condomínio fechado à venda no Centro, Cocal do Sul**
+  - 💰 R$ 454.000 | 📐 633 m²
+  - 📍 Centro — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-em-condominio-a-venda-sc-cocal-do-sul-centro-633m2-RS454000/id-7625380/
+
+- **Terreno em condomínio fechado à venda no Jardim das Palmeiras, Cocal d**
+  - 💰 R$ 528.370 | 📐 651 m²
+  - 📍 Jardim das Palmeiras — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-em-condominio-a-venda-sc-cocal-do-sul-jardim-das-palmeiras-651m2-RS528370/id-8359284/
+
+- **Casa com 2 quartos à venda na Rua Antônio Nunes de Souza, 1, Cristo Re**
+  - 💰 R$ 600.000 | 📐 170 m²
+  - 📍 Cristo Rei — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-cocal-do-sul-cristo-rei-365m2-RS600000/id-39879541/
+
+- **Apartamento para Venda em Cocal do Sul, Centro, 3 dormitórios, 1 suíte**
+  - 💰 R$ 798.000 | 📐 100 m²
+  - 📍 Centro — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-centro-156m2-RS798000/id-32289023/
+
+- **Casa com 2 quartos à venda na Linha Tigre, --, Zona Rural, Cocal do Su**
+  - 💰 R$ 249.000 | 📐 56 m²
+  - 📍 Zona Rural — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-cocal-do-sul-zona-rural-56m2-RS249000/id-36005302/
+
+- **Apartamento com 2 quartos à venda na Endereço: Rod. Sc-108,, 665, Jard**
+  - 💰 R$ 323.000 | 📐 56 m²
+  - 📍 Jardim das Palmeiras — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-2-quartos-com-garagem-sc-cocal-do-sul-jardim-das-palmeiras-68m2-RS323000/id-11055683/
+
+- **Terreno à venda na Tranquilo Sartor, 8079, Maccari, Morro da Fumaça, 2**
+  - 💰 R$ 750.000 | 📐 26000 m²
+  - 📍 Maccari — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-morro-da-fumaca-maccari-26000m2-RS750000/id-35298426/
+
+- **Terreno à venda na Rua Casemiro Smielevski, Estação Cocal, Morro da Fu**
+  - 💰 R$ 142.337 | 📐 477 m²
+  - 📍 Estação Cocal — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-morro-da-fumaca-estacao-cocal-477m2-RS142337/id-32591462/
+
+- **Casa com 2 quartos à venda em Maccari, Morro da Fumaça  por R$ 286.200**
+  - 💰 R$ 286.200 | 📐 ? m²
+  - 📍 Maccari — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-morro-da-fumaca-maccari-RS286200/id-39434707/
+
+- **Apartamento com 3 quartos à venda no Centro, Morro da Fumaça**
+  - 💰 R$ 560.000 | 📐 81 m²
+  - 📍 Centro — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-morro-da-fumaca-centro-85m2-RS560000/id-8359436/
+
+- **Casa com 3 quartos à venda na Rua Projetada A, Centro, Morro da Fumaça**
+  - 💰 R$ 490.000 | 📐 150 m²
+  - 📍 Centro — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-morro-da-fumaca-centro-427m2-RS490000/id-30608299/
+
+- **Apartamento com 3 quartos à venda no Monte Verde, Morro da Fumaça**
+  - 💰 R$ 275.000 | 📐 62 m²
+  - 📍 Monte Verde — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-morro-da-fumaca-monte-verde-62m2-RS275000/id-28635750/
+
+- **Chácara / sítio com 3 quartos à venda na Rodovia Quatrocentos E Vinte,**
+  - 💰 R$ 2.950.000 | 📐 292 m²
+  - 📍 Naspolini — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-morro-da-fumaca-naspolini-30000m2-RS2950000/id-28002290/
+
+- **Apartamento com 3 quartos à venda na Rua Nona Paduana, Centro, Morro d**
+  - 💰 R$ 591.153 | 📐 84 m²
+  - 📍 Centro — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-morro-da-fumaca-centro-96m2-RS591153/id-32591589/
+
+- **Casa com 3 quartos à venda na Naspolini, Morro da Fumaça**
+  - 💰 R$ 320.000 | 📐 96 m²
+  - 📍 Naspolini — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-morro-da-fumaca-naspolini-RS320000/id-39434865/
+
+- **Apartamento com 3 quartos à venda no Centro, Morro da Fumaça**
+  - 💰 R$ 430.000 | 📐 ? m²
+  - 📍 Centro — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-morro-da-fumaca-centro-RS430000/id-39434624/
+
+- **Apartamento com 3 quartos à venda no Centro, Morro da Fumaça**
+  - 💰 R$ 440.000 | 📐 120 m²
+  - 📍 Centro — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-morro-da-fumaca-centro-120m2-RS440000/id-39434808/
+
+- **Terreno à venda na Lagoa Do Faxinal, Balneário Rincão  por R$ 294.000**
+  - 💰 R$ 294.000 | 📐 556 m²
+  - 📍 Lagoa Do Faxinal — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-lagoa-do-faxinal-556m2-RS294000/id-28611657/
+
+- **Terreno à venda na João Arthur Berto, 125, Zona Norte, Balneário Rincã**
+  - 💰 R$ 345.145 | 📐 326 m²
+  - 📍 Zona Norte — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-zona-norte-585m2-RS345145/id-28567686/
+
+- **Terreno à venda na Lagoa Dos Esteves, Balneário Rincão  por R$ 499.000**
+  - 💰 R$ 499.000 | 📐 598 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-lagoa-dos-esteves-598m2-RS499000/id-34151190/
+
+- **Terreno à venda na Zona Sul, Balneário Rincão**
+  - 💰 R$ 140.000 | 📐 350 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-zona-sul-350m2-RS140000/id-32818640/
+
+- **NOBLE - Terreno em Condomínio em Lagoa dos Esteves, Balneário Rincão/S**
+  - 💰 R$ 307.537 | 📐 586 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-lagoa-dos-esteves-586m2-RS307537/id-29545590/
+
+- **Terreno no Balneário Rincão, próximo a Lagoa dos Freitas. No boleto.**
+  - 💰 R$ 91.000 | 📐 20 m²
+  - 📍 Pedreiras — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-pedreiras-364m2-RS91000/id-39549515/
+
+- **Terreno à venda na Zona Sul, Balneário Rincão**
+  - 💰 R$ 150.000 | 📐 384 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-zona-sul-384m2-RS150000/id-26585354/
+
+- **Terreno à venda na Rod. Icr 359 /S/n, Zona Sul, Balneário Rincão**
+  - 💰 R$ 392.911 | 📐 469 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-zona-sul-469m2-RS392911/id-32591576/
+
+- **Terreno à venda na Lagoa Dos Esteves, Balneário Rincão**
+  - 💰 R$ 1.599.900 | 📐 600 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-lagoa-dos-esteves-600m2-RS1599900/id-33370303/
+
+- **Terreno à venda na Avenida Das Palmeiras, 1, Centro, Balneário Rincão**
+  - 💰 R$ 400.000 | 📐 1145 m²
+  - 📍 Centro — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-centro-1145m2-RS400000/id-32288947/
+
+- **Terreno de esquina em condominio fechado a venda Balneario Rincao**
+  - 💰 R$ 450.000 | 📐 387 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-lagoa-dos-esteves-387m2-RS450000/id-39643906/
+
+- **Terreno à venda na Lagoa Dos Esteves, Balneário Rincão**
+  - 💰 R$ 450.000 | 📐 387 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-lagoa-dos-esteves-387m2-RS450000/id-28603065/
+
+- **Terreno à venda na Zona Sul, Balneário Rincão**
+  - 💰 R$ 285.000 | 📐 289 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-zona-sul-289m2-RS285000/id-39434909/
+
+- **Terreno à venda na Rodovia Jorge Fortulino, Lagoa Dos Esteves, Balneár**
+  - 💰 R$ 526.545 | 📐 550 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-lagoa-dos-esteves-550m2-RS526545/id-28806606/
+
+- **Terreno à venda na Av Das Palmeiras, --, Zona Sul, Balneário Rincão**
+  - 💰 R$ 491.900 | 📐 20 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-balneario-rincao-zona-sul-420m2-RS491900/id-38305088/
+
+- **Terreno à venda no Centro, Jaguaruna**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-centro-RS135000/id-38017358/
+
+- **Terreno de 300m² frente mar à venda na praia do Camacho, Jaguaruna, SC**
+  - 💰 R$ 270.000 | 📐 300 m²
+  - 📍 Balneário Esplanada — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-balneario-esplanada-300m2-RS270000/id-35547537/
+
+- **Terreno à venda no Centro, Jaguaruna**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-centro-RS135000/id-38016721/
+
+- **Terreno de 3.000 m² à venda na Praia do Camacho, Jaguaruna, SC**
+  - 💰 R$ 970.000 | 📐 3000 m²
+  - 📍 Balneário Esplanada — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-balneario-esplanada-3000m2-RS970000/id-35547539/
+
+- **Terreno à venda no Centro, Jaguaruna**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-centro-RS135000/id-38016718/
+
+- **Terreno à venda na Rua Hercílio Estácio Da Luz, Centro, Jaguaruna**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-centro-300m2-RS100000/id-35400230/
+
+- **Terreno à venda no Centro, Jaguaruna**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-centro-RS135000/id-38017794/
+
+- **Terreno de 900 m² frente mar à venda na praia do Camacho, Jaguaruna, S**
+  - 💰 R$ 760.000 | 📐 900 m²
+  - 📍 Balneário Esplanada — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-balneario-esplanada-900m2-RS760000/id-35547538/
+
+- **Terreno à venda no Centro, Jaguaruna**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-centro-RS135000/id-38016719/
+
+- **Terreno à venda no Centro, Jaguaruna**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-centro-300m2-RS110000/id-35400187/
+
+- **Terreno à venda no Centro, Jaguaruna**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-centro-360m2-RS95000/id-35400253/
+
+- **Terreno à venda na Avenida Atlantica, Centro, Jaguaruna**
+  - 💰 R$ 430.000 | 📐 30000 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-jaguaruna-centro-30000m2-RS430000/id-29575953/
+
+- **Casa à venda, 4 quartos, 4 vagas, Balneário Arroio Corrente - Jaguarun**
+  - 💰 R$ 310.000 | 📐 250 m²
+  - 📍 Balneário Arroio Corrente — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-jaguaruna-balneario-arroio-corrente-250m2-RS310000/id-30909475/
+
+- **Casa com 3 quartos à venda na Rua Hermino Abraão Pereira, Balneário Es**
+  - 💰 R$ 500.000 | 📐 130 m²
+  - 📍 Balneário Esplanada — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-jaguaruna-balneario-esplanada-375m2-RS500000/id-37848326/
+
+- **Casa com 3 quartos à venda no Torneiro, Jaguaruna**
+  - 💰 R$ 1.000.000 | 📐 ? m²
+  - 📍 Torneiro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-torneiro-RS1000000/id-38750616/
+
+- **Terreno/Área de 47.685,00 (quarenta e sete mil, m²) no Sangão em SC**
+  - 💰 R$ 2.500.000 | 📐 47685 m²
+  - 📍 Centro — Sangão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sangao-centro-47685m2-RS2500000/id-25466550/
+
+- **Terreno à venda na São João Batista, --, Morro Grande, Sangão**
+  - 💰 R$ 110.000 | 📐 20 m²
+  - 📍 Morro Grande — Sangão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sangao-morro-grande-461m2-RS110000/id-38602865/
+
+- **Terreno à venda na Br 101, Centro, Sangão**
+  - 💰 R$ 490.000 | 📐 5908 m²
+  - 📍 Centro — Sangão
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sangao-centro-5908m2-RS490000/id-34127185/
+
+- **Casa Alto Padrão - Sangão/SC – Entre Morro da Fumaça e Jaguaruna**
+  - 💰 R$ 950.000 | 📐 200 m²
+  - 📍 Centro — Sangão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sangao-centro-200m2-RS950000/id-32591706/
+
+- **Tenho um terreno em Sangao sc, mas a casa com 3 quartos, preço com ter**
+  - 💰 R$ 135.000 | 📐 45 m²
+  - 📍 Zona Rural — Sangão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sangao-zona-rural-250m2-RS135000/id-40214241/
+
+- **Chácara / sítio à venda no Morro Grande, Sangão**
+  - 💰 R$ 500.000 | 📐 20 m²
+  - 📍 Morro Grande — Sangão
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sangao-morro-grande-25060m2-RS500000/id-38681276/
+
+- **Chácara / sítio com 3 quartos à venda no Centro, Sangão**
+  - 💰 R$ 770.000 | 📐 110000 m²
+  - 📍 Centro — Sangão
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-sangao-centro-110000m2-RS770000/id-39434873/
+
+- **Casa com 3 quartos à venda na Vila Beatriz, Maracajá**
+  - 💰 R$ 285.000 | 📐 100 m²
+  - 📍 Vila Beatriz — Maracajá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-maracaja-vila-beatriz-478m2-RS285000/id-40254318/
+
+- **Chácara / sítio à venda na Rua Arcângelo Casagrande, São Simão, Criciú**
+  - 💰 R$ 590.000 | 📐 3162 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-criciuma-sao-simao-3162m2-RS590000/id-30214077/
+
+- **Sítio para Venda em Criciúma, Bosque do Repouso, 4 dormitórios, 2 suít**
+  - 💰 R$ 2.500.000 | 📐 7500 m²
+  - 📍 Bosque do Repouso — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-4-quartos-com-garagem-sc-criciuma-bosque-do-repouso-7500m2-RS2500000/id-33420094/
+
+- **Chácara / sítio à venda no Colonial, Criciúma**
+  - 💰 R$ 1.370.000 | 📐 10771 m²
+  - 📍 Colonial — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-criciuma-colonial-RS1370000/id-39434656/
+
+- **Chácara / sítio com 3 quartos à venda no Coloninha Zilli, Criciúma**
+  - 💰 R$ 1.600.000 | 📐 210 m²
+  - 📍 Coloninha Zilli — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-criciuma-coloninha-zilli-RS1600000/id-28603208/
+
+- **Chácara / sítio com 2 quartos à venda na Rodovia SC-443, 1000, Linha A**
+  - 💰 R$ 1.350.000 | 📐 200 m²
+  - 📍 Linha Anta — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-criciuma-linha-anta-30000m2-RS1350000/id-31293442/
+
+- **Chácara / sítio com 1 quarto à venda no Primeira Linha, Criciúma**
+  - 💰 R$ 1.300.000 | 📐 36 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-1-quarto-sc-criciuma-primeira-linha-36m2-RS1300000/id-38493398/
+
+- **Sitio para a venda com 3 quartos 2 vagas de garagem próximo ao centro**
+  - 💰 R$ 900.000 | 📐 1000 m²
+  - 📍 Dagostin — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-criciuma-dagostin-10000000m2-RS900000/id-31199127/
+
+- **Chácara / sítio com 2 quartos à venda no Primeira Linha, Criciúma**
+  - 💰 R$ 1.800.000 | 📐 130 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-sc-criciuma-primeira-linha-215m2-RS1800000/id-38493399/
+
+- **Casa com 3 dormitórios à venda, 105 m² por R$ 223.060,01 - Ana Maria -**
+  - 💰 R$ 223.060 | 📐 105 m²
+  - 📍 Ana Maria — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-criciuma-ana-maria-390m2-RS223060/id-30505950/
+
+- **CASA DE ALTO PADRÃO EM CONDOMÍNIO FECHADO  - Área gourmet completa - P**
+  - 💰 R$ 3.200.000 | 📐 300 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-criciuma-sao-simao-1085m2-RS3200000/id-32289144/
+
+- **Casa em Condomínio para Venda em Criciúma, Bosque do Repouso, 5 dormit**
+  - 💰 R$ 2.700.000 | 📐 357 m²
+  - 📍 Bosque do Repouso — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-5-quartos-com-garagem-sc-criciuma-bosque-do-repouso-RS2700000/id-26511660/
+
+- **Casa para Venda em Criciúma, Cruzeiro do Sul, 4 dormitórios, 1 suíte, **
+  - 💰 Não informado | 📐 ? m²
+  - 📍 Cruzeiro do Sul — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-criciuma-cruzeiro-do-sul/id-33420115/
+
+- **Casa em condomínio fechado com 2 quartos à venda no Mina do Mato, Cric**
+  - 💰 R$ 275.000 | 📐 61 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-2-quartos-com-garagem-sc-criciuma-mina-do-mato-RS275000/id-39061792/
+
+- **Alto Padrão para Venda em Criciúma, Santa Catarina, 3 dormitórios, 1 s**
+  - 💰 R$ 1.350.000 | 📐 225 m²
+  - 📍 Santa Catarina — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-criciuma-santa-catarina-225m2-RS1350000/id-37788696/
+
+- **Casa em condomínio fechado com 4 quartos à venda na Rua Linha Três Rib**
+  - 💰 R$ 2.350.000 | 📐 345 m²
+  - 📍 Jardim Maristela — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-sc-criciuma-jardim-maristela-800m2-RS2350000/id-31074201/
+
+- **Chácara / sítio com 2 quartos à venda no Rio Acima, Içara**
+  - 💰 R$ 1.350.000 | 📐 85000 m²
+  - 📍 Rio Acima — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-icara-rio-acima-85000m2-RS1350000/id-36462908/
+
+- **Chácara / sítio à venda no Centro, Içara**
+  - 💰 R$ 550.000 | 📐 25000 m²
+  - 📍 Centro — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-centro-25000m2-RS550000/id-39434713/
+
+- **Chácara / sítio à venda na Estrada Da Brusca, Esperança, Içara**
+  - 💰 R$ 700.000 | 📐 42000 m²
+  - 📍 Esperança — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-esperanca-42000m2-RS700000/id-36974357/
+
+- **Chácara / sítio à venda na Vila São Pedro, Içara**
+  - 💰 R$ 475.000 | 📐 30000 m²
+  - 📍 Vila São Pedro — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-vila-sao-pedro-30000m2-RS475000/id-36426194/
+
+- **Chácara / sítio à venda na Santa Cruz, Içara**
+  - 💰 R$ 420.000 | 📐 30000 m²
+  - 📍 Santa Cruz — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-santa-cruz-30000m2-RS420000/id-36426191/
+
+- **Chácara / sítio com 3 quartos à venda na Zona Rural, Içara**
+  - 💰 R$ 1.300.000 | 📐 130000 m²
+  - 📍 Zona Rural — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-icara-zona-rural-130000m2-RS1300000/id-36462906/
+
+- **Chácara / sítio à venda no Barracão, Içara**
+  - 💰 R$ 400.000 | 📐 40000 m²
+  - 📍 Barracão — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-barracao-40000m2-RS400000/id-36426213/
+
+- **Chácara / sítio à venda na Linha Zilli, Içara**
+  - 💰 R$ 700.000 | 📐 20000 m²
+  - 📍 Linha Zilli — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-linha-zilli-20000m2-RS700000/id-36426214/
+
+- **Chácara / sítio com 2 quartos à venda no Coqueiros, Içara**
+  - 💰 R$ 500.000 | 📐 120 m²
+  - 📍 Coqueiros — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-icara-coqueiros-RS500000/id-39434891/
+
+- **Chácara / sítio à venda na Sanga Funda, Içara**
+  - 💰 R$ 550.000 | 📐 9500 m²
+  - 📍 Sanga Funda — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-sanga-funda-9500m2-RS550000/id-36974358/
+
+- **Casa com 3 quartos à venda na Rua Luiz Zilli, Jaqueline, Içara**
+  - 💰 R$ 400.000 | 📐 100 m²
+  - 📍 Jaqueline — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-icara-jaqueline-371m2-RS400000/id-28806674/
+
+- **Casa com 3 quartos à venda no Primeiro De Maio, Içara**
+  - 💰 R$ 320.000 | 📐 ? m²
+  - 📍 Primeiro De Maio — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-icara-primeiro-de-maio-RS320000/id-39434696/
+
+- **Casa com 2 quartos à venda em Vila Nova, Içara**
+  - 💰 R$ 260.000 | 📐 50 m²
+  - 📍 Vila Nova — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-vila-nova-372m2-RS260000/id-36426190/
+
+- **Casa com 2 quartos à venda na Rua Projetada D- Trecho 02, S N, Aurora,**
+  - 💰 R$ 350.000 | 📐 240 m²
+  - 📍 Aurora — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-aurora-240m2-RS350000/id-35942822/
+
+- **Casa para Venda em Içara, Zona Sul, 3 dormitórios, 1 suíte, 2 banheiro**
+  - 💰 R$ 850.000 | 📐 288 m²
+  - 📍 Zona Sul — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-icara-zona-sul-288m2-RS850000/id-39891398/
+
+- **Chácara / sítio à venda na Rua Otílio Francisco Macedo, --, Santa Líbe**
+  - 💰 R$ 720.000 | 📐 20 m²
+  - 📍 Santa Líbera — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-forquilhinha-santa-libera-2m2-RS720000/id-35473530/
+
+- **Casa com 2 quartos à venda na Vila Franca, Forquilhinha**
+  - 💰 R$ 492.200 | 📐 160 m²
+  - 📍 Vila Franca — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-forquilhinha-vila-franca-RS492200/id-39434780/
+
+- **Casa com 2 quartos à venda na Vila Franca, Forquilhinha**
+  - 💰 R$ 530.000 | 📐 112 m²
+  - 📍 Vila Franca — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-forquilhinha-vila-franca-RS530000/id-37917799/
+
+- **Casa a venda 2 quartos 2 vagas de garagem Area Gourmet Forquilhinha**
+  - 💰 R$ 350.000 | 📐 125 m²
+  - 📍 Santa Isabel — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-forquilhinha-santa-isabel-55m2-RS350000/id-35891658/
+
+- **Casa com 2 quartos à venda em Santa Cruz, Forquilhinha**
+  - 💰 R$ 240.000 | 📐 54 m²
+  - 📍 Santa Cruz — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-forquilhinha-santa-cruz-54m2-RS240000/id-33019781/
+
+- **Casa com 2 quartos à venda em Santa Ana, Forquilhinha**
+  - 💰 R$ 300.000 | 📐 ? m²
+  - 📍 Santa Ana — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-forquilhinha-santa-ana-RS300000/id-39434810/
+
+- **Casa com 2 dormitórios à venda, 75 m² por R$ 156.000 - Santa Líbera - **
+  - 💰 R$ 156.000 | 📐 75 m²
+  - 📍 Santa Líbera — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-forquilhinha-santa-libera-364m2-RS156000/id-18005128/
+
+- **Casa com 2 quartos à venda em Santa Ana, Forquilhinha  por R$ 320.000**
+  - 💰 R$ 320.000 | 📐 140 m²
+  - 📍 Santa Ana — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-forquilhinha-santa-ana-140m2-RS320000/id-28603125/
+
+- **Casa com 2 quartos à venda no Ouro Negro, Forquilhinha**
+  - 💰 R$ 300.000 | 📐 510 m²
+  - 📍 Ouro Negro — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-forquilhinha-ouro-negro-RS300000/id-32818601/
+
+- **Sítio para Venda em Araranguá, Sanga da Toca, 2 dormitórios, 2 banheir**
+  - 💰 R$ 1.980.000 | 📐 30000 m²
+  - 📍 Sanga da Toca — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-ararangua-sanga-da-toca-30000m2-RS1980000/id-36829636/
+
+- **Sítio à venda no bairro Hercílio Luz (Hercílio Luz) - Araranguá/SC**
+  - 💰 R$ 265.000 | 📐 ? m²
+  - 📍 Hercílio Luz (Hercílio Luz) — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-ararangua-hercilio-luz-hercilio-luz--RS265000/id-39434717/
+
+- **Chácara / sítio com 3 quartos à venda na Rua Morro dos Conventos, 444,**
+  - 💰 R$ 700.000 | 📐 180 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-ararangua-morro-dos-conventos-RS700000/id-31288389/
+
+- **Chácara / sítio à venda na Rodovia Valmiro Manoel Gonçalves, Morro dos**
+  - 💰 R$ 400.000 | 📐 1920 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-ararangua-morro-dos-conventos-1920m2-RS400000/id-36974933/
+
+- **Chácara / sítio com 2 quartos à venda na Avenida Getúlio Vargas, Caver**
+  - 💰 R$ 350.000 | 📐 80 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-sc-ararangua-caverazinho-870m2-RS350000/id-38512723/
+
+- **Chácara para Venda em Araranguá, Caverazinho, 3 dormitórios, 1 suíte, **
+  - 💰 R$ 380.000 | 📐 744 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-ararangua-caverazinho-744m2-RS380000/id-36901860/
+
+- **Chácara / sítio com 2 quartos à venda na Área Rural, Centro, Araranguá**
+  - 💰 R$ 1.450.000 | 📐 30000 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-ararangua-centro-30000m2-RS1450000/id-36974764/
+
+- **Casa com 2 quartos à venda no Lagoão, Araranguá**
+  - 💰 R$ 350.000 | 📐 60 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-lagoao-RS350000/id-27931484/
+
+- **Casa com 2 quartos à venda no Coloninha, Araranguá  por R$ 465.000**
+  - 💰 R$ 465.000 | 📐 ? m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-ararangua-coloninha-RS465000/id-39434834/
+
+- **Casa com 2 quartos à venda na Avenida Getúlio Vargas, Sanga da Areia, **
+  - 💰 R$ 398.000 | 📐 128 m²
+  - 📍 Sanga da Areia — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-sanga-da-areia-128m2-RS398000/id-37518159/
+
+- **Casa para Venda em Araranguá, Santa Catarina, 2 dormitórios, 1 banheir**
+  - 💰 R$ 235.000 | 📐 300 m²
+  - 📍 Santa Catarina — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-santa-catarina-300m2-RS235000/id-35894195/
+
+- **Casa com 3 quartos à venda na Rua Prefeito Walter Belinzoni, 1524, Cen**
+  - 💰 R$ 499.990 | 📐 100 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-centro-360m2-RS499990/id-30148406/
+
+- **Casa com 2 quartos à venda na Vereador Jose Manoel Emidio, 1112, Mato **
+  - 💰 R$ 477.000 | 📐 379 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-mato-alto-379m2-RS477000/id-37913385/
+
+- **Casa para Venda em Araranguá, Polícia Rodoviária, 3 dormitórios, 2 ban**
+  - 💰 R$ 425.000 | 📐 160 m²
+  - 📍 Polícia Rodoviária — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-policia-rodoviaria-420m2-RS425000/id-36829629/
+
+- **Casa com 3 quartos à venda na Rua José Realino Gomes, 11111, Coloninha**
+  - 💰 R$ 220.000 | 📐 45 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-ararangua-coloninha-RS220000/id-21408441/
+
+- **Sítio para Venda em Sombrio, Centro, 2 dormitórios, 2 banheiros, 1 vag**
+  - 💰 R$ 1.280.000 | 📐 30000 m²
+  - 📍 Centro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-sombrio-centro-30000m2-RS1280000/id-36829648/
+
+- **Sítio para Venda em Sombrio, GARUVA, 3 dormitórios, 1 suíte, 1 banheir**
+  - 💰 R$ 400.000 | 📐 5198 m²
+  - 📍 Garuva de Baixo — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-sombrio-garuva-de-baixo-5198m2-RS400000/id-25515838/
+
+- **Casa para Venda em Sombrio, Januária, 2 dormitórios, 1 banheiro**
+  - 💰 R$ 255.000 | 📐 82 m²
+  - 📍 Januária — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-sombrio-januaria-390m2-RS255000/id-29642343/
+
+- **Casa com 2 quartos à venda no São José, Sombrio**
+  - 💰 R$ 470.000 | 📐 90 m²
+  - 📍 São José — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-sombrio-sao-jose-231m2-RS470000/id-37260514/
+
+- **Casa com 3 quartos à venda na José Bittencourt Neto, 932, Nova Guarita**
+  - 💰 R$ 680.000 | 📐 220 m²
+  - 📍 Nova Guarita — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-nova-guarita-300m2-RS680000/id-28283606/
+
+- **Casa para Venda em Sombrio, São José, 3 dormitórios, 2 banheiros, 2 va**
+  - 💰 R$ 480.000 | 📐 360 m²
+  - 📍 São José — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-sao-jose-360m2-RS480000/id-31216962/
+
+- **Casa para Venda em Sombrio, Boa Esperança, 3 dormitórios, 1 suíte, 1 b**
+  - 💰 R$ 640.000 | 📐 121 m²
+  - 📍 Boa Esperança — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-boa-esperanca-361m2-RS640000/id-33014004/
+
+- **Casa para Venda em Sombrio, São José, 3 dormitórios, 1 banheiro, 1 vag**
+  - 💰 R$ 425.000 | 📐 137 m²
+  - 📍 São José — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-sao-jose-360m2-RS425000/id-25603100/
+
+- **Casa para Venda em Sombrio, Januária, 3 dormitórios, 2 banheiros, 1 va**
+  - 💰 R$ 390.000 | 📐 330 m²
+  - 📍 Januária — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-januaria-330m2-RS390000/id-32073620/
+
+- **Casa para Venda em Sombrio, Parque das Avenidas, 2 dormitórios, 1 suít**
+  - 💰 R$ 600.000 | 📐 372 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-parque-das-avenidas-372m2-RS600000/id-25603053/
+
+- **Sobrado para Venda em Sombrio, Nova Brasília, 2 dormitórios, 2 suítes,**
+  - 💰 R$ 710.000 | 📐 117 m²
+  - 📍 Nova Brasília — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-nova-brasilia-117m2-RS710000/id-37225440/
+
+- **Casa para Venda em Sombrio, São Luiz, 2 dormitórios, 1 banheiro, 1 vag**
+  - 💰 R$ 700.000 | 📐 360 m²
+  - 📍 São Luiz — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-sao-luiz-360m2-RS700000/id-37876479/
+
+- **Casa para Venda em Sombrio, Santa Gertrudes, 2 dormitórios, 1 banheiro**
+  - 💰 R$ 200.000 | 📐 ? m²
+  - 📍 Santa Gertrudes — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-santa-gertrudes-RS200000/id-25603101/
+
+- **Casa para Venda em Sombrio, Parque das Avenidas, 3 dormitórios, 1 suít**
+  - 💰 R$ 1.908.000 | 📐 125 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-parque-das-avenidas-1163m2-RS1908000/id-26122382/
+
+- **Casa para Venda em Sombrio, Parque das Avenidas, 3 dormitórios, 1 suít**
+  - 💰 R$ 1.200.000 | 📐 522 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-parque-das-avenidas-522m2-RS1200000/id-25603099/
+
+- **Casa de Madeira à Venda – Vila São Cristóvão - Santa Rosa do Sul/SC**
+  - 💰 R$ 185.000 | 📐 90 m²
+  - 📍 Vila São Cristovão — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-santa-rosa-do-sul-vila-sao-cristovao-351m2-RS185000/id-34394620/
+
+- **Casa para Venda em Santa Rosa do Sul, Centro, 4 dormitórios, 1 suíte, **
+  - 💰 R$ 800.000 | 📐 ? m²
+  - 📍 Centro — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-santa-rosa-do-sul-centro-RS800000/id-25603065/
+
+- **Chácara / sítio com 1 quarto à venda na Vila Santa Catarina, São João **
+  - 💰 R$ 470.000 | 📐 1203 m²
+  - 📍 Vila Santa Catarina — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-1-quarto-com-garagem-sc-sao-joao-do-sul-vila-santa-catarina-1203m2-RS470000/id-35931754/
+
+- **Oportunidade Única! Linda Casa de Madeira ao Lado do Shopping Prime!**
+  - 💰 R$ 160.000 | 📐 70 m²
+  - 📍 Vila Conceição — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-sao-joao-do-sul-vila-conceicao-364m2-RS160000/id-30709107/
+
+- **Casa com 4 quartos à venda no Centro, São João do Sul**
+  - 💰 R$ 250.000 | 📐 92 m²
+  - 📍 Centro — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-sao-joao-do-sul-centro-690m2-RS250000/id-29546685/
+
+- **Chácara / sítio à venda no Curralinhos, Passo de Torres**
+  - 💰 R$ 206.000 | 📐 2992 m²
+  - 📍 Curralinhos — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-passo-de-torres-curralinhos-2992m2-RS206000/id-32853533/
+
+- **Sítio à venda no Bairro São Francisco com 90 m² de área privativa - 1 **
+  - 💰 R$ 550.000 | 📐 90 m²
+  - 📍 São Francisco — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-1-quarto-com-garagem-sc-passo-de-torres-sao-francisco-12500m2-RS550000/id-24993461/
+
+- **Chácara / sítio com 2 quartos à venda no São Francisco, Passo de Torre**
+  - 💰 R$ 650.000 | 📐 ? m²
+  - 📍 São Francisco — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-passo-de-torres-sao-francisco-RS650000/id-36974759/
+
+- **Chácara de fundos para a lagoa com aproximadamente 1.8 hectares**
+  - 💰 R$ 480.000 | 📐 21000 m²
+  - 📍 São Francisco — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-passo-de-torres-sao-francisco-21000m2-RS480000/id-29546681/
+
+- **Chácara com 6 dormitórios à venda, 350000 m² por R$ 2.200.000 - Zona R**
+  - 💰 R$ 2.200.000 | 📐 150 m²
+  - 📍 Zona Rural — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-6-quartos-com-garagem-sc-passo-de-torres-zona-rural-350000m2-RS2200000/id-36294107/
+
+- **Chácara / sítio com 3 quartos à venda na Rua Antonio Teixeira De Faria**
+  - 💰 R$ 1.590.000 | 📐 300 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-passo-de-torres-centro-3273m2-RS1590000/id-32786802/
+
+- **Chácara / sítio com 3 quartos à venda no Curralinhos, Passo de Torres**
+  - 💰 R$ 520.000 | 📐 20000 m²
+  - 📍 Curralinhos — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-passo-de-torres-curralinhos-20000m2-RS520000/id-38369528/
+
+- **Chácara / sítio à venda no São Francisco, Passo de Torres**
+  - 💰 R$ 850.000 | 📐 115000 m²
+  - 📍 São Francisco — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-passo-de-torres-sao-francisco-115000m2-RS850000/id-36974779/
+
+- **Chácara / sítio com 6 quartos à venda na Rodovia Interpraias, Curralin**
+  - 💰 R$ 850.000 | 📐 23500 m²
+  - 📍 Curralinhos — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-6-quartos-com-garagem-sc-passo-de-torres-curralinhos-23500m2-RS850000/id-29546650/
+
+- **Casa com 3 quartos à venda na Bela Torres, Passo de Torres**
+  - 💰 R$ 1.500.000 | 📐 145 m²
+  - 📍 Bela Torres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-bela-torres-RS1500000/id-14310486/
+
+- **Casa à venda, 221 m² por R$ 1.999.000,00 - Novo Passo - Passo de Torre**
+  - 💰 R$ 1.999.000 | 📐 221 m²
+  - 📍 Novo Passo — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-sc-passo-de-torres-novo-passo-443m2-RS1999000/id-30913535/
+
+- **Casa Alto Padrão de esquina com 160m², 03 dormitórios próxima do mar.**
+  - 💰 R$ 1.240.000 | 📐 160 m²
+  - 📍 Balneário Bellatorres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-balneario-bellatorres-350m2-RS1240000/id-29546740/
+
+- **Casa em condomínio fechado com 4 quartos à venda no Centro, Passo de T**
+  - 💰 R$ 4.155.786 | 📐 256 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-sc-passo-de-torres-centro-256m2-RS4155786/id-32414239/
+
+- **Casa Semimobiliada com 3 Dormitórios à Venda no Bairro Bella Torres em**
+  - 💰 R$ 850.000 | 📐 136 m²
+  - 📍 Bela Torres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-bela-torres-136m2-RS850000/id-32876036/
+
+- **Casa em condomínio fechado com 3 quartos à venda no Centro, Passo de T**
+  - 💰 R$ 2.359.524 | 📐 190 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-passo-de-torres-centro-190m2-RS2359524/id-28381065/
+
+- **Chácara / sítio à venda no Anita Garibaldi, Balneário Gaivota**
+  - 💰 R$ 120.000 | 📐 2112 m²
+  - 📍 Anita Garibaldi — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-balneario-gaivota-anita-garibaldi-2112m2-RS120000/id-29546726/
+
+- **Chácara à venda no bairro Anita Garibaldi - Balneário Gaivota/SC**
+  - 💰 R$ 160.000 | 📐 4200 m²
+  - 📍 Anita Garibaldi — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-balneario-gaivota-anita-garibaldi-4200m2-RS160000/id-29546632/
+
+- **Chácara / sítio à venda no Rio Novo, Balneário Gaivota**
+  - 💰 R$ 160.000 | 📐 1149 m²
+  - 📍 Rio Novo — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-balneario-gaivota-rio-novo-1149m2-RS160000/id-38284899/
+
+- **Casa com 2 quartos à venda no Centro, Balneário Gaivota**
+  - 💰 R$ 460.000 | 📐 110 m²
+  - 📍 Centro — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-centro-110m2-RS460000/id-30672257/
+
+- **Casa com 3 dormitórios à venda, 150 m² por R$ 890.000,00 - Furnas - Ba**
+  - 💰 R$ 890.000 | 📐 150 m²
+  - 📍 Furnas — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-furnas-300m2-RS890000/id-37260548/
+
+- **Casa com 3 quartos à venda na Praia Areias Claras, Balneário Gaivota**
+  - 💰 R$ 500.000 | 📐 120 m²
+  - 📍 Praia Areias Claras — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-balneario-gaivota-praia-areias-claras-120m2-RS500000/id-29546611/
+
+- **Casa para Venda em Balneário Gaivota, Jardim Ultramar, 2 dormitórios, **
+  - 💰 R$ 419.900 | 📐 300 m²
+  - 📍 Jardim Ultramar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-jardim-ultramar-300m2-RS419900/id-37484355/
+
+- **Casa de Alto Padrão - 03 dormitórios sendo 01 suíte  01 banheiro socia**
+  - 💰 R$ 750.000 | 📐 96 m²
+  - 📍 Furnas — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-furnas-RS750000/id-32595815/
+
+- **Casa com 2 quartos à venda na Marechal Deodoro, 19, Centro, Balneário **
+  - 💰 R$ 250.000 | 📐 100 m²
+  - 📍 Centro — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-balneario-gaivota-centro-300m2-RS250000/id-38689443/
+
+- **Casa com 3 quartos à venda na Praia Turimar, Balneário Gaivota  por R$**
+  - 💰 R$ 895.000 | 📐 187 m²
+  - 📍 Praia Turimar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-praia-turimar-187m2-RS895000/id-36701114/
+
+- **Casa com 3 quartos à venda no Village Dunas Norte, Balneário Gaivota  **
+  - 💰 R$ 630.000 | 📐 121 m²
+  - 📍 Village Dunas Norte — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-village-dunas-norte-121m2-RS630000/id-31637865/
+
+- **Casa para Venda em Balneário Gaivota, Village Dunas Norte, 2 dormitóri**
+  - 💰 R$ 299.900 | 📐 300 m²
+  - 📍 Village Dunas Norte — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-village-dunas-norte-300m2-RS299900/id-38208113/
+
+- **Casa à Venda – Praia Nova Santa Fé  Balneário Gaivota, SC a 10 minutos**
+  - 💰 R$ 150.000 | 📐 100 m²
+  - 📍 Santa Fé II — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-santa-fe-ii-300m2-RS150000/id-36717806/
+
+- **Casa 03 Dorm à venda no Bairro Praia Valverde com 140 m² de área priva**
+  - 💰 R$ 430.000 | 📐 140 m²
+  - 📍 Praia Valverde — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-praia-valverde-528m2-RS430000/id-35614492/
+
+- **Casa a venda com valor promocional na planta - Village Dunas Oeste**
+  - 💰 R$ 290.000 | 📐 ? m²
+  - 📍 Village Dunas I — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-balneario-gaivota-village-dunas-i-RS290000/id-33288788/
+
+- **Chácara / sítio à venda no Rio Jordão, Siderópolis**
+  - 💰 R$ 320.000 | 📐 ? m²
+  - 📍 Rio Jordão — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sideropolis-rio-jordao-RS320000/id-39434914/
+
+- **Casa com 3 quartos à venda no Centro, Siderópolis**
+  - 💰 R$ 1.250.000 | 📐 ? m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sideropolis-centro-RS1250000/id-28603230/
+
+- **Casa com 3 quartos à venda na Vila São Jorge, Siderópolis**
+  - 💰 R$ 400.000 | 📐 ? m²
+  - 📍 Vila São Jorge — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sideropolis-vila-sao-jorge-RS400000/id-32818625/
+
+- **Casa para Venda em Siderópolis, Vila Fiorita, 2 dormitórios, 2 banheir**
+  - 💰 R$ 230.000 | 📐 660 m²
+  - 📍 Rio Fiorita — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sideropolis-rio-fiorita-660m2-RS230000/id-39595051/
+
+- **Chácara / sítio à venda no Centro, Nova Veneza**
+  - 💰 R$ 1.500.000 | 📐 15000 m²
+  - 📍 Centro — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-nova-veneza-centro-15000m2-RS1500000/id-39434706/
+
+- **Chácara / sítio com 3 quartos à venda na Vila Maria, 100, Zona Rural, **
+  - 💰 R$ 430.000 | 📐 200 m²
+  - 📍 Zona Rural — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-nova-veneza-zona-rural-10000m2-RS430000/id-25270574/
+
+- **Chácara / sítio com 2 quartos à venda no São Bento Alto, Nova Veneza**
+  - 💰 R$ 399.000 | 📐 120 m²
+  - 📍 São Bento Alto — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-nova-veneza-sao-bento-alto-RS399000/id-15259532/
+
+- **Casa para Venda em Nova Veneza, Caravaggio, 3 dormitórios, 2 suítes, 4**
+  - 💰 R$ 1.500.000 | 📐 189 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-nova-veneza-caravaggio-374m2-RS1500000/id-20028593/
+
+- **Casa para Venda em Nova Veneza, Caravaggio, 3 dormitórios, 2 suítes, 3**
+  - 💰 R$ 2.600.000 | 📐 1215 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-nova-veneza-caravaggio-1215m2-RS2600000/id-29197991/
+
+- **Casa com 5 quartos à venda no Caravaggio, Nova Veneza**
+  - 💰 R$ 745.000 | 📐 ? m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-sc-nova-veneza-caravaggio-RS745000/id-39061793/
+
+- **Casa com 3 quartos à venda no Caravaggio, Nova Veneza**
+  - 💰 R$ 1.350.000 | 📐 198 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-nova-veneza-caravaggio-400m2-RS1350000/id-23509677/
+
+- **Sítio 50.000 m² 5 HC / Chácara / Área Rural / Casa de Campo / Terreno **
+  - 💰 R$ 3.000.000 | 📐 540 m²
+  - 📍 Centro — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-4-quartos-com-garagem-sc-cocal-do-sul-centro-50000m2-RS3000000/id-35799967/
+
+- **Casa com 3 quartos à venda no Centro, Cocal do Sul**
+  - 💰 R$ 450.000 | 📐 ? m²
+  - 📍 Centro — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-centro-RS450000/id-39434736/
+
+- **Casa com 3 quartos à venda no Jardim Itália, Cocal do Sul**
+  - 💰 R$ 400.000 | 📐 ? m²
+  - 📍 Jardim Itália — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-jardim-italia-RS400000/id-32818609/
+
+- **Casa para Venda em Cocal do Sul, Monte Carlos, 3 dormitórios, 1 suíte,**
+  - 💰 R$ 1.100.000 | 📐 250 m²
+  - 📍 Monte Carlos — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-monte-carlos-420m2-RS1100000/id-32289200/
+
+- **Cocal do Sul: Casa central ampla com possibilidade de permuta por casa**
+  - 💰 R$ 900.000 | 📐 20 m²
+  - 📍 São João — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-sao-joao-464m2-RS900000/id-35473512/
+
+- **Casa com 3 quartos à venda na Rua Antônio Nunes de Souza, 100, Centro,**
+  - 💰 R$ 1.290.000 | 📐 247 m²
+  - 📍 Centro — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-centro-RS1290000/id-33600914/
+
+- **Ótima casa em Cocal do Sul - Com Ampla sala comercial terrea - Casa co**
+  - 💰 R$ 2.300.000 | 📐 528 m²
+  - 📍 Monte Carlos — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-monte-carlos-528m2-RS2300000/id-39790990/
+
+- **Casa com 3 quartos à venda na Rua Uberaba, --, Jardim Elizabeth, Cocal**
+  - 💰 R$ 240.000 | 📐 20 m²
+  - 📍 Jardim Elizabeth — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-jardim-elizabeth-20m2-RS240000/id-36005303/
+
+- **Ampla Casa Em Cocal do Sul  - 3 quartos amplos no total - Suíte closet**
+  - 💰 R$ 980.000 | 📐 165 m²
+  - 📍 Centro — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-centro-544m2-RS980000/id-36203896/
+
+- **Casa com 3 quartos à venda no Horizonte, Cocal do Sul**
+  - 💰 R$ 1.300.000 | 📐 300 m²
+  - 📍 Horizonte — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-horizonte-300m2-RS1300000/id-28603194/
+
+- **Casa para Venda em Cocal do Sul, Monte Carlos, 3 dormitórios, 1 banhei**
+  - 💰 R$ 480.000 | 📐 125 m²
+  - 📍 Monte Carlos — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-monte-carlos-125m2-RS480000/id-32288951/
+
+- **Casa com 3 quartos à venda na Zona Rural, Cocal do Sul**
+  - 💰 R$ 289.000 | 📐 66 m²
+  - 📍 Zona Rural — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-zona-rural-RS289000/id-31879218/
+
+- **Casa com 3 quartos à venda no Jardim Itália, Cocal do Sul**
+  - 💰 R$ 700.000 | 📐 140 m²
+  - 📍 Jardim Itália — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-jardim-italia-406m2-RS700000/id-34405681/
+
+- **Casa em condomínio fechado com 3 quartos à venda no Centro, Balneário **
+  - 💰 R$ 1.880.000 | 📐 227 m²
+  - 📍 Centro — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-centro-387m2-RS1880000/id-27601792/
+
+- **Casa com 3 quartos à venda na Zona Norte, Balneário Rincão**
+  - 💰 R$ 680.000 | 📐 195 m²
+  - 📍 Zona Norte — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-balneario-rincao-zona-norte-195m2-RS680000/id-37171231/
+
+- **EMICREI VENDE Casa com 04 dormitórios, 319 m² por R$ 4.200.000 - Lagoa**
+  - 💰 R$ 4.200.000 | 📐 319 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-780m2-RS4200000/id-18284024/
+
+- **EMICREI VENDE Casa com 3 dormitórios, 97m² por R$ 1.200.000,00 - Lagoa**
+  - 💰 R$ 1.200.000 | 📐 97 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-387m2-RS1200000/id-18079785/
+
+- **Casa Condomínio Fechado com 3 dormitórios à venda, 212 m² por R$ 1.950**
+  - 💰 R$ 1.950.000 | 📐 212 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-zona-sul-592m2-RS1950000/id-37260519/
+
+- **Casa a venda 2 quartos 2 vagas de garagem edicula no Balneário Rincão**
+  - 💰 R$ 650.000 | 📐 127 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-rincao-zona-sul-288m2-RS650000/id-28785623/
+
+- **Condomínio Fechado para Venda em Balneário Rincão, Lagoa dos Esteves**
+  - 💰 R$ 680.000 | 📐 ? m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-sc-balneario-rincao-lagoa-dos-esteves-RS680000/id-33950948/
+
+- **Casa para Venda em Balneário Rincão, Lagoa dos Esteves, 5 dormitórios,**
+  - 💰 R$ 1.000.000 | 📐 180 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-RS1000000/id-36339619/
+
+- **Casa em Condomínio para Venda em Balneário Rincão, Vila Suiça, 3 dormi**
+  - 💰 R$ 1.880.000 | 📐 227 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-RS1880000/id-35258451/
+
+- **Casa com 4 quartos à venda na Zona Sul, Balneário Rincão**
+  - 💰 R$ 1.250.000 | 📐 342 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-balneario-rincao-zona-sul-500m2-RS1250000/id-22241820/
+
+- **Casa em Condomínio para Venda em Balneário Rincão, Lagoa dos Esteves, **
+  - 💰 R$ 1.998.000 | 📐 240 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-400m2-RS1998000/id-32289145/
+
+- **Casa com 4 quartos à venda na Costa da Lagoa, 5353, Centro, Balneário **
+  - 💰 R$ 890.000 | 📐 500 m²
+  - 📍 Centro — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-balneario-rincao-centro-500m2-RS890000/id-34375634/
+
+- **Casa em condomínio fechado com 4 quartos à venda na Lagoa Dos Esteves,**
+  - 💰 R$ 910.000 | 📐 132 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-132m2-RS910000/id-28603015/
+
+- **Casa de Alvenaria 5 dormitórios - Zona Sul - Balneário Rincão**
+  - 💰 R$ 1.290.000 | 📐 347 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-sc-balneario-rincao-zona-sul-384m2-RS1290000/id-28806632/
+
+- **Casa para Venda em Balneário Rincão, Morada do Sol, 3 dormitórios, 3 s**
+  - 💰 R$ 1.814.000 | 📐 200 m²
+  - 📍 Zona Norte — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-rincao-zona-norte-200m2-RS1814000/id-36101938/
+
+- **Casa para Venda em Jaguaruna, Esplanada, 3 dormitórios, 2 banheiros, 2**
+  - 💰 R$ 790.000 | 📐 375 m²
+  - 📍 Balneário Esplanada — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-balneario-esplanada-375m2-RS790000/id-27019147/
+
+- **Casa com 3 quartos à venda na Terezinha Ibrabtina De Souza, 99, Cristo**
+  - 💰 R$ 645.000 | 📐 96 m²
+  - 📍 Cristo Rei — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-cristo-rei-96m2-RS645000/id-38227513/
+
+- **Casa com 4 quartos à venda na Rua, sn, Campo Bom, Jaguaruna**
+  - 💰 R$ 1.900.000 | 📐 260 m²
+  - 📍 Campo Bom — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-jaguaruna-campo-bom-260m2-RS1900000/id-18171249/
+
+- **Casa com 3 quartos à venda na Rua Getúlio Vargas, 1, Campo Bom, Jaguar**
+  - 💰 R$ 430.000 | 📐 153 m²
+  - 📍 Campo Bom — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-campo-bom-RS430000/id-37433321/
+
+- **Casa à venda na Rua Eugenio Silveira Ribeiro, --, Campo Bom, Jaguaruna**
+  - 💰 R$ 350.000 | 📐 20 m²
+  - 📍 Campo Bom — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-jaguaruna-campo-bom-20m2-RS350000/id-38529409/
+
+- **Casa com 3 quartos à venda no Centro, Jaguaruna**
+  - 💰 R$ 250.000 | 📐 75 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-centro-75m2-RS250000/id-35400214/
+
+- **Casa com 3 quartos à venda no Balneário Arroio Corrente, Jaguaruna**
+  - 💰 R$ 450.000 | 📐 80 m²
+  - 📍 Balneário Arroio Corrente — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-balneario-arroio-corrente-300m2-RS450000/id-34127181/
+
+- **Casa com 3 quartos à venda no Camacho, Jaguaruna**
+  - 💰 R$ 215.000 | 📐 ? m²
+  - 📍 Camacho — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-camacho-RS215000/id-39434921/
+
+- **Casa à venda, 3 quartos, 2 vagas, Balneário Arroio Corrente - Jaguarun**
+  - 💰 R$ 420.000 | 📐 130 m²
+  - 📍 Balneário Arroio Corrente — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-balneario-arroio-corrente-273m2-RS420000/id-24196614/
+
+- **Casa com 4 quartos à venda na Miguel Francisco Pedro, Centro, Jaguarun**
+  - 💰 R$ 540.000 | 📐 ? m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-sc-jaguaruna-centro-RS540000/id-32591734/
+
+- **Casa com 3 quartos à venda em Balneário Esplanada, Jaguaruna**
+  - 💰 R$ 650.000 | 📐 130 m²
+  - 📍 Balneário Esplanada — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-balneario-esplanada-300m2-RS650000/id-36789785/
+
+- **Casa com 2 quartos à venda na Terezinha Ibrantina De Souza, 99, Cristo**
+  - 💰 R$ 330.000 | 📐 81 m²
+  - 📍 Cristo Rei — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-cristo-rei-81m2-RS330000/id-37885167/
+
