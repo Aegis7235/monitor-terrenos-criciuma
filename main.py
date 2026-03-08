@@ -4,12 +4,13 @@ Roda no GitHub Actions a cada 6h. Salva mapa + log em /docs (GitHub Pages).
 """
 import os
 from datetime import datetime
-from scrapers.olx_scraper import scrape_olx
+from scrapers.olx_scraper        import scrape_olx
+from scrapers.chavesnamao_scraper import scrape_chavesnamao
 from utils.database import (
     init_db, salvar_anuncios, carregar_todos,
     carregar_sem_coordenadas, atualizar_coordenadas, total_no_banco
 )
-from utils.geocoder import geocodificar_anuncios
+from utils.geocoder     import geocodificar_anuncios
 from utils.map_generator import gerar_mapa
 
 LOG = "docs/log_novidades.md"
@@ -19,6 +20,12 @@ LIMITE_PENDENTES = 50    # Se houver mais pendentes que isso, pula o scraping
 GEO_POR_RODADA   = 200  # Quantos anúncios geocodificar por execução
 FORCAR_SCRAPING  = False # True = ignora o limite de pendentes e força scraping
 APENAS_MAPA      = False # True = pula scraping e geocodificação, só gera o mapa
+
+# Fontes ativas — comente a linha ou mude para False para desativar
+FONTES = {
+    "olx":         True,
+    "chavesnamao": True,
+}
 # ─────────────────────────────────────────────────────────────────────────────
 
 
@@ -61,29 +68,41 @@ def main():
             print(f"   Scraping pulado — geocodificando primeiro.")
         else:
             print(f"\n  Pendentes: {len(pendentes)} — iniciando scraping...")
+            todos_coletados = []
 
             # 3. Coleta OLX
-            print("\n▶ Coletando OLX...")
-            olx = scrape_olx()
-            print(f"\n  Total coletado: {len(olx)} anúncios")
+            if FONTES.get("olx"):
+                print("\n▶ Coletando OLX...")
+                olx = scrape_olx()
+                print(f"  OLX: {len(olx)} anúncios")
+                todos_coletados.extend(olx)
 
-            # 4. Salva / detecta novos
-            novos = salvar_anuncios(olx)
+            # 4. Coleta Chaves na Mão
+            if FONTES.get("chavesnamao"):
+                print("\n▶ Coletando Chaves na Mão...")
+                cnm = scrape_chavesnamao()
+                print(f"  ChavesNaMão: {len(cnm)} anúncios")
+                todos_coletados.extend(cnm)
+
+            print(f"\n  Total coletado: {len(todos_coletados)} anúncios")
+
+            # 5. Salva / detecta novos
+            novos = salvar_anuncios(todos_coletados)
             print(f"  🆕 Novos: {len(novos)}")
 
-        # 5. Geocodifica pendentes
+        # 6. Geocodifica pendentes
         pendentes = carregar_sem_coordenadas(GEO_POR_RODADA)
         if pendentes:
             print(f"\n▶ Geocodificando {len(pendentes)} anúncios...")
             geocodificar_anuncios(pendentes, atualizar_coordenadas)
 
-    # 6. Mapa
+    # 7. Mapa
     print("\n▶ Gerando mapa...")
     todos_coords = carregar_todos()
     novos_ids = [a["id"] for a in novos]
     gerar_mapa(todos_coords, novos_ids=novos_ids)
 
-    # 7. Log
+    # 8. Log
     escrever_log(novos)
 
     print(f"\n{sep}")
