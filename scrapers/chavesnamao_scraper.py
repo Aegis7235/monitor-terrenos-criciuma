@@ -91,17 +91,18 @@ def _get_playwright(url):
         # Bloqueia imagens/fontes para acelerar
         page.route("**/*.{png,jpg,jpeg,gif,webp,woff,woff2,ttf}", lambda r: r.abort())
 
-        page.goto(url, wait_until="domcontentloaded", timeout=30000)
+        # networkidle garante que o Next.js terminou de hidratar
+        page.goto(url, wait_until="networkidle", timeout=30000)
 
         # Aguarda até o ld+json com Offer aparecer (max 10s)
         try:
             page.wait_for_function(
                 "() => [...document.querySelectorAll('script[type=\"application/ld+json\"]')]"
-                ".some(s => s.textContent.includes('itemListElement'))",
-                timeout=10000,
+                ".some(s => s.textContent.includes('"@type":"Offer"'))",
+                timeout=15000,
             )
         except Exception:
-            pass  # continua mesmo se timeout — pode ser página vazia
+            pass  # continua mesmo se timeout - pode ser pagina vazia
 
         html = page.content()
         browser.close()
@@ -169,12 +170,14 @@ def _get_html(url):
     # 1. Playwright
     if _playwright_ok:
         html = _get_playwright(url)
-        if html and "itemListElement" in html:
+        if html and '"@type":"Offer"' in html:
             _stats["playwright"] += 1
             print("[CNM] ✅ GRÁTIS (Playwright)")
             return html
         if html:
-            print("[CNM] Playwright: HTML sem itemListElement — tentando cloudscraper")
+            tem_breadcrumb = "BreadcrumbList" in html
+            tem_ldjson = "application/ld+json" in html
+            print(f"[CNM] Playwright: sem Offer no HTML (breadcrumb={tem_breadcrumb} ldjson={tem_ldjson} size={len(html)}) — tentando cloudscraper")
 
     # 2. cloudscraper
     html = _get_cloudscraper(url)
