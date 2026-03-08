@@ -1,13 +1,23 @@
 """
 Chaves na Mão Scraper — Sul Catarinense
-cloudscraper com fallback ScraperAPI.
-Extrai dados via <script type="application/ld+json"> (Schema.org Offer),
-estratégia muito mais robusta que parsear HTML/Next.js.
+Estratégia:
+  1. Playwright (headless Chrome) — renderiza JS, garante ld+json completo
+  2. cloudscraper — fallback grátis, funciona para cidades grandes
+  3. ScraperAPI (render=true) — fallback pago
+Extrai dados via <script type="application/ld+json"> (Schema.org Offer).
 """
 import time, re, os, json
 from bs4 import BeautifulSoup
 from datetime import datetime
 
+# ── Playwright (opcional) ─────────────────────────────────────────────────────
+try:
+    from playwright.sync_api import sync_playwright
+    _playwright_ok = True
+except ImportError:
+    _playwright_ok = False
+
+# ── cloudscraper (opcional) ───────────────────────────────────────────────────
 try:
     import cloudscraper
     _scraper = cloudscraper.create_scraper(
@@ -24,22 +34,18 @@ BASE_TERRENOS = "https://www.chavesnamao.com.br/terrenos-a-venda"
 BASE_CHACARAS = "https://www.chavesnamao.com.br/chacaras-a-venda"
 
 _CIDADES = [
-    # ── Núcleo ────────────────────────────────────────────────────────────────
+    # Nucleo
     "sc-criciuma", "sc-icara", "sc-forquilhinha", "sc-ararangua",
-
-    # ── Extremo Sul SC ────────────────────────────────────────────────────────
+    # Extremo Sul SC
     "sc-sombrio", "sc-santa-rosa-do-sul", "sc-sao-joao-do-sul",
     "sc-passo-de-torres", "sc-balneario-gaivota", "sc-praia-grande",
     "sc-timbe-do-sul", "sc-jacinto-machado",
-
-    # ── Região de Turvo ───────────────────────────────────────────────────────
+    # Regiao de Turvo
     "sc-turvo", "sc-meleiro", "sc-ermo", "sc-morro-grande",
-
-    # ── Serra / Transição ─────────────────────────────────────────────────────
+    # Serra / Transicao
     "sc-lauro-muller", "sc-sideropolis", "sc-urussanga",
     "sc-nova-veneza", "sc-cocal-do-sul", "sc-morro-da-fumaca",
-
-    # ── Litoral Sul ───────────────────────────────────────────────────────────
+    # Litoral Sul
     "sc-balneario-rincao", "sc-jaguaruna", "sc-sangao", "sc-maracaja",
 ]
 
@@ -59,10 +65,61 @@ HEADERS = {
     "Referer": "https://www.chavesnamao.com.br/",
 }
 
-_stats = {"cloudscraper": 0, "scraperapi": 0, "falhou": 0}
+_stats = {"playwright": 0, "cloudscraper": 0, "scraperapi": 0, "falhou": 0}
+_pw_instance = None  # reutiliza browser entre chamadas
 
 
-# ── HTTP ──────────────────────────────────────────────────────────────────────
+# ── Playwright ────────────────────────────────────────────────────────────────
+
+def _get_playwright(url):
+    """Abre URL com Playwright (headless Chrome), aguarda ld+json carregar."""
+    if not _playwright_ok:
+        return None
+    global _pw_instance
+    try:
+        if _pw_instance is None:
+            _pw_instance = sync_playwright().start()
+
+        browser = _pw_instance.chromium.launch(headless=True)
+        ctx = browser.new_context(
+            user_agent=HEADERS["User-Agent"],
+            locale="pt-BR",
+            extra_http_headers={"Accept-Language": HEADERS["Accept-Language"]},
+        )
+        page = ctx.new_page()
+
+        # Bloqueia imagens/fontes para acelerar
+        page.route("**/*.{png,jpg,jpeg,gif,webp,woff,woff2,ttf}", lambda r: r.abort())
+
+        page.goto(url, wait_until="domcontentloaded", timeout=30000)
+
+        # Aguarda até o ld+json com Offer aparecer (max 10s)
+        try:
+            page.wait_for_function(
+                "() => [...document.querySelectorAll('script[type=\"application/ld+json\"]')]"
+                ".some(s => s.textContent.includes('itemListElement'))",
+                timeout=10000,
+            )
+        except Exception:
+            pass  # continua mesmo se timeout — pode ser página vazia
+
+        html = page.content()
+        browser.close()
+
+        if html and len(html) > 3000:
+            return html
+    except Exception as e:
+        print(f"[CNM] Playwright erro: {e}")
+        if _pw_instance:
+            try:
+                _pw_instance.stop()
+            except Exception:
+                pass
+            _pw_instance = None
+    return None
+
+
+# ── cloudscraper ──────────────────────────────────────────────────────────────
 
 def _get_cloudscraper(url):
     if not _scraper:
@@ -70,47 +127,80 @@ def _get_cloudscraper(url):
     try:
         r = _scraper.get(url, headers=HEADERS, timeout=30)
         if r.status_code == 200 and len(r.text) > 3000:
-            return r
+            return r.text
         print(f"[CNM] cloudscraper → {r.status_code} / {len(r.text)} bytes")
     except Exception as e:
         print(f"[CNM] cloudscraper erro: {e}")
     return None
 
 
+# ── ScraperAPI ────────────────────────────────────────────────────────────────
+
 def _get_scraperapi(url):
     if not SCRAPERAPI_KEY:
         return None
     try:
-        payload = {"api_key": SCRAPERAPI_KEY, "url": url, "country_code": "br", "render": "false"}
-        r = requests.get("https://api.scraperapi.com/", params=payload, timeout=60)
+        # render=true para executar JS como um browser real
+        payload = {
+            "api_key": SCRAPERAPI_KEY,
+            "url": url,
+            "country_code": "br",
+            "render": "true",
+        }
+        r = requests.get("https://api.scraperapi.com/", params=payload, timeout=90)
         if r.status_code == 200 and len(r.text) > 3000:
-            return r
+            return r.text
         print(f"[CNM] ScraperAPI → {r.status_code}")
     except Exception as e:
         print(f"[CNM] ScraperAPI erro: {e}")
     return None
 
 
-def _get(url):
-    r = _get_cloudscraper(url)
-    if r:
+# ── Dispatcher ────────────────────────────────────────────────────────────────
+
+def _get_html(url):
+    """
+    Tenta obter o HTML renderizado em ordem de custo:
+      1. Playwright (grátis, JS completo)
+      2. cloudscraper (grátis, sem JS)
+      3. ScraperAPI render=true (pago)
+    Se cloudscraper retornar HTML mas sem itemListElement, descarta e tenta próximo.
+    """
+    # 1. Playwright
+    if _playwright_ok:
+        html = _get_playwright(url)
+        if html and "itemListElement" in html:
+            _stats["playwright"] += 1
+            print("[CNM] ✅ GRÁTIS (Playwright)")
+            return html
+        if html:
+            print("[CNM] Playwright: HTML sem itemListElement — tentando cloudscraper")
+
+    # 2. cloudscraper
+    html = _get_cloudscraper(url)
+    if html and "itemListElement" in html:
         _stats["cloudscraper"] += 1
-        print(f"[CNM] ✅ GRÁTIS (cloudscraper)")
-        return r
-    print(f"[CNM] cloudscraper falhou → tentando ScraperAPI...")
-    r = _get_scraperapi(url)
-    if r:
+        print("[CNM] ✅ GRÁTIS (cloudscraper)")
+        return html
+    if html:
+        print("[CNM] cloudscraper: HTML sem itemListElement — tentando ScraperAPI")
+    else:
+        print("[CNM] cloudscraper falhou — tentando ScraperAPI")
+
+    # 3. ScraperAPI com render
+    html = _get_scraperapi(url)
+    if html:
         _stats["scraperapi"] += 1
-        print(f"[CNM] ⚠️  PAGO (ScraperAPI)")
-        return r
+        print("[CNM] ⚠️  PAGO (ScraperAPI render=true)")
+        return html
+
     _stats["falhou"] += 1
     return None
 
 
-# ── Paginação ─────────────────────────────────────────────────────────────────
+# ── Paginacao ─────────────────────────────────────────────────────────────────
 
 def _total_paginas(soup):
-    """Detecta número total de páginas via links ?pagina=N ou contagem de imóveis."""
     try:
         pags = soup.find_all("a", href=re.compile(r'pagina=\d+'))
         if pags:
@@ -118,31 +208,26 @@ def _total_paginas(soup):
                     for p in pags if re.search(r'pagina=(\d+)', p.get("href", ""))]
             if nums:
                 return max(nums)
-
-        total_tag = soup.find(string=re.compile(r'\d+\s+im[oó]ve[li]s?', re.I))
+        total_tag = soup.find(string=re.compile(r'\d+\s+im[oo]ve[li]s?', re.I))
         if total_tag:
             m = re.search(r'(\d+)', total_tag)
             if m:
                 return max(1, (int(m.group(1)) + 19) // 20)
     except Exception:
         pass
-    return 5  # fallback conservador
+    return 5
 
 
-# ── Extração principal via ld+json ────────────────────────────────────────────
+# ── Extracao ld+json ──────────────────────────────────────────────────────────
 
-def _extrair_area_url(url: str) -> int | None:
-    """Tenta extrair área em m² diretamente da URL do anúncio.
-    Ex: ...criciuma-sao-simao-3162m2-RS590000/...  →  3162
-    """
+def _extrair_area_url(url):
     m = re.search(r'-(\d+(?:[.,]\d+)?)m2-', url, re.I)
     if m:
         return int(re.sub(r'[.,]', '', m.group(1)))
     return None
 
 
-def _extrair_area_floorsize(item_offered: dict) -> int | None:
-    """Extrai área do campo floorSize.unitText  ex: '3.162m²' ou '200m²'."""
+def _extrair_area_floorsize(item_offered):
     fs = item_offered.get("floorSize", {})
     texto = fs.get("unitText", "")
     if texto:
@@ -152,17 +237,16 @@ def _extrair_area_floorsize(item_offered: dict) -> int | None:
     return None
 
 
-def _extrair_id(url: str) -> str | None:
+def _extrair_id(url):
     m = re.search(r'/id-(\d+)/', url)
     return m.group(1) if m else None
 
 
-def parsear_offer(offer: dict) -> dict | None:
-    """Parseia um objeto @type:Offer do ld+json do Chaves na Mão."""
+def parsear_offer(offer):
     try:
-        url      = offer.get("url", "")
-        titulo   = offer.get("name", "").strip()
-        preco_s  = offer.get("price", "0")
+        url     = offer.get("url", "")
+        titulo  = offer.get("name", "").strip()
+        preco_s = offer.get("price", "0")
 
         if not url or not titulo:
             return None
@@ -171,7 +255,6 @@ def parsear_offer(offer: dict) -> dict | None:
         if not anuncio_id:
             return None
 
-        # Preço
         try:
             preco = int(float(str(preco_s))) if preco_s else None
             if preco == 0:
@@ -179,10 +262,8 @@ def parsear_offer(offer: dict) -> dict | None:
         except (ValueError, TypeError):
             preco = None
 
-        # Item ofertado (dados do imóvel)
         item = offer.get("itemOffered", {})
 
-        # Área: tenta floorSize → URL → descrição
         area = _extrair_area_floorsize(item)
         if not area:
             area = _extrair_area_url(url)
@@ -192,25 +273,20 @@ def parsear_offer(offer: dict) -> dict | None:
             if m:
                 area = int(re.sub(r'[.,]', '', m.group(1)))
 
-        # Endereço
         addr   = item.get("address", {})
         bairro = addr.get("addressLocality", "").strip()
-        regiao = addr.get("addressRegion", "")   # ex: "Criciúma, SC"
+        regiao = addr.get("addressRegion", "")
         cidade = regiao.split(",")[0].strip() if regiao else ""
         estado = regiao.split(",")[-1].strip() if "," in regiao else "SC"
         rua    = addr.get("streetAddress", "").strip()
-        if rua in ("não disponível", ""):
+        if rua in ("nao disponivel", "nao disponível", ""):
             rua = ""
 
-        # Coordenadas
-        geo  = item.get("geo", {})
-        lat  = float(geo.get("latitude",  0) or 0)
-        lon  = float(geo.get("longitude", 0) or 0)
+        geo = item.get("geo", {})
+        lat = float(geo.get("latitude",  0) or 0)
+        lon = float(geo.get("longitude", 0) or 0)
 
-        # Foto
-        foto = item.get("image", "")
-
-        # Descrição curta
+        foto      = item.get("image", "")
         descricao = item.get("description", "")[:300]
 
         return {
@@ -225,22 +301,17 @@ def parsear_offer(offer: dict) -> dict | None:
             "lat":         lat if lat != 0 else None,
             "lon":         lon if lon != 0 else None,
             "url":         url,
-            "fonte":       "ChavesNaMão",
+            "fonte":       "ChavesNaMao",
             "foto":        foto,
             "descricao":   descricao,
             "data_coleta": datetime.now().isoformat(),
         }
-
     except Exception as e:
         print(f"[CNM] Erro ao parsear offer: {e}")
         return None
 
 
-def extrair_offers_ldjson(soup: BeautifulSoup) -> list[dict]:
-    """
-    Varre todos os <script type="application/ld+json"> da página
-    e coleta objetos @type:Offer (diretos ou dentro de ItemList/Product).
-    """
+def extrair_offers_ldjson(soup):
     offers = []
     for tag in soup.find_all("script", type="application/ld+json"):
         try:
@@ -248,9 +319,7 @@ def extrair_offers_ldjson(soup: BeautifulSoup) -> list[dict]:
         except (json.JSONDecodeError, TypeError):
             continue
 
-        # Pode ser lista no topo
         items = data if isinstance(data, list) else [data]
-
         for obj in items:
             tipo = obj.get("@type", "")
 
@@ -259,34 +328,34 @@ def extrair_offers_ldjson(soup: BeautifulSoup) -> list[dict]:
                 a = parsear_offer(obj)
                 if a:
                     offers.append(a)
+                continue
 
-            # Qualquer objeto que tenha "itemListElement" ou "offers"
-            else:
-                # Coleta de itemListElement (onde o CNM coloca os Offers)
-                raw_items = obj.get("itemListElement", [])
-                if isinstance(raw_items, dict): raw_items = [raw_items]
-                for sub in raw_items:
-                    if not isinstance(sub, dict):
-                        continue
-                    if sub.get("@type") == "Offer":
-                        a = parsear_offer(sub)
+            # Qualquer objeto com itemListElement ou offers
+            raw_items = obj.get("itemListElement", [])
+            if isinstance(raw_items, dict):
+                raw_items = [raw_items]
+            for sub in raw_items:
+                if not isinstance(sub, dict):
+                    continue
+                if sub.get("@type") == "Offer":
+                    a = parsear_offer(sub)
+                    if a:
+                        offers.append(a)
+                elif sub.get("@type") == "ListItem":
+                    inner = sub.get("item", {})
+                    if isinstance(inner, dict) and inner.get("@type") == "Offer":
+                        a = parsear_offer(inner)
                         if a:
                             offers.append(a)
-                    elif sub.get("@type") == "ListItem":
-                        inner = sub.get("item", {})
-                        if isinstance(inner, dict) and inner.get("@type") == "Offer":
-                            a = parsear_offer(inner)
-                            if a:
-                                offers.append(a)
 
-                # Coleta de offers (AggregateOffer, etc)
-                raw_offers = obj.get("offers", [])
-                if isinstance(raw_offers, dict): raw_offers = [raw_offers]
-                for sub in raw_offers:
-                    if isinstance(sub, dict) and sub.get("@type") == "Offer":
-                        a = parsear_offer(sub)
-                        if a:
-                            offers.append(a)
+            raw_offers = obj.get("offers", [])
+            if isinstance(raw_offers, dict):
+                raw_offers = [raw_offers]
+            for sub in raw_offers:
+                if isinstance(sub, dict) and sub.get("@type") == "Offer":
+                    a = parsear_offer(sub)
+                    if a:
+                        offers.append(a)
 
     return offers
 
@@ -295,49 +364,40 @@ def extrair_offers_ldjson(soup: BeautifulSoup) -> list[dict]:
 
 def scrape_chavesnamao():
     anuncios = []
-    _stats["cloudscraper"] = 0
-    _stats["scraperapi"]   = 0
-    _stats["falhou"]       = 0
+    for k in _stats:
+        _stats[k] = 0
 
     for base_url in CNM_URLS:
         total_pags = None
         nome_url = base_url.rstrip("/").split("/")[-1] or "sc"
         print(f"\n[CNM] ── {nome_url} ──")
 
-        for pagina in range(1, 11):  # máx 10 páginas por cidade
+        for pagina in range(1, 11):
             url = f"{base_url}?pagina={pagina}" if pagina > 1 else base_url
-            print(f"[CNM] Página {pagina}...")
+            print(f"[CNM] Pagina {pagina}...")
 
             try:
-                r = _get(url)
-                if not r:
-                    print(f"[CNM] Sem resposta — próxima cidade")
+                html = _get_html(url)
+                if not html:
+                    print("[CNM] Sem resposta — proxima cidade")
                     break
 
-                soup = BeautifulSoup(r.text, "lxml")
+                soup = BeautifulSoup(html, "lxml")
 
-                # Detecta total de páginas na 1ª requisição
                 if pagina == 1:
                     total_pags = _total_paginas(soup)
-                    print(f"[CNM] Total de páginas estimado: {total_pags}")
-
-                    # DEBUG: salva HTML apenas para primeira cidade de cada tipo
-                    if "criciuma" in base_url:
-                        os.makedirs("docs", exist_ok=True)
-                        with open("docs/debug_cnm.html", "w", encoding="utf-8") as f:
-                            f.write(r.text)
-                        print("[CNM] DEBUG: HTML salvo em docs/debug_cnm.html")
+                    print(f"[CNM] Total de paginas estimado: {total_pags}")
 
                 novos_offers = extrair_offers_ldjson(soup)
 
                 if not novos_offers:
-                    print(f"[CNM] Sem offers no ld+json — fim desta cidade")
+                    print("[CNM] Sem offers — fim desta cidade")
                     break
 
                 print(f"[CNM] {len(novos_offers)} offers encontrados")
                 antes = len(anuncios)
                 anuncios.extend(novos_offers)
-                print(f"[CNM] {len(anuncios) - antes} anúncios adicionados")
+                print(f"[CNM] +{len(anuncios) - antes} anuncios")
 
                 if pagina >= total_pags:
                     break
@@ -348,13 +408,23 @@ def scrape_chavesnamao():
                 print(f"[CNM] Erro: {e}")
                 break
 
-    # Deduplica por ID
+    # Fecha Playwright se foi usado
+    global _pw_instance
+    if _pw_instance:
+        try:
+            _pw_instance.stop()
+        except Exception:
+            pass
+        _pw_instance = None
+
+    # Deduplica
     vistos = set()
     unicos = [a for a in anuncios if a["id"] not in vistos and not vistos.add(a["id"])]
 
     print(f"\n[CNM] ── Resumo ──")
-    print(f"[CNM] ✅ Grátis (cloudscraper): {_stats['cloudscraper']} páginas")
-    print(f"[CNM] ⚠️  Pago  (ScraperAPI):   {_stats['scraperapi']} páginas")
-    print(f"[CNM] ❌ Falhou:                {_stats['falhou']} páginas")
-    print(f"[CNM] Total: {len(unicos)} anúncios únicos")
+    print(f"[CNM] ✅ Playwright:    {_stats['playwright']} paginas")
+    print(f"[CNM] ✅ cloudscraper:  {_stats['cloudscraper']} paginas")
+    print(f"[CNM] ⚠️  ScraperAPI:   {_stats['scraperapi']} paginas")
+    print(f"[CNM] ❌ Falhou:        {_stats['falhou']} paginas")
+    print(f"[CNM] Total: {len(unicos)} anuncios unicos")
     return unicos
