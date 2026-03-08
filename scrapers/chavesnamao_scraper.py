@@ -307,7 +307,13 @@ def scrape_chavesnamao():
 
                 soup = BeautifulSoup(r.text, "lxml")
 
-                if total_pags is None:
+                # DEBUG — remove após corrigir o parser
+                if pagina == 1 and "criciuma" in base_url:
+                    import os as _os
+                    _os.makedirs("docs", exist_ok=True)
+                    with open("docs/debug_cnm.html", "w", encoding="utf-8") as _f:
+                        _f.write(r.text)
+                    print("[CNM] DEBUG: HTML salvo em docs/debug_cnm.html")
                     total_pags = _total_paginas(soup)
                     print(f"[CNM] Total de páginas: {total_pags}")
 
