@@ -20,6 +20,11 @@ jobs:
 
       - run: pip install -r requirements.txt
 
+      - name: Instalar Playwright
+        run: |
+          pip install playwright
+          playwright install chromium --with-deps
+
       - name: Executar monitor
         env:
           SCRAPERAPI_KEY: ${{ secrets.SCRAPERAPI_KEY }}
