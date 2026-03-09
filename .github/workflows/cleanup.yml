@@ -31,3 +31,4 @@ print(f'Mapa gerado com {len(todos)} anúncios')
           git config user.name "Monitor Bot"
           git add -A
           git diff-index --quiet HEAD || git commit -m "Limpeza do banco" && git push
+
