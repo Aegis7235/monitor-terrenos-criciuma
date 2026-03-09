@@ -17,7 +17,7 @@ LOG = "docs/log_novidades.md"
 
 # ── Configurações ─────────────────────────────────────────────────────────────
 LIMITE_PENDENTES = 50    # Se houver mais pendentes que isso, pula o scraping
-GEO_POR_RODADA   = 200  # Quantos anúncios geocodificar por execução
+GEO_POR_RODADA   = 1000  # Quantos anúncios geocodificar por execução
 FORCAR_SCRAPING  = False # True = ignora o limite de pendentes e força scraping
 APENAS_MAPA      = False # True = pula scraping e geocodificação, só gera o mapa
 
