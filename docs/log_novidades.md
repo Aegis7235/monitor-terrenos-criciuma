@@ -21294,3 +21294,36 @@
   - 📍  — Nova Veneza
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-1483650450
 
+
+## 🆕 6 novos anúncios — 09/03/2026 11:24
+
+- **Terreno 64.777m² para Investimento- Estiva (Guaporanga)**
+  - 💰 R$ 18.000.000 | 📐 64777 m²
+  - 📍 Estiva (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-64-777m-para-investimento-estiva-guaporanga-1484097679
+
+- **Terreno plano, 415m² - Loteamento Vila Germãnia**
+  - 💰 R$ 260.000 | 📐 415 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-415m-loteamento-vila-germania-1484097672
+
+- **Terreno no Bosque Das Mansões - Roçado**
+  - 💰 R$ 3.729.000 | 📐 2 m²
+  - 📍 Bosque das Mansões — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bosque-das-mansoes-rocado-1484097658
+
+- **Terreno 150m² no Blue Clube - Beira Rio**
+  - 💰 R$ 259.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-150m-no-blue-clube-beira-rio-1484097660
+
+- **Terreno disponível para LOCAÇÃO ou COMPRA com ESCRITURA PUBLICA**
+  - 💰 R$ 495.000 | 📐 ? m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-disponivel-para-locacao-ou-compra-com-escritura-publica-1484095557
+
+- **Terreno à Venda, Loteamento Vilaggio das Pedras, Humaitá de Cima, Tuba**
+  - 💰 R$ 289.000 | 📐 300 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-vilaggio-das-pedras-humaita-de-cima-tubarao-sc-1480116188
+
