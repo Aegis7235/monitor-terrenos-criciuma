@@ -21520,3 +21520,13601 @@
   - 📍  — Garopaba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-campo-duna-1484207672
 
+
+## 🆕 2719 novos anúncios — 09/03/2026 18:13
+
+- **Terreno Residencial em Ingleses do Rio Vermelho**
+  - 💰 R$ 1.500.000 | 📐 1360 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-ingleses-do-rio-vermelho-1484238839
+
+- **Sitio em Rancho Queimado - SC**
+  - 💰 R$ 1.500.000 | 📐 57000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-rancho-queimado-sc-1484238449
+
+- **Imovel de frentepara a BR-282 em Águas Mornas - SC**
+  - 💰 R$ 1.600.000 | 📐 2462 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-de-frentepara-a-br-282-em-aguas-mornas-sc-1484228521
+
+- **Terreno Rural para Venda em Angelina, RIO NOVO**
+  - 💰 R$ 400.000 | 📐 79898 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-para-venda-em-angelina-rio-novo-1484221521
+
+- **Grande Sitio em Águas Mornas - SC**
+  - 💰 R$ 1.500.000 | 📐 210000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/grande-sitio-em-aguas-mornas-sc-1484220758
+
+- **Terreno de esquina escriturado**
+  - 💰 R$ 140.000 | 📐 424 m²
+  - 📍 Primeira Linha Pontilhão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-escriturado-1484214368
+
+- **Oportunidade Chácara sítio 3800m2 em Canelinha pronto para Construir**
+  - 💰 R$ 199.000 | 📐 3809 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-chacara-sitio-3800m2-em-canelinha-pronto-para-construir-1484213072
+
+- **Vendo terreno na copa 70**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-copa-70-1484210249
+
+- **Vendo terreno , Galpão , Lote**
+  - 💰 R$ 630.000 | 📐 3700 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-galpao-lote-1484243717
+
+- **Terreno em Centro**
+  - 💰 R$ 5.900.000 | 📐 17001 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1483719334
+
+- **Terreno na Praia da Itapeva em Torres RS**
+  - 💰 R$ 59.900 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-da-itapeva-em-torres-rs-1483516641
+
+- **Vendo 2 terrenos na praia yara**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-2-terrenos-na-praia-yara-1483302141
+
+- **Terreno venda Torres RS 60 metros do mar**
+  - 💰 R$ 132.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-torres-rs-60-metros-do-mar-1298005787
+
+- **Terreno de esquina a venda, próximo a praia.**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-a-venda-proximo-a-praia-1475326829
+
+- **Lote a venda Reserva das Águas Torres**
+  - 💰 R$ 330.000 | 📐 423 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-reserva-das-aguas-torres-1311952254
+
+- **Terreno à venda, 3000 m² por R$ 450.000,00 - Faxinal - Torres/RS**
+  - 💰 R$ 450.000 | 📐 3 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-3000-m-por-r-450-000-00-faxinal-torres-rs-1482363981
+
+- **Linda Chácara**
+  - 💰 R$ 180.000 | 📐 13300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/linda-chacara-1478448952
+
+- **Terreno 300m2**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-300m2-1429640276
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 1.553.000 | 📐 517 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481388258
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 4.003.800 | 📐 1346 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481388255
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 807.000 | 📐 336 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481387448
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 4.038.000 | 📐 1345 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481387429
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 1.306.000 | 📐 467 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481382761
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 2.344.000 | 📐 517 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481382757
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 807.000 | 📐 336 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481377998
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 1.553.000 | 📐 517 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481378006
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 1.632.000 | 📐 582 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481377994
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 807.000 | 📐 336 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481378001
+
+- **Terreno Escriturado Loteamento Morada da Vila**
+  - 💰 R$ 93.900 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-escriturado-loteamento-morada-da-vila-1480966742
+
+- **Vendo ótimo citio**
+  - 💰 R$ 380.000 | 📐 10000 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-otimo-citio-1480964328
+
+- **Ótimo terreno na Praia Paraíso em Torres com 360m² e todas as document**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-na-praia-paraiso-em-torres-com-360m-e-todas-as-documentacoes-em-dia-1480863695
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1480389540
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1480389522
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1480389560
+
+- **Excelente terreno em uma das praias mais bonitas do litoral Gaucho**
+  - 💰 R$ 690.900 | 📐 500 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-em-uma-das-praias-mais-bonitas-do-litoral-gaucho-1480033770
+
+- **IMPERDÍVEL Área 900m2 em Torres**
+  - 💰 R$ 120.000 | 📐 900 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imperdivel-area-900m2-em-torres-1468894110
+
+- **Terreno no loteamento Morada das Palmeiras em Torres RS**
+  - 💰 R$ 350.000 | 📐 342 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-morada-das-palmeiras-em-torres-rs-1478655396
+
+- **Dois Amplos terrenos a 380 metros do Mar - Frente Leste/Norte**
+  - 💰 R$ 330.000 | 📐 720 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-amplos-terrenos-a-380-metros-do-mar-frente-leste-norte-1478481843
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 378.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1478475563
+
+- **ÁREA PARA LOCAÇÃO - Torres**
+  - 💰 R$ 15.000 | 📐 30000 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-para-locacao-torres-1471074203
+
+- **Terreno entre o Mar e a Lagoa  18m de Frente e Posição Solar Leste na **
+  - 💰 R$ 890.000 | 📐 470 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-entre-o-mar-e-a-lagoa-18m-de-frente-e-posicao-solar-leste-na-praia-da-cal-1478228243
+
+- **Terreno Balneário Yara - Torres - RS**
+  - 💰 R$ 40.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-balneario-yara-torres-rs-1478191074
+
+- **Terreno 200m2**
+  - 💰 R$ 115.000 | 📐 200 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-200m2-1360596524
+
+- **Terreno 430m2**
+  - 💰 R$ 490.000 | 📐 429 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-430m2-1409200029
+
+- **Terreno no Condomínio Reserva das Águas**
+  - 💰 R$ 290.000 | 📐 499 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-1477082920
+
+- **Paraíso à vista, terreno em Torres-RS**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/paraiso-a-vista-terreno-em-torres-rs-1477025992
+
+- **Chácara à venda em Torres/RS - Conforto, espaço e ótima localização**
+  - 💰 R$ 600.000 | 📐 6210 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-a-venda-em-torres-rs-conforto-espaco-e-otima-localizacao-1476960870
+
+- **Terreno comercial no Centro de Torres/RS**
+  - 💰 R$ 1.200.000 | 📐 280 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-no-centro-de-torres-rs-1476553739
+
+- **Oportunidade chácara em torres para moradia ou descanso**
+  - 💰 R$ 75.000 | 📐 800 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-chacara-em-torres-para-moradia-ou-descanso-1475590521
+
+- **Terreno à venda (direto proprietário) 700m do Parque da Guarita e Prai**
+  - 💰 R$ 650.000 | 📐 414 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-direto-proprietario-700m-do-parque-da-guarita-e-praia-da-cal-1475569649
+
+- **Terreno à venda em condomínio fechado | Itapeva, Torres - RS**
+  - 💰 R$ 260.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-itapeva-torres-rs-1475211141
+
+- **Terreno no Reserva das Águas Torres RS**
+  - 💰 R$ 550.000 | 📐 566 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1474896822
+
+- **Terreno no Reserva das Águas Torres RS**
+  - 💰 R$ 350.000 | 📐 533 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1474894535
+
+- **Terreno à venda Morada das Palmeiras Torres/RS**
+  - 💰 R$ 770.000 | 📐 359 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-morada-das-palmeiras-torres-rs-1474814870
+
+- **Terreno em Torres Praia Real Escriturado padrao 300m2**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-praia-real-escriturado-padrao-300m2-1462349123
+
+- **Terreno Praia Real com escritura Torres 300m2**
+  - 💰 R$ 45.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-real-com-escritura-torres-300m2-1413618934
+
+- **Terreno Beira Mar  Praia Real Escriturado parcelado**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-mar-praia-real-escriturado-parcelado-1462351829
+
+- **Terreno na Beira Mar Torres Praia Real Parcela Direto com Proprietário**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-beira-mar-torres-praia-real-parcela-direto-com-proprietario-1248810684
+
+- **Terreno 300m2 na Praia Real Torres**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-300m2-na-praia-real-torres-1278132176
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS.**
+  - 💰 R$ 335.000 | 📐 392 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1474270050
+
+- **TERRENO - MORADA DAS PALMEIRAS - TORRES**
+  - 💰 R$ 420.000 | 📐 394 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-morada-das-palmeiras-torres-1474085646
+
+- **PASSO DE TORRES - Terreno Padrão - PASSO DE TORRES**
+  - 💰 R$ 288.000 | 📐 400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/passo-de-torres-terreno-padrao-passo-de-torres-1473891027
+
+- **Vendo ou troco terreno de 300m2 na paia de Itapeva, 3 quadras da praia**
+  - 💰 R$ 250.000 | 📐 3002 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-ou-troco-terreno-de-300m2-na-paia-de-itapeva-3-quadras-da-praia-aceito-motohome-de-1473553118
+
+- **Terreno na praia de Itapeva Torres**
+  - 💰 R$ 180.000 | 📐 280 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-de-itapeva-torres-1472785078
+
+- **Terreno em Bairro Residencial, próximo de tudo. Com todas as documenta**
+  - 💰 R$ 215.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-bairro-residencial-proximo-de-tudo-com-todas-as-documentacoes-em-dia-agende-1472531770
+
+- **Lindo terreno de esquina, leste/norte a poucas quadras do mar**
+  - 💰 R$ 125.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-de-esquina-leste-norte-a-poucas-quadras-do-mar-1472055374
+
+- **Raridade, terreno de frente para o norte a 50 metros do mar.**
+  - 💰 R$ 258.000 | 📐 390 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/raridade-terreno-de-frente-para-o-norte-a-50-metros-do-mar-1472055270
+
+- **TERRENO ESQUINA 50 METROS DO MAR**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-esquina-50-metros-do-mar-1470650219
+
+- **Terreno Praia Santa Helena**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-santa-helena-1470350807
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 292.000 | 📐 428 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1470112790
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 495.000 | 📐 429 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1469870878
+
+- **Terreno à venda em condomínio fechado | Itapeva, Torres - RS**
+  - 💰 R$ 379.000 | 📐 378 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-itapeva-torres-rs-1469870683
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 495.000 | 📐 429 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1469868290
+
+- **Terreno Itapeva Norte:  próximo mar**
+  - 💰 R$ 188.000 | 📐 316 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-itapeva-norte-proximo-mar-1469690436
+
+- **Terreno à venda em condomínio fechado | Itapeva, Torres - RS**
+  - 💰 R$ 290.000 | 📐 402 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-itapeva-torres-rs-1469232939
+
+- **Terreno a venda em praia real Torres**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-praia-real-torres-1462903090
+
+- **Terrenos próximo de Torres**
+  - 💰 R$ 85.000 | 📐 ? m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-proximo-de-torres-1468747348
+
+- **LOTE 740 M2 CONDOMÍNIO RESERVA DAS ÁGUAS - TORRES RS**
+  - 💰 R$ 595.000 | 📐 739 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-740-m2-condominio-reserva-das-aguas-torres-rs-1468682488
+
+- **Imóvel para venda com 1800 metros quadrados em Vila São João - Torres **
+  - 💰 R$ 440.000 | 📐 1800 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-1800-metros-quadrados-em-vila-sao-joao-torres-rs-1468194397
+
+- **Terreno à venda, 225 m² por R$ 82.000,00 - São Jorge - Torres/RS**
+  - 💰 R$ 82.000 | 📐 225 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-225-m-por-r-82-000-00-sao-jorge-torres-rs-1467697108
+
+- **Terreno Praia Real -Torres**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-real-torres-1467693188
+
+- **Terreno Estrela do Mar -Torres RS**
+  - 💰 R$ 75.000 | 📐 350 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-estrela-do-mar-torres-rs-1450534020
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1467372843
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1466893503
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1466891177
+
+- **Excelente terreno na Praia do Cal**
+  - 💰 R$ 1.000.000 | 📐 587 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-na-praia-do-cal-1466158126
+
+- **TERRENO 20 METROS DE FRENTE RUA CAXIAS DO SUL EM TORRES RS**
+  - 💰 R$ 770.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-20-metros-de-frente-rua-caxias-do-sul-em-torres-rs-1465805858
+
+- **Terreno em Torres na Praia real 300m2 com escritura pública**
+  - 💰 R$ 40.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-na-praia-real-300m2-com-escritura-publica-1242664198
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 840.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1394860893
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 950.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1415456777
+
+- **Terreno de Alto Padrão em Condomínio Exclusivo à Beira-Mar, Imperdível**
+  - 💰 R$ 790.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-alto-padrao-em-condominio-exclusivo-a-beira-mar-imperdivel-1394583463
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 950.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1394861001
+
+- **Oportunidade Única: Terreno em Bairro Nobre com Vista para o Mar**
+  - 💰 R$ 5.000.000 | 📐 680 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-terreno-em-bairro-nobre-com-vista-para-o-mar-1394549825
+
+- **Lote no Condomínio Ocean Side**
+  - 💰 R$ 780.000 | 📐 400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ocean-side-1394550199
+
+- **Terreno no Reserva das Águas em Torres RS**
+  - 💰 R$ 499.000 | 📐 850 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1464462446
+
+- **Terreno no comercial em Torres RS**
+  - 💰 R$ 1.220.000 | 📐 425 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-comercial-em-torres-rs-1464278091
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 395.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1464274576
+
+- **Terreno em condomínio fechado pé na área em Torres**
+  - 💰 R$ 2.200.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-pe-na-area-em-torres-1394861046
+
+- **Ótimo terreno no condomínio Reserva das Águas condições que só aqui na**
+  - 💰 R$ 550.000 | 📐 433 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-no-condominio-reserva-das-aguas-condicoes-que-so-aqui-na-nossa-cas-1464195286
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 560.000 | 📐 367 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1402244726
+
+- **Terreno à venda, 300 m² por R$ 97.000,00 - Praia Real - Torres/RS**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-97-000-00-praia-real-torres-rs-1463872732
+
+- **Terreno na Praia Gaúcha em Torres RS**
+  - 💰 R$ 130.000 | 📐 330 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-gaucha-em-torres-rs-1463688293
+
+- **Terreno no Ilhas Park em Torres RS**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-ilhas-park-em-torres-rs-1463375936
+
+- **Lote no Condomínio Ocean Side**
+  - 💰 R$ 790.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ocean-side-1394861123
+
+- **Terreno em condomínio fechado pé na área em Torres**
+  - 💰 R$ 1.030.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-pe-na-area-em-torres-1394860877
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 950.000 | 📐 424 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1394860876
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 950.000 | 📐 466 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1415460346
+
+- **Terreno em condomínio fechado pé na área em Torres**
+  - 💰 R$ 2.180.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-pe-na-area-em-torres-1394549930
+
+- **Sítio na Vila São João em Torres RS**
+  - 💰 R$ 1.620.000 | 📐 156 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-na-vila-sao-joao-em-torres-rs-1412231771
+
+- **terreno a venda em torres morada das palmeiras**
+  - 💰 R$ 318.000 | 📐 378 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-torres-morada-das-palmeiras-1461082017
+
+- **Excelente Terreno no Torres Ilhas Park para Comprar**
+  - 💰 R$ 990.000 | 📐 826 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-no-torres-ilhas-park-para-comprar-1461067128
+
+- **Terreno em Centro**
+  - 💰 R$ 7.800.000 | 📐 6626 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1461066852
+
+- **20 lotes de terrenos no Balneário Paraiso (Torres)**
+  - 💰 R$ 1.600.000 | 📐 7201 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/20-lotes-de-terrenos-no-balneario-paraiso-torres-1461066882
+
+- **Terreno em Beira Mar**
+  - 💰 R$ 19.100.000 | 📐 9701 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-beira-mar-1461066168
+
+- **Sítio na R. Belvedere,555 no Campo Bonito em Torres - RS.**
+  - 💰 R$ 1.385.000 | 📐 2126 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-na-r-belvedere-555-no-campo-bonito-em-torres-rs-1461066020
+
+- **Terreno em Centro**
+  - 💰 R$ 2.500.000 | 📐 392 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1461065222
+
+- **LOTE NO PEDRA Hiding Place**
+  - 💰 R$ 3.200.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-pedra-hiding-place-1394667631
+
+- **Terrenio de Esquina**
+  - 💰 R$ 85.000 | 📐 347 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenio-de-esquina-1460741417
+
+- **Terreno no Pedro Benz Vila São João Torres RS**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-pedro-benz-vila-sao-joao-torres-rs-1460442209
+
+- **Condomínio Reserva das Águas em Torres  terreno 499m², lazer completo**
+  - 💰 R$ 290.000 | 📐 499 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-reserva-das-aguas-em-torres-terreno-499m-lazer-completo-1460394260
+
+- **Excelente terreno na Praia de Real apenas 100 metros do mar**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-na-praia-de-real-apenas-100-metros-do-mar-1460184675
+
+- **Terreno em condomínio fechado pé na área em Torres**
+  - 💰 R$ 1.010.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-pe-na-area-em-torres-1394860905
+
+- **Terreno em condomínio fechado | Parque Reserva das Águas e Torres, RS**
+  - 💰 R$ 490.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-parque-reserva-das-aguas-e-torres-rs-1458141580
+
+- **Terreno à venda, 360 m² por R$ 105.000,00 - Vila São João - Torres/RS**
+  - 💰 R$ 105.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-105-000-00-vila-sao-joao-torres-rs-1457741977
+
+- **Terreno à venda, 420 m² por R$ 420.000,00 - Centro - Torres/RS**
+  - 💰 R$ 420.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-420-m-por-r-420-000-00-centro-torres-rs-1456359265
+
+- **Excelente Terreno no Torres Ilhas Park para Comprar**
+  - 💰 R$ 990.000 | 📐 825 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-no-torres-ilhas-park-para-comprar-1456235776
+
+- **Terreno de 360 m² no Loteamento Pedro Bez Machado  Torres/RS**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-360-m-no-loteamento-pedro-bez-machado-torres-rs-1430857199
+
+- **Terreno no condomínio Ilhas Park na praia de Torres/RS.**
+  - 💰 R$ 720.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-na-praia-de-torres-rs-1300778367
+
+- **Lote no Condomínio Ocean Side**
+  - 💰 R$ 760.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ocean-side-1394860929
+
+- **Ótimo terreno de frente para o leste em Torres/RS - Estuda-se carro co**
+  - 💰 R$ 105.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-de-frente-para-o-leste-em-torres-rs-estuda-se-carro-como-parte-de-pagament-1455168340
+
+- **Terreno no Morada das Palmeiras em Torres RS**
+  - 💰 R$ 340.000 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-morada-das-palmeiras-em-torres-rs-1454052429
+
+- **Terreno no Condomínio Lake Itapeva  Torres/RS**
+  - 💰 R$ 270.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lake-itapeva-torres-rs-1452430697
+
+- **Terreno a venda em Torres**
+  - 💰 R$ 31.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-torres-1453885135
+
+- **Terreno à venda, 200 m² por R$ 264.000,00 - Torres - Torres/RS**
+  - 💰 R$ 264.000 | 📐 200 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-200-m-por-r-264-000-00-torres-torres-rs-1453441059
+
+- **Terreno no Ilhas Park em Torres RS**
+  - 💰 R$ 550.000 | 📐 367 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-ilhas-park-em-torres-rs-1374098648
+
+- **Lote fundos lago no Condomínio Ilhas Park em Torres RS**
+  - 💰 R$ 840.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-condominio-ilhas-park-em-torres-rs-1410934600
+
+- **Venda - Terrenos em Condomínio - São Jorge - Torres - RS**
+  - 💰 R$ 177.650 | 📐 200 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-terrenos-em-condominio-sao-jorge-torres-rs-1453113591
+
+- **EXCLUSIVIDADE EM TORRES**
+  - 💰 R$ 209.000 | 📐 200 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/exclusividade-em-torres-1453065361
+
+- **Terreno - Bairro Altos de Torres**
+  - 💰 R$ 289.680 | 📐 310 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-altos-de-torres-1451821403
+
+- **LANÇAMENTO EM TORRES**
+  - 💰 R$ 209.000 | 📐 250 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lancamento-em-torres-1451228308
+
+- **Terreno 480m² privativos, plano, em condomínio fechado a beira mar em **
+  - 💰 R$ 890.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-480m-privativos-plano-em-condominio-fechado-a-beira-mar-em-torres-1418224577
+
+- **Terreno 600m² privativos, beira mar, em condomínio fechado em Torres**
+  - 💰 R$ 1.850.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-600m-privativos-beira-mar-em-condominio-fechado-em-torres-1418224154
+
+- **Terreno à venda, 330 m² por R$ 140.000,00 - Praia Paraíso - Torres/RS**
+  - 💰 R$ 140.000 | 📐 330 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-330-m-por-r-140-000-00-praia-paraiso-torres-rs-1449399903
+
+- **Terreno na Itapeva em Torres RS**
+  - 💰 R$ 165.000 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-itapeva-em-torres-rs-1411997317
+
+- **Lote de luxo com 854 m² no Pedra Hiding Places**
+  - 💰 R$ 3.527.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-luxo-com-854-m-no-pedra-hiding-places-1411997119
+
+- **Sítio no Campo Bonito em Torres RS**
+  - 💰 R$ 820.000 | 📐 229 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-no-campo-bonito-em-torres-rs-1339129171
+
+- **Terreno em condominio fechado de alto padrão á venda no Passo de Torre**
+  - 💰 R$ 335.743 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-de-alto-padrao-a-venda-no-passo-de-torres-sc-1448803316
+
+- **Terreno em condominio fechado de alto padrão á venda no Passo de Torre**
+  - 💰 R$ 349.732 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-de-alto-padrao-a-venda-no-passo-de-torres-sc-1448795959
+
+- **Terreno em condominio fechado de alto padrão á venda no Passo de Torre**
+  - 💰 R$ 381.538 | 📐 340 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-de-alto-padrao-a-venda-no-passo-de-torres-sc-1448795951
+
+- **Terreno à venda Praia Itapeva Torres/RS**
+  - 💰 R$ 150.000 | 📐 389 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-itapeva-torres-rs-1448519480
+
+- **Terreno à Venda no Jardim América, Passo de Torres**
+  - 💰 R$ 100.000 | 📐 200 m²
+  - 📍 Glória — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-jardim-america-passo-de-torres-1446884743
+
+- **Terrenos a venda Torres RS 3 lotes juntos**
+  - 💰 R$ 1.060.000 | 📐 1340 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-a-venda-torres-rs-3-lotes-juntos-1446598569
+
+- **Terreno à venda Estrela do Mar Torres/RS**
+  - 💰 R$ 120.000 | 📐 299 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-estrela-do-mar-torres-rs-1446561368
+
+- **Terreno à venda, 672 m² por R$ 216.200,00 - Torres - Torres/RS**
+  - 💰 R$ 216.200 | 📐 672 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-672-m-por-r-216-200-00-torres-torres-rs-1445967689
+
+- **Lote no Ocean Side em Torres RS**
+  - 💰 R$ 695.000 | 📐 521 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-ocean-side-em-torres-rs-1445305992
+
+- **Condomínio na praia de Itapeva em Torres**
+  - 💰 R$ 439.000 | 📐 10 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-na-praia-de-itapeva-em-torres-1443470126
+
+- **Imóvel para venda com 312 metros quadrados em Praia Real - Torres - RS**
+  - 💰 R$ 90.000 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-312-metros-quadrados-em-praia-real-torres-rs-1443272431
+
+- **Terreno com 450 m² por R$ 1.130.000 - Ilhas Parque Pedra da Guarita -**
+  - 💰 R$ 1.130.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-450-m-por-r-1-130-000-ilhas-parque-pedra-da-guarita-1443204523
+
+- **Terreno em frente lago.**
+  - 💰 R$ 600.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-frente-lago-1443178624
+
+- **Terreno com 741 m² por R$ 420.000 - Engenho Velho - Torres/RS**
+  - 💰 R$ 420.000 | 📐 742 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-741-m-por-r-420-000-engenho-velho-torres-rs-1443163000
+
+- **Terreno para desfrutar segurança e lazer.**
+  - 💰 R$ 300.000 | 📐 436 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-desfrutar-seguranca-e-lazer-1443145681
+
+- **Chácara com 3 dormitórios à venda por R$ 760.000,00 - Campo Bonito**
+  - 💰 R$ 760.000 | 📐 265 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-com-3-dormitorios-a-venda-por-r-760-000-00-campo-bonito-1443145088
+
+- **Terreno em Loteamento**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-loteamento-1443144592
+
+- **TERRENO PARTE ALTA EM CONDOMINIO**
+  - 💰 R$ 325.000 | 📐 464 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-parte-alta-em-condominio-1443143533
+
+- **Condomínio Ilhas Park**
+  - 💰 R$ 1.130.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-ilhas-park-1443143542
+
+- **Terreno no Ocean Side, vista para o mar**
+  - 💰 R$ 840.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-ocean-side-vista-para-o-mar-1443143508
+
+- **TERRENO CENTENÁRIO**
+  - 💰 R$ 270.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centenario-1443143514
+
+- **TERRENO ILHAS PARK**
+  - 💰 R$ 410.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-ilhas-park-1443143372
+
+- **Junte o útil ao agradável, tenha um sítio na praia.**
+  - 💰 R$ 490.000 | 📐 200 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/junte-o-util-ao-agradavel-tenha-um-sitio-na-praia-1443143359
+
+- **Terreno com grande potencial comercial, de esquina, sem benfeitorias,**
+  - 💰 R$ 2.500.000 | 📐 280 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-grande-potencial-comercial-de-esquina-sem-benfeitorias-1443143363
+
+- **Terreno com 654 m² por R$ 990.000 a beira mar - Lagoa Jardim Itapeva -**
+  - 💰 R$ 990.000 | 📐 654 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-654-m-por-r-990-000-a-beira-mar-lagoa-jardim-itapeva-torres-rs-1443143271
+
+- **TERRENO FRENTE LAGO COM BOX NA MARINA**
+  - 💰 R$ 390.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-lago-com-box-na-marina-1443143243
+
+- **Lote de luxo no Pedra Hiding Places em Torres**
+  - 💰 R$ 3.839.000 | 📐 1281 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-luxo-no-pedra-hiding-places-em-torres-1443116008
+
+- **Imóvel para venda tem 400 metros quadrados em Praia da Cal - Torres - **
+  - 💰 R$ 630.000 | 📐 400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-tem-400-metros-quadrados-em-praia-da-cal-torres-rs-1441196730
+
+- **Imóvel para venda com 245 metros quadrados em Igra sul - Torres - RS**
+  - 💰 R$ 260.000 | 📐 245 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-245-metros-quadrados-em-igra-sul-torres-rs-1441116482
+
+- **Imóvel para venda tem 360 metros quadrados em Praia da Guarita - Torre**
+  - 💰 R$ 500.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-tem-360-metros-quadrados-em-praia-da-guarita-torres-rs-1438647272
+
+- **Imóvel para venda possui 360 metros quadrados em Vila São João - Torre**
+  - 💰 R$ 125.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-possui-360-metros-quadrados-em-vila-sao-joao-torres-rs-1437406195
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 455.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1437348722
+
+- **Chácara à venda em Torres  6.000 m², casa 3 dormitórios e piscina**
+  - 💰 R$ 649.000 | 📐 85 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-a-venda-em-torres-6-000-m-casa-3-dormitorios-e-piscina-1436874905
+
+- **CHÁCARA EM TORRES LITORAL NORTE**
+  - 💰 R$ 818.000 | 📐 229 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-em-torres-litoral-norte-1436795486
+
+- **Imóvel para venda com 85 metros quadrados com 3 quartos em Campo Bonit**
+  - 💰 R$ 640.000 | 📐 85 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-85-metros-quadrados-com-3-quartos-em-campo-bonito-torres-rs-1435305065
+
+- **Imóvel para venda tem 85 metros quadrados com 2 quartos em Campo Bonit**
+  - 💰 R$ 648.900 | 📐 85 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-tem-85-metros-quadrados-com-2-quartos-em-campo-bonito-torres-rs-1435282086
+
+- **Terreno frente Leste no Condomínio Reserva das Águas em Torres-RS**
+  - 💰 R$ 265.000 | 📐 435 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-leste-no-condominio-reserva-das-aguas-em-torres-rs-1435272240
+
+- **Imóvel para venda com 420 metros quadrados em Centenário - Torres - RS**
+  - 💰 R$ 410.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-420-metros-quadrados-em-centenario-torres-rs-1435269592
+
+- **Terreno na Vila São João em Torres RS**
+  - 💰 R$ 87.000 | 📐 396 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-vila-sao-joao-em-torres-rs-1434662434
+
+- **Terreno em condomínio fechado, diferenciado a beira lago em Torres RS **
+  - 💰 R$ 650.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-diferenciado-a-beira-lago-em-torres-rs-completa-i-1432954894
+
+- **Reserva das Águas em Torres RS**
+  - 💰 R$ 420.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/reserva-das-aguas-em-torres-rs-1432746424
+
+- **Terreno na Avenida Castelo Branco em Torres RS**
+  - 💰 R$ 2.200.000 | 📐 1 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-avenida-castelo-branco-em-torres-rs-1432471068
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 490.000 | 📐 428 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1431897650
+
+- **Terreno em condomínio fechado beira lago com 615 m2 em Torres infra co**
+  - 💰 R$ 790.000 | 📐 615 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-beira-lago-com-615-m2-em-torres-infra-completa-de-1431466325
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 510.000 | 📐 472 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1299099281
+
+- **Terreno em condomínio fechado Ocean Side**
+  - 💰 R$ 1.140.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-ocean-side-1426608045
+
+- **Terreno no Reserva das Águas, Condomínio Fechado em Torres/RS**
+  - 💰 R$ 299.000 | 📐 436 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-condominio-fechado-em-torres-rs-1426464164
+
+- **Terreno em condomínio na beira mar na praia da guarita em Torres/RS.**
+  - 💰 R$ 3.527.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-na-beira-mar-na-praia-da-guarita-em-torres-rs-1299099695
+
+- **Área para venda no Igra Sul em Torres RS**
+  - 💰 R$ 975.000 | 📐 1716 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-para-venda-no-igra-sul-em-torres-rs-1429725769
+
+- **Terreno no Condomínio Reserva das Águas - Torres!**
+  - 💰 R$ 490.000 | 📐 428 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-torres-1429269753
+
+- **Terreno no Pedro Benz em Torres RS**
+  - 💰 R$ 125.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-pedro-benz-em-torres-rs-1429024730
+
+- **Terreno na parte alta da cidade Torres RS**
+  - 💰 R$ 280.000 | 📐 632 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-parte-alta-da-cidade-torres-rs-1429024672
+
+- **Terreno na Vila São João em Torres RS**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-vila-sao-joao-em-torres-rs-1429023958
+
+- **Sítio no Barro Cortado em Torres RS**
+  - 💰 R$ 1.100.000 | 📐 13 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-no-barro-cortado-em-torres-rs-1428426822
+
+- **Terreno em Estrela do Mar**
+  - 💰 R$ 85.000 | 📐 324 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-estrela-do-mar-1428388634
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 600.000 | 📐 433 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1428116772
+
+- **Terreno à venda, 840 m² por R$ 720.000,00 - Torres - Torres/RS**
+  - 💰 R$ 720.000 | 📐 840 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-840-m-por-r-720-000-00-torres-torres-rs-1427163983
+
+- **Terreno no loteamento Morada das Palmeiras em Torres RS**
+  - 💰 R$ 380.000 | 📐 342 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-morada-das-palmeiras-em-torres-rs-1426610439
+
+- **Lote no condomínio Ilhas Park**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ilhas-park-1426608608
+
+- **Ótimo terreno no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 950.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-no-condominio-ilhas-park-em-torres-rs-1426468234
+
+- **Terreno em condominio fechado em Torres/RS**
+  - 💰 R$ 1.500.000 | 📐 524 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1426467665
+
+- **Terreno à venda no Bairro Jardim Eldorado em Torres/RS**
+  - 💰 R$ 380.000 | 📐 500 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-jardim-eldorado-em-torres-rs-1426466622
+
+- **Terreno à venda em Condomínio Fechado em Torres!**
+  - 💰 R$ 949.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-em-torres-1426466725
+
+- **Excelente terreno em Condomínio de Luxo - Torres / RS**
+  - 💰 R$ 890.000 | 📐 510 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-em-condominio-de-luxo-torres-rs-1426465923
+
+- **Terreno de alto padrão em condomínio na praia de Torres!**
+  - 💰 R$ 949.000 | 📐 492 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-alto-padrao-em-condominio-na-praia-de-torres-1426465008
+
+- **Terreno à venda em condomínio fechado em Torres/RS**
+  - 💰 R$ 949.000 | 📐 406 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-em-torres-rs-1426464679
+
+- **Terreno no Loteamento Morada das Palmeiras em Torres RS**
+  - 💰 R$ 380.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-morada-das-palmeiras-em-torres-rs-1426463977
+
+- **Terreno no Bairro Stan em Torres/RS**
+  - 💰 R$ 550.000 | 📐 418 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-stan-em-torres-rs-1426463936
+
+- **Terreno a venda**
+  - 💰 R$ 465.000 | 📐 399 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1426462794
+
+- **Terreno no condomínio Ocean Side em Torres/RS**
+  - 💰 R$ 600.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ocean-side-em-torres-rs-1426460867
+
+- **Terreno em condomínio fechado a beira mar em Torres/RS**
+  - 💰 R$ 890.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-a-beira-mar-em-torres-rs-1426460203
+
+- **Terreno amplo de 480 M² no condomínio Ocean Side em Torres**
+  - 💰 R$ 810.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-de-480-m-no-condominio-ocean-side-em-torres-1426459918
+
+- **Terreno em condomínio a beira mar na praia da Itapeva em Torres/RS**
+  - 💰 R$ 1.700.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-beira-mar-na-praia-da-itapeva-em-torres-rs-1426459355
+
+- **Terreno em condominio fechado em Torres/RS**
+  - 💰 R$ 265.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1426458877
+
+- **Terreno em condomínio fechado Ocean Side**
+  - 💰 R$ 1.130.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-ocean-side-1426457789
+
+- **Terreno em condomínio fechado à venda Torres!**
+  - 💰 R$ 549.000 | 📐 367 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-a-venda-torres-1426457876
+
+- **Lote de condomínio em Torres/RS**
+  - 💰 R$ 380.000 | 📐 462 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-condominio-em-torres-rs-1426457071
+
+- **Terreno em condomínio fechado em Torres RS.**
+  - 💰 R$ 470.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1426456849
+
+- **Terreno de esquina no condomínio Reserva das Águas Torres/RS**
+  - 💰 R$ 591.000 | 📐 700 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-no-condominio-reserva-das-aguas-torres-rs-1426456745
+
+- **Terreno em condomínio fechado no Reserva das Águas em Torres/RS.**
+  - 💰 R$ 499.000 | 📐 390 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-no-reserva-das-aguas-em-torres-rs-1426456497
+
+- **Terreno no Condomínio Ocean Side em Torres/RS**
+  - 💰 R$ 890.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ocean-side-em-torres-rs-1426456340
+
+- **Terreno no Loteamento Morada das Palmeiras em Torres RS**
+  - 💰 R$ 380.000 | 📐 399 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-morada-das-palmeiras-em-torres-rs-1426454660
+
+- **Terreno no condomínio Ilhas Park em Torres/RS.**
+  - 💰 R$ 1.300.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-em-torres-rs-1426454464
+
+- **Terreno em Torres na Praia da Cal em Torres/RS**
+  - 💰 R$ 650.000 | 📐 414 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-na-praia-da-cal-em-torres-rs-1426451992
+
+- **Terreno de Alto Padrão em condomínio ilhas Park localizado na cidade d**
+  - 💰 R$ 949.000 | 📐 466 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-alto-padrao-em-condominio-ilhas-park-localizado-na-cidade-de-torres-1426451680
+
+- **Terreno no Reserva das Águas**
+  - 💰 R$ 432.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-1391517149
+
+- **Terreno no Condomínio Ocean Side em Itapeva Torres/RS**
+  - 💰 R$ 750.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ocean-side-em-itapeva-torres-rs-1302451449
+
+- **Terreno no Condomínio Ocean Side em Torres/RS**
+  - 💰 R$ 780.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ocean-side-em-torres-rs-1414425195
+
+- **Terreno em condomínio fechado na Praia da Guarita em Torres/RS**
+  - 💰 R$ 1.080.000 | 📐 489 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-guarita-em-torres-rs-1404260389
+
+- **Terreno no condominio Lake em Torres/RS.**
+  - 💰 R$ 275.000 | 📐 402 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lake-em-torres-rs-1382943998
+
+- **Terreno em condomínio fechado em Torres RS.**
+  - 💰 R$ 460.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1090341533
+
+- **Lindo terreno fundo lago no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 790.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-fundo-lago-no-condominio-ilhas-park-em-torres-rs-1421197564
+
+- **Terreno fundos lago no condomínio LAKE em Torres/RS**
+  - 💰 R$ 290.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-lake-em-torres-rs-1390526783
+
+- **Sítio com 7.000 m² à venda na praia de Itapeva, Torres/RS**
+  - 💰 R$ 990.000 | 📐 7307 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-7-000-m-a-venda-na-praia-de-itapeva-torres-rs-1425352009
+
+- **Terreno em condomínio fechado, na praia da Itapeva em Torres/RS.**
+  - 💰 R$ 240.000 | 📐 426 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-itapeva-em-torres-rs-1393496382
+
+- **Terreno no Reserva das Águas em Torres/RS**
+  - 💰 R$ 415.000 | 📐 561 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1383980098
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 350.000 | 📐 416 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1424938404
+
+- **Terreno a venda Torres RS esquina Praia Paraíso**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-torres-rs-esquina-praia-paraiso-1424813028
+
+- **Terreno em Condomínio à venda Rua Inácio Felisberto Magnus, Centenário**
+  - 💰 R$ 424.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-inacio-felisberto-magnus-centenario-torres-1424752701
+
+- **Terrenos unificados dentro do Torres Ilhas Park! Fundos lago!**
+  - 💰 R$ 1.997.000 | 📐 720 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-unificados-dentro-do-torres-ilhas-park-fundos-lago-1424528178
+
+- **Lote em condomínio fechado em Torres RS**
+  - 💰 R$ 500.000 | 📐 411 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-em-condominio-fechado-em-torres-rs-1420656040
+
+- **Área na Estrada do Mar em Torres RS**
+  - 💰 R$ 1.945.000 | 📐 68606 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-na-estrada-do-mar-em-torres-rs-1418999632
+
+- **Terreno no Reserva das Águas Torres RS**
+  - 💰 R$ 290.000 | 📐 499 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1418707418
+
+- **Terrento venda Torres RS - Morada das Palmeiras**
+  - 💰 R$ 339.000 | 📐 384 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrento-venda-torres-rs-morada-das-palmeiras-1418585452
+
+- **Terreno a venda em Torres RS**
+  - 💰 R$ 330.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-torres-rs-1418261519
+
+- **Terreno com 720m² no Torres Ilhas Park**
+  - 💰 R$ 2.000.000 | 📐 720 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-720m-no-torres-ilhas-park-1418228226
+
+- **Ótimo terreno no condomínio Lake na praia Itapeva em Torres/RS**
+  - 💰 R$ 300.000 | 📐 369 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-no-condominio-lake-na-praia-itapeva-em-torres-rs-1416961764
+
+- **Terreno à venda Praia Tupinambá Torres/RS**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-tupinamba-torres-rs-1416797164
+
+- **Terreno à venda Jardim Monte Carlo Torres/RS**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-jardim-monte-carlo-torres-rs-1416797163
+
+- **Terreno de esquina na Praia Real em Torres RS**
+  - 💰 R$ 90.000 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-na-praia-real-em-torres-rs-1416792019
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 170.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1416471172
+
+- **Chácara a venda em Torres RS 2 casas**
+  - 💰 R$ 700.000 | 📐 229 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-a-venda-em-torres-rs-2-casas-1415418178
+
+- **Terreno Comercial com localização privilegiada no Bairro Engenho Velho**
+  - 💰 R$ 7.900.000 | 📐 6 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-com-localizacao-privilegiada-no-bairro-engenho-velho-em-torres-1415197977
+
+- **Terreno de alto padrão no condomínio Ilhas Park na praia de Torres/RS.**
+  - 💰 R$ 650.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-alto-padrao-no-condominio-ilhas-park-na-praia-de-torres-rs-1308354082
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 420.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-917313273
+
+- **Terreno no condomínio na praia da Itapeva em Torres/RS.**
+  - 💰 R$ 398.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-na-praia-da-itapeva-em-torres-rs-1414425149
+
+- **Lote no Reserva das Águas Torres em Torres RS**
+  - 💰 R$ 390.000 | 📐 373 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-torres-em-torres-rs-1413470840
+
+- **Terreno na Praia Tupinambá em Torres RS**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-tupinamba-em-torres-rs-1412004325
+
+- **Terreno no Reserva das Águas em Torres RS**
+  - 💰 R$ 600.000 | 📐 740 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1411997893
+
+- **Lote de luxo com 854 m² no Pedra Hiding Places em Torres**
+  - 💰 R$ 3.356.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-luxo-com-854-m-no-pedra-hiding-places-em-torres-1411997361
+
+- **Lote fundos lago em condomínio Torres RS**
+  - 💰 R$ 635.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-em-condominio-torres-rs-1411997367
+
+- **Terreno no Reserva das Águas em Torres RS**
+  - 💰 R$ 637.471 | 📐 1039 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1411997203
+
+- **Terreno na Stan em Torres RS**
+  - 💰 R$ 250.000 | 📐 306 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-stan-em-torres-rs-1411997177
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 600.000 | 📐 663 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1411997192
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 490.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1411997163
+
+- **Terreno em Torres RS**
+  - 💰 R$ 1.100.000 | 📐 652 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-1411997115
+
+- **Reserva das Águas Torres RS**
+  - 💰 R$ 635.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/reserva-das-aguas-torres-rs-1411997122
+
+- **Terreno venda Torres RS Praia Gaucha**
+  - 💰 R$ 106.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-torres-rs-praia-gaucha-1411895634
+
+- **Chácara no Bairro Barro Cortado em Torres RS**
+  - 💰 R$ 399.000 | 📐 120 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-no-bairro-barro-cortado-em-torres-rs-1411280839
+
+- **Sítio no Campo Bonito em Torres RS**
+  - 💰 R$ 760.000 | 📐 112 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-no-campo-bonito-em-torres-rs-1411280817
+
+- **Área a venda na Lagoa do Jacaré RS**
+  - 💰 R$ 749.000 | 📐 40000 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-a-venda-na-lagoa-do-jacare-rs-1411280608
+
+- **Sítio com casa no Campo Bonito em Torres RS**
+  - 💰 R$ 1.512.000 | 📐 198 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-casa-no-campo-bonito-em-torres-rs-1411280525
+
+- **Lote no condomínio Ocean Side na Praia Itapeva em Torres RS**
+  - 💰 R$ 830.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ocean-side-na-praia-itapeva-em-torres-rs-1411000864
+
+- **Terreno em bairro residencial em Torres RS**
+  - 💰 R$ 260.000 | 📐 244 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-bairro-residencial-em-torres-rs-1410935139
+
+- **Lote de esquina no Ocean Side em Torres RS**
+  - 💰 R$ 650.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-esquina-no-ocean-side-em-torres-rs-1410934916
+
+- **Lote fundos lago Ilhas Park Praia da Cal Torres RS**
+  - 💰 R$ 950.000 | 📐 492 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-ilhas-park-praia-da-cal-torres-rs-1410934872
+
+- **Terreno na Stan em Torres RS**
+  - 💰 R$ 550.000 | 📐 456 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-stan-em-torres-rs-1410934863
+
+- **Terreno no Centenário Torres RS**
+  - 💰 R$ 220.000 | 📐 336 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-centenario-torres-rs-1410934864
+
+- **Amplo lote à venda com 900 m² no Condomínio Ilhas Park em Torres RS**
+  - 💰 R$ 2.625.000 | 📐 900 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-lote-a-venda-com-900-m-no-condominio-ilhas-park-em-torres-rs-1410934718
+
+- **Lote no Ilhas Park Praia da Cal Torres RS**
+  - 💰 R$ 950.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-ilhas-park-praia-da-cal-torres-rs-1410934697
+
+- **Terreno no condomínio Reserva das Águas em Torres RS**
+  - 💰 R$ 600.000 | 📐 432 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1410934700
+
+- **Terreno na Praia da Cal Torres RS**
+  - 💰 R$ 950.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-da-cal-torres-rs-1410934690
+
+- **Terreno a venda Torres RS Praia Paraíso**
+  - 💰 R$ 466.400 | 📐 1440 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-torres-rs-praia-paraiso-1410234300
+
+- **Sítio no Campo Bonito Torres RS**
+  - 💰 R$ 650.000 | 📐 85 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-no-campo-bonito-torres-rs-1410119364
+
+- **Terreno no Ilhas Park na Guarita em Torres/RS**
+  - 💰 R$ 905.000 | 📐 465 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-ilhas-park-na-guarita-em-torres-rs-1407970857
+
+- **Terreno em condomínio fechado na Praia da Guarita em Torres/RS**
+  - 💰 R$ 1.080.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-guarita-em-torres-rs-1405230072
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 850.000 | 📐 1068 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1400441671
+
+- **Terreno R. Gal Flôres da Cunha - Torres, 330,40m²**
+  - 💰 R$ 200.000 | 📐 330 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-r-gal-flores-da-cunha-torres-330-40m-1397423144
+
+- **Terreno no condomínio Ilhas Park em Torres**
+  - 💰 R$ 560.000 | 📐 358 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-em-torres-1391787723
+
+- **Seu novo lar está aqui!**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/seu-novo-lar-esta-aqui-1390452218
+
+- **Terreno para venda no reserva das Águas - Torres - RS**
+  - 💰 R$ 390.000 | 📐 400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-venda-no-reserva-das-aguas-torres-rs-1383485223
+
+- **Propriedade Rural no bairro JACARÉ**
+  - 💰 R$ 500.000 | 📐 2334 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/propriedade-rural-no-bairro-jacare-1382688464
+
+- **Terreno em Condomínio à venda Avenida Alfieiro Zanardi, Guarita - Torr**
+  - 💰 R$ 570.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-alfieiro-zanardi-guarita-torres-1381955840
+
+- **Lote venda Praia Gaúcha Torres**
+  - 💰 R$ 105.000 | 📐 330 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-venda-praia-gaucha-torres-1381758333
+
+- **Terreno na Praia Real**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-real-1381169737
+
+- **Fazenda / Sítio / Chácara à venda Estrada BR-101, Centro - Torres**
+  - 💰 R$ 500.000 | 📐 240 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-sitio-chacara-a-venda-estrada-br-101-centro-torres-1379916135
+
+- **Sitio com 2 dormitorios á venda na Itapeva em Torres/RS**
+  - 💰 R$ 1.500.000 | 📐 6917 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-2-dormitorios-a-venda-na-itapeva-em-torres-rs-1378945790
+
+- **TERRENO / LOTE 10,00 m X 30,00 m NA PRAIA GAÚCHA EM TORRES A VENDO POR**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-10-00-m-x-30-00-m-na-praia-gaucha-em-torres-a-vendo-por-venda-r-120-000-00-1376256188
+
+- **Terreno de esquina venda Centro Torres**
+  - 💰 R$ 900.000 | 📐 400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-venda-centro-torres-1374240567
+
+- **Terreno na Praia Real**
+  - 💰 R$ 95.000 | 📐 347 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-real-1374107954
+
+- **Terreno na Praia Real**
+  - 💰 R$ 300.000 | 📐 562 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-real-1372777669
+
+- **TERRENO PARA VENDA COND ILHAS PARK PEDRAS GUARITA**
+  - 💰 R$ 390.000 | 📐 875 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-venda-cond-ilhas-park-pedras-guarita-1371075910
+
+- **Terreno venda Praia da Cal Torres**
+  - 💰 R$ 975.200 | 📐 798 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-praia-da-cal-torres-1369998186
+
+- **Terreno em condominio fechado em Torres/RS**
+  - 💰 R$ 450.000 | 📐 394 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1368220626
+
+- **Terreno comercial venda Centro Torres**
+  - 💰 R$ 6.000.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-venda-centro-torres-1366040498
+
+- **Amplo terreno venda Centro Torres**
+  - 💰 R$ 2.600.000 | 📐 816 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-terreno-venda-centro-torres-1366038545
+
+- **Oportunidade no Reserva das Águas  Lote Pronto para Construir**
+  - 💰 R$ 290.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-no-reserva-das-aguas-lote-pronto-para-construir-1359075222
+
+- **Oportunidade no Ocean Side  Lote Pronto para Construir**
+  - 💰 R$ 600.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-no-ocean-side-lote-pronto-para-construir-1359073604
+
+- **Terreno de Condominio fechado com infraestrutura completa em Torres - **
+  - 💰 R$ 290.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-condominio-fechado-com-infraestrutura-completa-em-torres-rs-1359072890
+
+- **Terreno no Condomínio Reserva das Águas em Torres/RS.**
+  - 💰 R$ 290.000 | 📐 406 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1358026783
+
+- **Terreno na Praia Paraíso**
+  - 💰 R$ 180.000 | 📐 444 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-paraiso-1357769668
+
+- **Sítio venda bairro Jacaré Torres**
+  - 💰 R$ 860.000 | 📐 5984 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-venda-bairro-jacare-torres-1355805142
+
+- **Terreno Centro venda Torres**
+  - 💰 R$ 2.500.000 | 📐 392 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centro-venda-torres-1352594762
+
+- **Terreno venda Praia da Cal Ilhas Park Torres**
+  - 💰 R$ 495.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-praia-da-cal-ilhas-park-torres-1351908647
+
+- **Excelente lote no condomínio Lake Residencial em Torres/RS.**
+  - 💰 R$ 285.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-lote-no-condominio-lake-residencial-em-torres-rs-1350764469
+
+- **Lote esquina venda Praia Real Torres**
+  - 💰 R$ 93.500 | 📐 348 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-esquina-venda-praia-real-torres-1348671022
+
+- **Venda de Terreno em Torres-RS, bairro Campo Bonito**
+  - 💰 R$ 130.000 | 📐 1400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-de-terreno-em-torres-rs-bairro-campo-bonito-1348045966
+
+- **Terreno Torres RS brasil**
+  - 💰 R$ 340.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-torres-rs-brasil-1340521232
+
+- **Lote a venda Ocean Side Torres RS**
+  - 💰 R$ 700.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-ocean-side-torres-rs-1340331934
+
+- **Terreno na Praia Paraíso**
+  - 💰 R$ 90.000 | 📐 456 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-paraiso-1339796393
+
+- **Terreno em Condominio - Bairro Itapeva**
+  - 💰 R$ 398.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-itapeva-1338323045
+
+- **Sua oportunidade de morar ou passar as férias em Torres está aqui!**
+  - 💰 R$ 480.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sua-oportunidade-de-morar-ou-passar-as-ferias-em-torres-esta-aqui-1338280049
+
+- **Sua oportunidade de morar ou passar as férias em Torres está aqui!**
+  - 💰 R$ 480.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sua-oportunidade-de-morar-ou-passar-as-ferias-em-torres-esta-aqui-1338279416
+
+- **Terreno apenas 150 metros do mar**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-apenas-150-metros-do-mar-1337473052
+
+- **Terreno em Condomínio à venda Avenida Alfieiro Zanardi, Guarita - Torr**
+  - 💰 R$ 1.044.518 | 📐 426 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-alfieiro-zanardi-guarita-torres-1336509565
+
+- **Terreno em Condomínio à venda Avenida Alfieiro Zanardi, Guarita - Torr**
+  - 💰 R$ 3.839.000 | 📐 1281 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-alfieiro-zanardi-guarita-torres-1336497038
+
+- **Terreno em Condomínio à venda Avenida Alfieiro Zanardi, Guarita - Torr**
+  - 💰 R$ 3.356.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-alfieiro-zanardi-guarita-torres-1336490782
+
+- **Terreno em Condomínio à venda Avenida Alfieiro Zanardi, Guarita - Torr**
+  - 💰 R$ 887.683 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-alfieiro-zanardi-guarita-torres-1336490287
+
+- **Terreno fundos lago a venda no condomínio Lake em Torres/RS.**
+  - 💰 R$ 300.000 | 📐 369 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-a-venda-no-condominio-lake-em-torres-rs-1334660310
+
+- **Terreno no condominio reserva das Aguas**
+  - 💰 R$ 425.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-1327922451
+
+- **Terreno no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 760.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-em-torres-rs-1327223897
+
+- **Excelente lote em condomínio fechado de alto padrão - Ocean Side - Tor**
+  - 💰 R$ 595.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-lote-em-condominio-fechado-de-alto-padrao-ocean-side-torres-rs-1326573947
+
+- **Oportunidade de lote no Condomínio Reserva das águas**
+  - 💰 R$ 275.000 | 📐 462 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-de-lote-no-condominio-reserva-das-aguas-1326543963
+
+- **Terreno no Reserva das Águas em Torres RS**
+  - 💰 R$ 302.000 | 📐 474 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1324143706
+
+- **TERRENO NO RESERVA DAS AGUAS EM TORRES**
+  - 💰 R$ 285.000 | 📐 462 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-1323415833
+
+- **Terreno no condomínio Torres Ilhas Park Pedra da Guarita em Torres/RS**
+  - 💰 R$ 1.190.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-torres-ilhas-park-pedra-da-guarita-em-torres-rs-1321159464
+
+- **Terreno no condomínio Torres Ilhas Park Pedra da Guarita em Torres/RS**
+  - 💰 R$ 1.500.000 | 📐 484 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-torres-ilhas-park-pedra-da-guarita-em-torres-rs-1321157590
+
+- **Terreno no condomínio Torres Ilhas Park Pedra da Guarita em Torres/RS**
+  - 💰 R$ 1.700.000 | 📐 452 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-torres-ilhas-park-pedra-da-guarita-em-torres-rs-1321154627
+
+- **Terreno no condomínio Torres Ilhas Park Pedra da Guarita em Torres/RS**
+  - 💰 R$ 1.190.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-torres-ilhas-park-pedra-da-guarita-em-torres-rs-1321154159
+
+- **Chácara em Torres**
+  - 💰 R$ 300.000 | 📐 62 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-em-torres-1318702789
+
+- **Ótimo terreno na Praia Real Próximo ao mar**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-na-praia-real-proximo-ao-mar-1318225935
+
+- **Oportunidade Única: Terrenos Amplos com Potencial para Construção**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-terrenos-amplos-com-potencial-para-construcao-1318225872
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 599.000 | 📐 749 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1317806085
+
+- **Lindo Sítio, espetacular área de lazer**
+  - 💰 R$ 1.400.000 | 📐 6000 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-sitio-espetacular-area-de-lazer-1317763657
+
+- **Terreno fundos lago no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 900.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-ilhas-park-em-torres-rs-1317583220
+
+- **Dois terrenos com 360m² cada**
+  - 💰 R$ 264.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-terrenos-com-360m-cada-1317024926
+
+- **Terreno a venda Reserva das Águas Torres**
+  - 💰 R$ 440.000 | 📐 423 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-reserva-das-aguas-torres-1311950773
+
+- **Terreno no Reserva das Águas em Torres/RS**
+  - 💰 R$ 432.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1311884396
+
+- **Terreno no Condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 420.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1308776594
+
+- **Terreno no condomínio Ilhas Park Pedra Torres/RS**
+  - 💰 R$ 1.312.500 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-pedra-torres-rs-1308214625
+
+- **Terreno de esquina a venda no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 1.305.000 | 📐 769 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-a-venda-no-condominio-ilhas-park-em-torres-rs-1304789156
+
+- **Terreno no Reserva das Águas em Torres/RS.**
+  - 💰 R$ 590.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1302758559
+
+- **Terreno no condomínio Reserva das Águas localizado em Torres/RS**
+  - 💰 R$ 370.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-localizado-em-torres-rs-1301476848
+
+- **Terreno com 420 m² no Reserva das Águas em Torres/RS.**
+  - 💰 R$ 460.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-420-m-no-reserva-das-aguas-em-torres-rs-1299396414
+
+- **Terreno em condomínio fechado na praia em Torres/RS**
+  - 💰 R$ 420.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-em-torres-rs-1299100717
+
+- **Terreno em condomínio fechado em Torres/RS**
+  - 💰 R$ 1.000.000 | 📐 1237 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1299099569
+
+- **Terreno em condomínio na beira mar na praia da guarita em Torres/RS.**
+  - 💰 R$ 3.839.000 | 📐 1 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-na-beira-mar-na-praia-da-guarita-em-torres-rs-1299099416
+
+- **Ótimo terreno no condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 290.000 | 📐 427 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-no-condominio-reserva-das-aguas-em-torres-rs-1295934946
+
+- **Terreno a venda no Condominio LAKE RESORT em Torres RS**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-lake-resort-em-torres-rs-1288440631
+
+- **Terreno com 423m2  no condomínio Ilhas Park em Torres - RS**
+  - 💰 R$ 600.000 | 📐 423 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-423m2-no-condominio-ilhas-park-em-torres-rs-1288171039
+
+- **Terrenos à venda no condominio Ocean Side em  Itapeva - Torres RS**
+  - 💰 R$ 750.000 | 📐 500 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-a-venda-no-condominio-ocean-side-em-itapeva-torres-rs-1283434106
+
+- **Terreno perto mar venda Praia Paraíso Torres**
+  - 💰 R$ 310.000 | 📐 390 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-perto-mar-venda-praia-paraiso-torres-1265596011
+
+- **Chacara venda Torres RS Pirataba**
+  - 💰 R$ 530.000 | 📐 5500 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-venda-torres-rs-pirataba-1259246231
+
+- **Terreno em condomínio com infraestrutura completa a poucos passos da P**
+  - 💰 R$ 530.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-com-infraestrutura-completa-a-poucos-passos-da-praia-1258211943
+
+- **Terreno em Torres RS**
+  - 💰 R$ 275.000 | 📐 462 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-1250439364
+
+- **Terreno em Torres na Praia real 300m2 escriturado e financiamento dire**
+  - 💰 R$ 40.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-na-praia-real-300m2-escriturado-e-financiamento-direto-1242665528
+
+- **Terreno venda Torres condomínio a beira mar**
+  - 💰 R$ 780.000 | 📐 540 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-torres-condominio-a-beira-mar-1238349701
+
+- **Terreno no bairro Salinas**
+  - 💰 R$ 315.000 | 📐 423 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-salinas-1221033862
+
+- **Terreno a venda na Praia Paraiso em Torres**
+  - 💰 R$ 220.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-na-praia-paraiso-em-torres-1201032005
+
+- **Terreno de esquina na Praia Paraiso em Torres/ RS**
+  - 💰 R$ 149.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-na-praia-paraiso-em-torres-rs-1201027690
+
+- **Terreno venda na Praia Paraiso Torres**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-na-praia-paraiso-torres-1201027341
+
+- **Terreno em Condominio - Bairro Reserva das Aguas**
+  - 💰 R$ 350.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-reserva-das-aguas-1193826076
+
+- **Terreno em Condominio - Bairro Praia da Cal**
+  - 💰 R$ 490.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-praia-da-cal-1193631913
+
+- **Terreno venda Igra Norte Torres RS**
+  - 💰 R$ 600.000 | 📐 90 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-igra-norte-torres-rs-1189016639
+
+- **Chacara venda Torres RS Sao Braz**
+  - 💰 R$ 198.000 | 📐 100 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-venda-torres-rs-sao-braz-1181721121
+
+- **Terreno em Condomínio**
+  - 💰 R$ 250.000 | 📐 430 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-986216093
+
+- **RARIDADE - Lote a poucos metros do mar em condomínio fechado com infra**
+  - 💰 R$ 550.000 | 📐 520 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/raridade-lote-a-poucos-metros-do-mar-em-condominio-fechado-com-infra-completa-e-seguranc-1167931347
+
+- **Terreno em Condomínio**
+  - 💰 R$ 400.000 | 📐 380 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-986214077
+
+- **Terreno Ocean Side venda Torres**
+  - 💰 R$ 680.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-ocean-side-venda-torres-1149124147
+
+- **Terreno em Condomínio**
+  - 💰 R$ 600.000 | 📐 510 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-986216119
+
+- **Terreno na quadra do Mar em Torres**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-quadra-do-mar-em-torres-1159333076
+
+- **Lote no Reserva das Águas com o melhor valor do mercado - Pronto para **
+  - 💰 R$ 285.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-com-o-melhor-valor-do-mercado-pronto-para-construir-infra-co-1115726323
+
+- **Terreno - Bairro Vila São João**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-vila-sao-joao-1093275568
+
+- **Terreno a venda Ilhas Park Torres RS**
+  - 💰 R$ 490.000 | 📐 357 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-ilhas-park-torres-rs-935603940
+
+- **Terreno venda 200 metros da praia Praia Azul**
+  - 💰 R$ 132.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-200-metros-da-praia-praia-azul-1013989984
+
+- **Terreno a venda no condomínio Ocean Side em Torres**
+  - 💰 R$ 657.200 | 📐 540 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-ocean-side-em-torres-1106247898
+
+- **Terreno em Torres RS**
+  - 💰 R$ 88.000 | 📐 323 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-1049887457
+
+- **Terreno a venda na Praia da Cal em Torres**
+  - 💰 R$ 670.000 | 📐 414 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-na-praia-da-cal-em-torres-1094008799
+
+- **Terreno no bairro Pirataba**
+  - 💰 R$ 1.800.000 | 📐 1800 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-pirataba-1026180679
+
+- **Lote venda Ocean Side Praia Da Itapeva Torres**
+  - 💰 R$ 1.500.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-venda-ocean-side-praia-da-itapeva-torres-1149840144
+
+- **Terreno aterrado venda em Torres**
+  - 💰 R$ 480.000 | 📐 462 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-aterrado-venda-em-torres-1111391939
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS.**
+  - 💰 R$ 450.000 | 📐 390 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1076557223
+
+- **Terreno no bairro Praia Paraiso**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-praia-paraiso-1026273800
+
+- **Terreno/Lote no condomínio Ocean Side**
+  - 💰 R$ 690.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-no-condominio-ocean-side-1133399221
+
+- **Oportunidade de terreno no condomínio Reserva das águas**
+  - 💰 R$ 299.000 | 📐 495 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-de-terreno-no-condominio-reserva-das-aguas-1133398390
+
+- **Lote no condomínio Ilhas Park**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ilhas-park-1133391171
+
+- **Oportunidade! Lote no Condomínio Reserva das Águas em Torres**
+  - 💰 R$ 250.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-lote-no-condominio-reserva-das-aguas-em-torres-1116452387
+
+- **Melhor valor do mercado - Lote no condomínio fechado Reserva das Águas**
+  - 💰 R$ 269.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/melhor-valor-do-mercado-lote-no-condominio-fechado-reserva-das-aguas-1021736768
+
+- **Melhor oportunidade no Reserva das Águas**
+  - 💰 R$ 260.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/melhor-oportunidade-no-reserva-das-aguas-1111362357
+
+- **Terreno no Ilhas Park**
+  - 💰 R$ 400.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-ilhas-park-1111324551
+
+- **Melhor oportunidade no Ocean Side**
+  - 💰 R$ 540.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/melhor-oportunidade-no-ocean-side-1111321469
+
+- **Lote com 2 Dormitorio(s) localizado(a) no bairro Noiva do mar em XANGR**
+  - 💰 R$ 319.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-com-2-dormitorio-s-localizado-a-no-bairro-noiva-do-mar-em-xangri-la-ref-s360-449-1484096343
+
+- **Lote/Terreno para venda com 300 metros quadrados em Praia São Jorge - **
+  - 💰 R$ 84.900 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-terreno-para-venda-com-300-metros-quadrados-em-praia-sao-jorge-arroio-do-sal-rs-1198454214
+
+- **Terreno no Balneário Torres Sul, ARROIO DO SAL-RS**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-balneario-torres-sul-arroio-do-sal-rs-1287563927
+
+- **Lote/Terreno para venda possui 300 metros quadrados em Balneário São P**
+  - 💰 R$ 67.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-terreno-para-venda-possui-300-metros-quadrados-em-balneario-sao-paulo-arroio-do-sal-1198405677
+
+- **Terreno 371 metros quadrados 13,5 de frente x27,5**
+  - 💰 R$ 220.000 | 📐 371 m²
+  - 📍 Linha Santa Cruz — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-371-metros-quadrados-13-5-de-frente-x27-5-1484044918
+
+- **Terreno BEIRA LAGOA de Itapeva Terra de Areia**
+  - 💰 R$ 125.000 | 📐 480 m²
+  - 📍  — Terra de Areia
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lagoa-de-itapeva-terra-de-areia-1443840094
+
+- **Allure lote imperdível**
+  - 💰 R$ 260.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/allure-lote-imperdivel-1484018083
+
+- **Vendo dois terrenos na praia de Rondinha nova**
+  - 💰 R$ 170.000 | 📐 632 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-dois-terrenos-na-praia-de-rondinha-nova-1483995375
+
+- **Sitio no Caraá barbada SASP**
+  - 💰 R$ 35.000 | 📐 4000 m²
+  - 📍  — Caraá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-no-caraa-barbada-sasp-1483992655
+
+- **Terreno de 321,00m² em Dois Irmãos - Divisa com Morro Reuter**
+  - 💰 R$ 170.000 | 📐 321 m²
+  - 📍  — Morro Reuter
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-321-00m-em-dois-irmaos-divisa-com-morro-reuter-1467007016
+
+- **PARTICULAR ACEITO CARRO TERRENO PARQUE DAS PALMEIRAS LINHA SANTA CRUZ **
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍 Esmeralda — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/particular-aceito-carro-terreno-parque-das-palmeiras-linha-santa-cruz-scs-rs-1466345695
+
+- **Terreno no Centro de Santa Clara do Sul**
+  - 💰 R$ 132.500 | 📐 420 m²
+  - 📍 Centro — Santa Clara do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-centro-de-santa-clara-do-sul-1483912961
+
+- **Terreno à venda no Centro de Santa Clara do Sul**
+  - 💰 R$ 122.000 | 📐 576 m²
+  - 📍 Centro — Santa Clara do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-santa-clara-do-sul-1483912956
+
+- **Terreno à venda no Centro de Santa Clara do Sul**
+  - 💰 R$ 100.000 | 📐 405 m²
+  - 📍 Centro — Santa Clara do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-santa-clara-do-sul-1483912954
+
+- **Terrenos São Sebastião do Caí.**
+  - 💰 R$ 400.000 | 📐 2500 m²
+  - 📍  — São Sebastião do Caí
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-sao-sebastiao-do-cai-1414296051
+
+- **ÁREA DE TERRAS PARA CONSTRUÇÃO**
+  - 💰 R$ 850.000 | 📐 8500 m²
+  - 📍 Floresta — Lajeado
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-de-terras-para-construcao-1476709420
+
+- **100 mil no Pix Terreno Borussia Osório 846 m²**
+  - 💰 R$ 100.000 | 📐 846 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/100-mil-no-pix-terreno-borussia-osorio-846-m-1227583468
+
+- **OPORTUNIDADE : Terreno Condomínio Zen Concept Resort Xangrila**
+  - 💰 R$ 440.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-terreno-condominio-zen-concept-resort-xangrila-1478445706
+
+- **Fazenda 62 hectares para plantio em Sentinela do Sul!!**
+  - 💰 R$ 2.728.000 | 📐 620000 m²
+  - 📍  — Sentinela do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-62-hectares-para-plantio-em-sentinela-do-sul-1483819529
+
+- **Fazenda de 58 hectares para soja, Sentinela do Sul, confira!!**
+  - 💰 R$ 2.200.000 | 📐 580000 m²
+  - 📍  — Sentinela do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-de-58-hectares-para-soja-sentinela-do-sul-confira-1483818815
+
+- **Refúgio à beira da Lagoa com vista de tirar o fôlego - Maquiné, frente**
+  - 💰 R$ 1.900.000 | 📐 3000 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/refugio-a-beira-da-lagoa-com-vista-de-tirar-o-folego-maquine-frente-rs-101-1483816876
+
+- **Velleda oferece excelente chácara de 26 hectares, especial para olivei**
+  - 💰 R$ 980.000 | 📐 260000 m²
+  - 📍  — Encruzilhada do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/velleda-oferece-excelente-chacara-de-26-hectares-especial-para-oliveiras-em-encruzilhada-1483770513
+
+- **Terreno no centro de lajeado para alugar, direto com o dono, 363m², lo**
+  - 💰 R$ 2.000 | 📐 363 m²
+  - 📍 Centro — Lajeado
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-centro-de-lajeado-para-alugar-direto-com-o-dono-363m-localizacao-perfeita-1467001845
+
+- **Área de 12 hectares para o agronegócio, Sítio, chácara ou lazer.**
+  - 💰 R$ 398.000 | 📐 120000 m²
+  - 📍  — Mariana Pimentel
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-de-12-hectares-para-o-agronegocio-sitio-chacara-ou-lazer-1482856286
+
+- **Chácara com 6 dormitórios à venda, 700 m² por R$ 585.000,00 - Estancia**
+  - 💰 R$ 585.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-com-6-dormitorios-a-venda-700-m-por-r-585-000-00-estancia-do-meio-arroio-do-1483723033
+
+- **Lindo terreno para venda em Imbé, região central - 592m² REF: 5722**
+  - 💰 R$ 275.000 | 📐 592 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-para-venda-em-imbe-regiao-central-592m-ref-5722-1483701451
+
+- **Terreno Bairro Planejado com estrutura de condomínio fechado! REF: 556**
+  - 💰 R$ 240.000 | 📐 195 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-planejado-com-estrutura-de-condominio-fechado-ref-5569-1483701422
+
+- **Oportunidade Única em BARAO - RS | Tipo: Terreno | Negociação: Venda O**
+  - 💰 R$ 608.635 | 📐 4548 m²
+  - 📍  — Barão
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-barao-rs-tipo-terreno-negociacao-venda-online-situacao-im-1483694383
+
+- **Terreno na Praia em Xangri-la / RS Condomínio Wave Resort + Projeto Ar**
+  - 💰 R$ 359.000 | 📐 243 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-em-xangri-la-rs-condominio-wave-resort-projeto-arquitetonic-1451051519
+
+- **Lote/Terreno para venda tem 147879 metros quadrados**
+  - 💰 R$ 2.500.000 | 📐 147879 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-terreno-para-venda-tem-147879-metros-quadrados-1388706545
+
+- **Terreno amplo próximo a UNISC!**
+  - 💰 R$ 320.000 | 📐 768 m²
+  - 📍 Renascença — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-proximo-a-unisc-1483636878
+
+- **Terreno Quatro Lagos em Arroio do Sal/RS Cód 3111**
+  - 💰 R$ 79.000 | 📐 352 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-quatro-lagos-em-arroio-do-sal-rs-cod-3111-1483628245
+
+- **Chácara 600M² - para Alugar**
+  - 💰 R$ 8.000 | 📐 600 m²
+  - 📍  — Vera Cruz
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-600m-para-alugar-1483570882
+
+- **CHÁCARA com estufa,casa ,quiosque galpão.**
+  - 💰 R$ 980.000 | 📐 4750 m²
+  - 📍  — Santa Clara do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-com-estufa-casa-quiosque-galpao-1446283217
+
+- **Terreno plano no loteamento Bela Park em Capão da Canoa - RS**
+  - 💰 R$ 129.900 | 📐 152 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-plano-no-loteamento-bela-park-em-capao-da-canoa-rs-1483471054
+
+- **Terreno de leilão em COUNTRY / SANTA CRUZ DO SUL / RS | Venda Direta O**
+  - 💰 R$ 480.449 | 📐 20000 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-leilao-em-country-santa-cruz-do-sul-rs-venda-direta-online-1483467626
+
+- **Terreno de leilão em JARDIM EUROPA / SANTA CRUZ DO SUL / RS | Venda Di**
+  - 💰 R$ 510.489 | 📐 956 m²
+  - 📍 Jardim Europa — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-leilao-em-jardim-europa-santa-cruz-do-sul-rs-venda-direta-online-1483467619
+
+- **Terreno de leilão em JARDIM EUROPA / SANTA CRUZ DO SUL / RS | Venda Di**
+  - 💰 R$ 367.806 | 📐 1043 m²
+  - 📍 Jardim Europa — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-leilao-em-jardim-europa-santa-cruz-do-sul-rs-venda-direta-online-1483467450
+
+- **Terreno de leilão em CENTRO / BARAO / RS | Licitação Aberta**
+  - 💰 R$ 608.635 | 📐 4548 m²
+  - 📍  — Barão
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-leilao-em-centro-barao-rs-licitacao-aberta-1483466743
+
+- **Terreno Arroio do Sal/RS**
+  - 💰 R$ 50.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-arroio-do-sal-rs-1483457882
+
+- **Terreno à venda, 360 m² por R$ 110.000,00 - Balneário Pinus Park - Arr**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-110-000-00-balneario-pinus-park-arroio-do-sal-rs-1483452252
+
+- **ÁREA PRÓXIMA AO PARQUE**
+  - 💰 R$ 315.000 | 📐 6758 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-proxima-ao-parque-1483444096
+
+- **SÍTIO GRACIOSO**
+  - 💰 R$ 2.544.000 | 📐 340 m²
+  - 📍  — Presidente Lucena
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-gracioso-1483444086
+
+- **TERRENO BEM LOCALIZADO**
+  - 💰 R$ 69.000 | 📐 360 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bem-localizado-1483444085
+
+- **TERRENO PRÓXIMO AO PARQUE**
+  - 💰 R$ 110.000 | 📐 450 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-proximo-ao-parque-1483444076
+
+- **Terreno à venda em Mariapolis, Osório**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-mariapolis-osorio-1483427325
+
+- **Sítio à venda em Vale do Sol**
+  - 💰 R$ 6.400.000 | 📐 850000 m²
+  - 📍 Centro — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-a-venda-em-vale-do-sol-1483398869
+
+- **Oportunidade Única em BARAO - RS | Tipo: Terreno | Negociação: Venda O**
+  - 💰 R$ 608.635 | 📐 4548 m²
+  - 📍  — Barão
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-barao-rs-tipo-terreno-negociacao-venda-online-situacao-im-1483384605
+
+- **TERRENO NO CONDOMÍNIO ALPES LESTE a 5 minutos do centro!**
+  - 💰 R$ 332.669 | 📐 553 m²
+  - 📍 Jardim Europa — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-alpes-leste-a-5-minutos-do-centro-1483365117
+
+- **Terreno no Loteamento Parque Jardine em Linha Santa Cruz!**
+  - 💰 R$ 149.000 | 📐 300 m²
+  - 📍 Linha Santa Cruz — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-parque-jardine-em-linha-santa-cruz-1483365113
+
+- **Área de proteção ambiental no Sul**
+  - 💰 R$ 1.000.000 | 📐 9600000 m²
+  - 📍 Higienópolis — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-de-protecao-ambiental-no-sul-1483360227
+
+- **Terreno residencial ou comercial 15x30 no Remanso pronto para construi**
+  - 💰 R$ 858.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-ou-comercial-15x30-no-remanso-pronto-para-construir-1328302049
+
+- **Sítio de 5 hectares em igrejinha/RS**
+  - 💰 R$ 350.000 | 📐 50000 m²
+  - 📍  — Igrejinha
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-de-5-hectares-em-igrejinha-rs-1483328675
+
+- **Terreno na Torres Sul**
+  - 💰 R$ 85.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-torres-sul-1483292860
+
+- **Terreno na Serra azul com 535m²**
+  - 💰 R$ 100.000 | 📐 535 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-serra-azul-com-535m-1483292707
+
+- **Sítio ou chácara de 3 hectares escriturado em Dom Feliciano.**
+  - 💰 R$ 200.000 | 📐 30000 m²
+  - 📍  — Dom Feliciano
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-ou-chacara-de-3-hectares-escriturado-em-dom-feliciano-1483238789
+
+- **Oportunidade!lugar tranquilo terreno c/casa**
+  - 💰 R$ 105.000 | 📐 456 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-lugar-tranquilo-terreno-c-casa-1483247606
+
+- **Arrendamento de chácara!!**
+  - 💰 R$ 1.000 | 📐 ? m²
+  - 📍  — Tapes
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/arrendamento-de-chacara-1483211405
+
+- **Vendo**
+  - 💰 R$ 320.000 | 📐 360 m²
+  - 📍  — Bom Princípio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-1483200728
+
+- **Propriedade espetacular ?**
+  - 💰 R$ 8.800.000 | 📐 150000 m²
+  - 📍  — Marques de Souza
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/propriedade-espetacular-1483197297
+
+- **Terreno Balneário Atlântico - Arroio do Sal (RS)**
+  - 💰 R$ 90.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-balneario-atlantico-arroio-do-sal-rs-1483195121
+
+- **Terreno em condomínio fechado,  marina privativa, alto padrão.**
+  - 💰 R$ 349.000 | 📐 420 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-marina-privativa-alto-padrao-1483192591
+
+- **Terreno a venda no Bairro Bom Pastor, Lajeado/RS**
+  - 💰 R$ 165.000 | 📐 419 m²
+  - 📍 Bom Pastor — Lajeado
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-bom-pastor-lajeado-rs-1483145355
+
+- **Mônaco Grand Marina, Condomínio Náutico de Alto Padrão na Lagoa dos Qu**
+  - 💰 R$ 806.000 | 📐 335 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/monaco-grand-marina-condominio-nautico-de-alto-padrao-na-lagoa-dos-quadros-1483136198
+
+- **Mônaco Grand Marina, Condomínio Náutico de Alto Padrão na Lagoa dos Qu**
+  - 💰 R$ 2.261.000 | 📐 807 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/monaco-grand-marina-condominio-nautico-de-alto-padrao-na-lagoa-dos-quadros-1483136181
+
+- **Terreno à venda, 450 m² por R$ 450.000,00 - Condomínio Green Sails - O**
+  - 💰 R$ 450.000 | 📐 451 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-450-m-por-r-450-000-00-condominio-green-sails-osorio-rs-1483134942
+
+- **Oportunidade Única em VENANCIO AIRES - RS | Tipo: Terreno | Negociação**
+  - 💰 R$ 126.966 | 📐 264 m²
+  - 📍  — Venâncio Aires
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-venancio-aires-rs-tipo-terreno-negociacao-leilao-situacao-1483069656
+
+- **Chácara à venda em Santa Maria do Herval, Padre Eterno Ilges, com 2 qu**
+  - 💰 R$ 1.150.000 | 📐 28000 m²
+  - 📍  — Santa Maria do Herval
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-a-venda-em-santa-maria-do-herval-padre-eterno-ilges-com-2-quartos-com-28000-m-1483034809
+
+- **Alugo 10 hectares**
+  - 💰 R$ 2.000 | 📐 100000 m²
+  - 📍  — Tapes
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/alugo-10-hectares-1482972264
+
+- **Vendo um sítio de 7 hectares em 15 minutos de Gramado com linda vista **
+  - 💰 R$ 660.000 | 📐 70000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-um-sitio-de-7-hectares-em-15-minutos-de-gramado-com-linda-vista-e-facil-acesso-1482957913
+
+- **Vendo sítio com 30 hectares**
+  - 💰 R$ 850.000 | 📐 300000 m²
+  - 📍  — Morrinhos do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-sitio-com-30-hectares-1482913745
+
+- **Vendo sítio 30 hectares!**
+  - 💰 R$ 850.000 | 📐 300000 m²
+  - 📍  — Morrinhos do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-sitio-30-hectares-1482902478
+
+- **Seu novo lar está aqui! Terreno de esquina no ZEN em Xangri-Lá!**
+  - 💰 R$ 750.000 | 📐 391 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/seu-novo-lar-esta-aqui-terreno-de-esquina-no-zen-em-xangri-la-1482919410
+
+- **Oportunidade Única em ARVOREZINHA - RS | Tipo: Gleba Urbana | Negociaç**
+  - 💰 R$ 998.671 | 📐 4725 m²
+  - 📍  — Arvorezinha
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-arvorezinha-rs-tipo-gleba-urbana-negociacao-venda-direta-onl-1482918666
+
+- **Terreno à venda Country Santa Cruz do Sul/RS**
+  - 💰 R$ 236.568 | 📐 418 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-country-santa-cruz-do-sul-rs-1482914964
+
+- **Terreno à venda Country Santa Cruz do Sul/RS**
+  - 💰 R$ 204.180 | 📐 350 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-country-santa-cruz-do-sul-rs-1482914704
+
+- **Terreno à venda Country Santa Cruz do Sul/RS**
+  - 💰 R$ 201.583 | 📐 343 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-country-santa-cruz-do-sul-rs-1482914697
+
+- **Terreno à venda Country Santa Cruz do Sul/RS**
+  - 💰 R$ 402.164 | 📐 845 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-country-santa-cruz-do-sul-rs-1482914619
+
+- **Terreno à venda Country Santa Cruz do Sul/RS**
+  - 💰 R$ 208.708 | 📐 361 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-country-santa-cruz-do-sul-rs-1482914621
+
+- **Terreno à venda Country Santa Cruz do Sul/RS**
+  - 💰 R$ 216.727 | 📐 382 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-country-santa-cruz-do-sul-rs-1482914462
+
+- **Terreno à venda Country Santa Cruz do Sul/RS**
+  - 💰 R$ 276.675 | 📐 508 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-country-santa-cruz-do-sul-rs-1482914436
+
+- **Terreno à venda Country Santa Cruz do Sul/RS**
+  - 💰 R$ 201.444 | 📐 342 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-country-santa-cruz-do-sul-rs-1482914443
+
+- **Terreno à venda Country Santa Cruz do Sul/RS**
+  - 💰 R$ 208.205 | 📐 360 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-country-santa-cruz-do-sul-rs-1482914434
+
+- **Imóvel para venda tem 300 metros quadrados em Presidente - Imbé - RS**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-tem-300-metros-quadrados-em-presidente-imbe-rs-1482901988
+
+- **Lindo Terreno Aterrado e Gramado no Balneário Presidente  Imbé**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-aterrado-e-gramado-no-balneario-presidente-imbe-1482892227
+
+- **Excelente terreno pronto para construir**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-pronto-para-construir-1482891778
+
+- **Terreno no centro de Xangrila RS**
+  - 💰 R$ 580.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-centro-de-xangrila-rs-1444255499
+
+- **Lote/Terreno para venda com 432 metros quadrados em Centro - Tramandaí**
+  - 💰 R$ 250.000 | 📐 432 m²
+  - 📍  — Tramandaí
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-terreno-para-venda-com-432-metros-quadrados-em-centro-tramandai-rio-grande-do-sul-1422970787
+
+- **Área de 6 hectares com Cabana, rio e mata nativa em Maquiné/RS**
+  - 💰 R$ 155.000 | 📐 6000000 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-de-6-hectares-com-cabana-rio-e-mata-nativa-em-maquine-rs-1474021919
+
+- **Terreno no bairro Esmeralda**
+  - 💰 R$ 120.000 | 📐 420 m²
+  - 📍 Esmeralda — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-esmeralda-1482818769
+
+- **Terreno 300m2 escriturado em Quintão RS**
+  - 💰 R$ 40.000 | 📐 208 m²
+  - 📍  — Palmares do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-300m2-escriturado-em-quintao-rs-1291300082
+
+- **Terreno em condominio Xangri-Lá**
+  - 💰 R$ 389.000 | 📐 265 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-xangri-la-1482806162
+
+- **Fazenda toda estruturada com 519 ha em Cachoeira do Sul/RS localidade **
+  - 💰 R$ 30.000.000 | 📐 5190000 m²
+  - 📍 Santo Antônio — Cachoeira do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-toda-estruturada-com-519-ha-em-cachoeira-do-sul-rs-localidade-irapua-1475943403
+
+- **Imóvel para venda com 4725 metros quadrados em Centro - Arvorezinha - **
+  - 💰 R$ 998.671 | 📐 4725 m²
+  - 📍  — Arvorezinha
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-4725-metros-quadrados-em-centro-arvorezinha-rs-1482735430
+
+- **Terreno plano a venda na cidade de São José do Hortêncio, na Serra Gaú**
+  - 💰 R$ 96.000 | 📐 381 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-plano-a-venda-na-cidade-de-sao-jose-do-hortencio-na-serra-gaucha-1482715637
+
+- **Terrenos com vista cinematográfica à venda em Linha Nova - RS!**
+  - 💰 R$ 320.000 | 📐 720 m²
+  - 📍  — Linha Nova
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-com-vista-cinematografica-a-venda-em-linha-nova-rs-1482715650
+
+- **Belíssimo terreno com vista à venda na cidade de Linha Nova na Serra G**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍  — Linha Nova
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/belissimo-terreno-com-vista-a-venda-na-cidade-de-linha-nova-na-serra-gaucha-1482715633
+
+- **Belo terreno à venda na cidade de Linha Nova, na Serra Gaúcha**
+  - 💰 R$ 160.000 | 📐 420 m²
+  - 📍  — Linha Nova
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/belo-terreno-a-venda-na-cidade-de-linha-nova-na-serra-gaucha-1482715642
+
+- **Sítio com vista espetacular à venda em Morro Reuter RS**
+  - 💰 R$ 1.590.000 | 📐 200 m²
+  - 📍  — Morro Reuter
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-vista-espetacular-a-venda-em-morro-reuter-rs-1482715391
+
+- **Lote/Terreno para venda possui 250 metros quadrados**
+  - 💰 R$ 440.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-terreno-para-venda-possui-250-metros-quadrados-1478495345
+
+- **PARCELAMENTO DIRETO! Terreno de esquina Nova Xangrila**
+  - 💰 R$ 350.000 | 📐 280 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/parcelamento-direto-terreno-de-esquina-nova-xangrila-1475166465
+
+- **TERRENO À VENDA - MAR DEL PLATA arroio sal**
+  - 💰 R$ 82.900 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-mar-del-plata-arroio-sal-1482575011
+
+- **Sítio com linda casa, somente 2km do asfalto em três coroas**
+  - 💰 R$ 380.000 | 📐 20000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-linda-casa-somente-2km-do-asfalto-em-tres-coroas-1482553338
+
+- **Terreno no centro de Quintão. OFERTA!!**
+  - 💰 R$ 64.000 | 📐 300 m²
+  - 📍 Quintão — Palmares do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-centro-de-quintao-oferta-1347854280
+
+- **Terreno medindo 12x45 em Osório/RS. Fica a 20min da praia. Barbada! Pa**
+  - 💰 R$ 59.900 | 📐 540 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-medindo-12x45-em-osorio-rs-fica-a-20min-da-praia-barbada-parcelo-1482498480
+
+- **Oportunidade Única em ARVOREZINHA - RS | Tipo: Gleba Urbana | Negociaç**
+  - 💰 R$ 998.671 | 📐 4725 m²
+  - 📍  — Arvorezinha
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-arvorezinha-rs-tipo-gleba-urbana-negociacao-venda-direta-onl-1482491280
+
+- **Terreno 35000m2**
+  - 💰 R$ 700.000 | 📐 35000 m²
+  - 📍  — Sentinela do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-35000m2-1150140730
+
+- **Casa da lagoa em condomínio**
+  - 💰 R$ 320.000 | 📐 1200 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/casa-da-lagoa-em-condominio-1482411207
+
+- **Sítio com 3 dormitórios à venda, 15000 m² por R$ 120.000,00 - Centro -**
+  - 💰 R$ 120.000 | 📐 15 m²
+  - 📍 Centro — Rio Pardo
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-3-dormitorios-a-venda-15000-m-por-r-120-000-00-centro-rio-pardo-rs-1482364333
+
+- **Terreno com 240m², Santorini Bairro Planejado, Xangri-lá, RS**
+  - 💰 R$ 280.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-240m-santorini-bairro-planejado-xangri-la-rs-1482363563
+
+- **Terreno em Oásis Sul, Tramandaí**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Tramandaí
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-oasis-sul-tramandai-1482362698
+
+- **Imóvel para venda possui 365 metros quadrados em Arroio Teixeira - Cap**
+  - 💰 R$ 285.000 | 📐 365 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-possui-365-metros-quadrados-em-arroio-teixeira-capao-da-canoa-rs-1482348857
+
+- **Magnifica fazenda de 400 hectares, 170 km de Porto Alegre!**
+  - 💰 R$ 14.900.000 | 📐 4000000 m²
+  - 📍 Centro — Camaquã
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/magnifica-fazenda-de-400-hectares-170-km-de-porto-alegre-1482306759
+
+- **Grande oportunidade em Mostardas - Fazenda produtiva de 140 hectares c**
+  - 💰 R$ 4.900.000 | 📐 1400000 m²
+  - 📍  — Mostardas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/grande-oportunidade-em-mostardas-fazenda-produtiva-de-140-hectares-com-fundos-para-a-lag-1482293410
+
+- **Fazenda de 56 hectares em Mostardas, porteira fechada**
+  - 💰 R$ 2.500.000 | 📐 560000 m²
+  - 📍  — Mostardas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-de-56-hectares-em-mostardas-porteira-fechada-1482283834
+
+- **Fazenda de 78 hectares, sendo 30ha de eucaliptos com + de 13 anos, Maq**
+  - 💰 R$ 2.900.000 | 📐 780000 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-de-78-hectares-sendo-30ha-de-eucaliptos-com-de-13-anos-maquine-1482275702
+
+- **Fazenda de 58 hectares para soja, Sentinela do Sul, confira**
+  - 💰 R$ 2.200.000 | 📐 580000 m²
+  - 📍  — Sentinela do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-de-58-hectares-para-soja-sentinela-do-sul-confira-1482273640
+
+- **Refúgio à beira da Lagoa com vista de tirar o fôlego - Maquiné, frente**
+  - 💰 R$ 1.900.000 | 📐 3000 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/refugio-a-beira-da-lagoa-com-vista-de-tirar-o-folego-maquine-frente-rs-101-1482269351
+
+- **Fazenda 62 hectares para plantio em Sentinela do Sul!**
+  - 💰 R$ 2.728.000 | 📐 620000 m²
+  - 📍  — Sentinela do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-62-hectares-para-plantio-em-sentinela-do-sul-1482268475
+
+- **Vendo área de 12 hectares com 24 mil pés de eucalipto. NUNCA cortado.**
+  - 💰 R$ 560.000 | 📐 120000 m²
+  - 📍  — Caraá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-area-de-12-hectares-com-24-mil-pes-de-eucalipto-nunca-cortado-1478637988
+
+- **Terreno 500m² na natureza ? ideal para chalé, seguro, com água e luz**
+  - 💰 R$ 18.000 | 📐 500 m²
+  - 📍  — Caraá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-500m-na-natureza-ideal-para-chale-seguro-com-agua-e-luz-1482219446
+
+- **TERRENO ESCRITURADO EM CIDREIRA**
+  - 💰 R$ 44.000 | 📐 300 m²
+  - 📍  — Cidreira
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-escriturado-em-cidreira-1482214885
+
+- **Chácara para Venda em Caraá, Lajeadinho, 3 dormitórios, 1 banheiro, 1 **
+  - 💰 R$ 160.000 | 📐 30000 m²
+  - 📍  — Caraá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-para-venda-em-caraa-lajeadinho-3-dormitorios-1-banheiro-1-vaga-1482179873
+
+- **Sítio com linda casa principal e piscina**
+  - 💰 R$ 990.000 | 📐 9000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-linda-casa-principal-e-piscina-1482072444
+
+- **Sítio 1 hectare com açude na serra gaúcha 30km de Gramado RS**
+  - 💰 R$ 100.000 | 📐 10000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-1-hectare-com-acude-na-serra-gaucha-30km-de-gramado-rs-1482052963
+
+- **Fazenda/Sítio/Chácara para venda tem 20399 metros quadrados com 2 quar**
+  - 💰 R$ 1.000.000 | 📐 116400 m²
+  - 📍  — São Sebastião do Caí
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-sitio-chacara-para-venda-tem-20399-metros-quadrados-com-2-quartos-1457040170
+
+- **Terreno lote praia artificial venda Estrada do Mar Xangri-Lá**
+  - 💰 R$ 636.693 | 📐 400 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-praia-artificial-venda-estrada-do-mar-xangri-la-1481975515
+
+- **Terreno lote praia artificial venda Estrada do Mar Xangri-Lá**
+  - 💰 R$ 1.274.000 | 📐 384 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-praia-artificial-venda-estrada-do-mar-xangri-la-1481969054
+
+- **Terreno a venda em Quintao**
+  - 💰 R$ 22.000 | 📐 300 m²
+  - 📍 Quintão — Palmares do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-quintao-1278880539
+
+- **Excelente área de 52.000m2 em Cidreira**
+  - 💰 R$ 390.000 | 📐 52000 m²
+  - 📍  — Cidreira
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-area-de-52-000m2-em-cidreira-1481683008
+
+- **Terreno em Condomínio à venda Rodovia Estrada do Mar, Centro - Capão d**
+  - 💰 R$ 285.000 | 📐 365 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rodovia-estrada-do-mar-centro-capao-da-canoa-1481669649
+
+- **Terreno à venda próximo ao mar**
+  - 💰 R$ 110.000 | 📐 200 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-proximo-ao-mar-1481662685
+
+- **Mirador Playa Arenas**
+  - 💰 R$ 365.500 | 📐 301 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/mirador-playa-arenas-1409139000
+
+- **Terreno no Jardim Beira mar em Capão da Canoa**
+  - 💰 R$ 75.000 | 📐 150 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-jardim-beira-mar-em-capao-da-canoa-1481588182
+
+- **Terreno a venda no Oxy Xangrilá**
+  - 💰 R$ 1.285.000 | 📐 465 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-oxy-xangrila-1481482192
+
+- **Terreno a venda no Oxy Xangrilá**
+  - 💰 R$ 947.000 | 📐 435 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-oxy-xangrila-1481482084
+
+- **Terreno a venda no Oxy Xangrilá**
+  - 💰 R$ 817.000 | 📐 413 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-oxy-xangrila-1481481697
+
+- **Terreno à venda, Condomínio Duo Nautic Life Club - Osório/RS**
+  - 💰 R$ 585.000 | 📐 469 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-duo-nautic-life-club-osorio-rs-1481478150
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 599.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1481478007
+
+- **Terreno À Venda na Rainha do Mar**
+  - 💰 R$ 185.000 | 📐 615 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-na-rainha-do-mar-1481460163
+
+- **Terreno em Rainha do Mar - Xangri-lá**
+  - 💰 R$ 790.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-rainha-do-mar-xangri-la-1481455457
+
+- **Terreno a venda Condominio Joy Xangri_Lá**
+  - 💰 R$ 390.000 | 📐 264 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-1481441826
+
+- **TERRENO COMERCIAL 532M², 2 ESQUINAS, AO LADO DA TRANSPORTADORA GIOVANE**
+  - 💰 R$ 380.000 | 📐 532 m²
+  - 📍  — Estrela
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-532m-2-esquinas-ao-lado-da-transportadora-giovanella-estrela-rs-1479476929
+
+- **Terreno no centro de Santa Cruz do Sul, RS**
+  - 💰 R$ 5.000.000 | 📐 1700 m²
+  - 📍 Centro — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-centro-de-santa-cruz-do-sul-rs-1481338495
+
+- **Preço de oportunidade! Terreno 364m² próximo à Univates - Bairro Unive**
+  - 💰 R$ 315.000 | 📐 364 m²
+  - 📍 Universitário — Lajeado
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/preco-de-oportunidade-terreno-364m-proximo-a-univates-bairro-universitario-lajeado-1481289468
+
+- **Terreno no bairro Bom Fim**
+  - 💰 R$ 270.000 | 📐 1200 m²
+  - 📍 Bonfim — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-bom-fim-1481257149
+
+- **Terreno em Condomínio com 2 Dormitorio(s) localizado(a) no bairro Curu**
+  - 💰 R$ 365.691 | 📐 301 m²
+  - 📍 Capão da Canoa — Curumim
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-com-2-dormitorio-s-localizado-a-no-bairro-curumim-em-capao-da-cano-1481212343
+
+- **Terreno a beira lago no condomínio Lotus em Atlântida**
+  - 💰 R$ 3.318.000 | 📐 534 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-beira-lago-no-condominio-lotus-em-atlantida-1481204051
+
+- **Terreno a beira lago no condomínio Lotus em Atlântida - Xangri-lá**
+  - 💰 R$ 2.727.200 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-beira-lago-no-condominio-lotus-em-atlantida-xangri-la-1481201677
+
+- **Terreno a Beira Lago no condomínio Lotus em Atlântida - Xangri-lá**
+  - 💰 R$ 2.548.600 | 📐 473 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-beira-lago-no-condominio-lotus-em-atlantida-xangri-la-1481200748
+
+- **Terreno a Beira Lago no condomínio Lotus em Atlântida - Xangri-lá**
+  - 💰 R$ 2.548.600 | 📐 473 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-beira-lago-no-condominio-lotus-em-atlantida-xangri-la-1481200412
+
+- **Condomínio Parque das Figueiras - Arroio do Sal**
+  - 💰 R$ 450.000 | 📐 821 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-parque-das-figueiras-arroio-do-sal-1481172672
+
+- **Lote frente lago no Condomínio Sunset em Xangri-lá**
+  - 💰 R$ 650.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-frente-lago-no-condominio-sunset-em-xangri-la-1481161316
+
+- **Lote em Condomínio Fechado com ancoradouro e araia artificial na Praia**
+  - 💰 R$ 590.000 | 📐 380 m²
+  - 📍 Atlântida Sul — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-em-condominio-fechado-com-ancoradouro-e-araia-artificial-na-praia-de-atlantida-sul-1481152116
+
+- **Sambaquis em Arroio do Sal/RS COD 3217**
+  - 💰 R$ 330.000 | 📐 362 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sambaquis-em-arroio-do-sal-rs-cod-3217-1481135474
+
+- **VENDE-SE CHÁCARA!**
+  - 💰 R$ 249.000 | 📐 ? m²
+  - 📍  — Rio Pardo
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vende-se-chacara-1481113476
+
+- **Chácara / Sítio para Venda no Centro em São José do Hortêncio**
+  - 💰 R$ 340.000 | 📐 32000 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-sitio-para-venda-no-centro-em-sao-jose-do-hortencio-1480998369
+
+- **40 hectares com eucalipto em Caraá RS**
+  - 💰 R$ 1.200.000 | 📐 400000 m²
+  - 📍  — Caraá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/40-hectares-com-eucalipto-em-caraa-rs-1480948448
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 799.000 | 📐 336 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1480932696
+
+- **Terreno para Venda em Cidreira | Diego Imóveis | 102**
+  - 💰 R$ 176.000 | 📐 300 m²
+  - 📍  — Cidreira
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-venda-em-cidreira-diego-imoveis-102-1480932095
+
+- **Excelentes terrenos no condomínio BRÁVIA no endereço náutico às margen**
+  - 💰 R$ 616.448 | 📐 411 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelentes-terrenos-no-condominio-bravia-no-endereco-nautico-as-margens-do-rio-tramandai-1480920055
+
+- **Área com 11.000 m² em Osório**
+  - 💰 R$ 1.650.000 | 📐 11000 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-com-11-000-m-em-osorio-1480912014
+
+- **Oportunidade Única em ARVOREZINHA - RS | Tipo: Terreno | Negociação: L**
+  - 💰 R$ 1.500.000 | 📐 1870 m²
+  - 📍  — Arvorezinha
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-arvorezinha-rs-tipo-terreno-negociacao-leilao-situacao-im-1480809992
+
+- **Terreno residencial em condomínio exclusivo na região de Imbé RS**
+  - 💰 R$ 450.000 | 📐 595 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-condominio-exclusivo-na-regiao-de-imbe-rs-1480783694
+
+- **GRANDE OPORTUNIDADE SÍTIOS 1.000 METROS QUADRADOS - LINHA CRISTO REI -**
+  - 💰 R$ 59.000 | 📐 1000 m²
+  - 📍  — Morro Reuter
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/grande-oportunidade-sitios-1-000-metros-quadrados-linha-cristo-rei-morro-reuter-1480725282
+
+- **Sítio de 2 hectares, ao lado da RS-040 chegando em Balneário Pinhal, a**
+  - 💰 R$ 289.000 | 📐 20000 m²
+  - 📍  — Balneário Pinhal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-de-2-hectares-ao-lado-da-rs-040-chegando-em-balneario-pinhal-ao-lado-da-lagoa-1464724141
+
+- **Fazenda / Sítio / Chácara à venda Estrada Mundo Novo, Centro - Maquiné**
+  - 💰 R$ 557.000 | 📐 30000 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-sitio-chacara-a-venda-estrada-mundo-novo-centro-maquine-1480722568
+
+- **T36 - Excelente terreno com 300 m² no Balneário Mariluz**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t36-excelente-terreno-com-300-m-no-balneario-mariluz-1480685712
+
+- **Sitio em Santo Antônio. Caraa RS**
+  - 💰 R$ 380.000 | 📐 50000 m²
+  - 📍  — Caraá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-em-santo-antonio-caraa-rs-995969683
+
+- **Sítio Granja Vargas**
+  - 💰 R$ 280.000 | 📐 ? m²
+  - 📍  — Palmares do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-granja-vargas-1480491943
+
+- **Terreno à venda no Centro de Imbé, a poucos passos do mar! REF: 5523**
+  - 💰 R$ 270.000 | 📐 350 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-imbe-a-poucos-passos-do-mar-ref-5523-1480474002
+
+- **Terreno em Condomínio com 5 Dormitorio(s) localizado(a) no bairro Curu**
+  - 💰 R$ 359.000 | 📐 318 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-com-5-dormitorio-s-localizado-a-no-bairro-curumim-em-capao-da-cano-1480473972
+
+- **Lote com 1 Dormitorio(s) localizado(a) no bairro Capão Novo em CAPÃO D**
+  - 💰 R$ 330.000 | 📐 372 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-com-1-dormitorio-s-localizado-a-no-bairro-capao-novo-em-capao-da-canoa-ref-s360-1480473958
+
+- **Lote com 1 Dormitorio(s) localizado(a) no bairro Capão Novo em CAPÃO D**
+  - 💰 R$ 330.000 | 📐 393 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-com-1-dormitorio-s-localizado-a-no-bairro-capao-novo-em-capao-da-canoa-ref-s360-1480473960
+
+- **Lote com 2 Dormitorio(s) localizado(a) no bairro Xangrilá em XANGRI-LÁ**
+  - 💰 R$ 890.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-com-2-dormitorio-s-localizado-a-no-bairro-xangrila-em-xangri-la-ref-s360-5985-1480473968
+
+- **Lote com 4 Dormitorio(s) localizado(a) no bairro Estrada do Mar em XAN**
+  - 💰 R$ 441.000 | 📐 374 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-com-4-dormitorio-s-localizado-a-no-bairro-estrada-do-mar-em-xangri-la-ref-s360-9-1480473957
+
+- **Terreno de esquina no Jardim Europa - Santa Cruz do Sul/RS**
+  - 💰 R$ 280.000 | 📐 450 m²
+  - 📍 Jardim Europa — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-no-jardim-europa-santa-cruz-do-sul-rs-1480473824
+
+- **Terreno à venda em Mariluz**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-mariluz-1480473486
+
+- **Terreno à venda em Mariluz - Próximo ao mar**
+  - 💰 R$ 245.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-mariluz-proximo-ao-mar-1480473471
+
+- **Área Rural para Venda em Caraá, Chapada**
+  - 💰 R$ 96.000 | 📐 30000 m²
+  - 📍  — Caraá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-rural-para-venda-em-caraa-chapada-1480468191
+
+- **Terreno à 50m do mar, com pagamento facilitado em Jardim Atlântico**
+  - 💰 R$ 180.000 | 📐 350 m²
+  - 📍  — Tramandaí
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-50m-do-mar-com-pagamento-facilitado-em-jardim-atlantico-1480377955
+
+- **Vendo ou troco por citio ou casa em Viamão**
+  - 💰 R$ 180.000 | 📐 5800 m²
+  - 📍  — Balneário Pinhal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-ou-troco-por-citio-ou-casa-em-viamao-1480284041
+
+- **Terreno à venda em Imbé - Balneário Mariluz**
+  - 💰 R$ 127.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-balneario-mariluz-1480279431
+
+- **Vendo terreno na Borússia Osório**
+  - 💰 R$ 52.800 | 📐 900 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-na-borussia-osorio-1480262497
+
+- **Terreno Imperdível em Santa Cruz do Sul - 570m²**
+  - 💰 R$ 699.000 | 📐 570 m²
+  - 📍 Jardim Europa — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-imperdivel-em-santa-cruz-do-sul-570m-1480257382
+
+- **Terreno Alto e Tranquilo em Santa Cruz do Sul**
+  - 💰 R$ 120.000 | 📐 307 m²
+  - 📍 Linha Santa Cruz — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-alto-e-tranquilo-em-santa-cruz-do-sul-1480255969
+
+- **Terreno Versátil e Tranquilo em Santa Cruz do Sul**
+  - 💰 R$ 140.000 | 📐 648 m²
+  - 📍 Margarida — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-versatil-e-tranquilo-em-santa-cruz-do-sul-1480254955
+
+- **Terreno no condomínio Lôtus**
+  - 💰 R$ 1.393.500 | 📐 495 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lotus-1480244171
+
+- **Terreno no condomínio Lotus em Atlântida -Xangri-lá**
+  - 💰 R$ 2.399.600 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lotus-em-atlantida-xangri-la-1480244187
+
+- **Terreno no condomínio Lotus em Atlântida - Xangri-lá**
+  - 💰 R$ 1.891.600 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lotus-em-atlantida-xangri-la-1480243700
+
+- **3 hectares com riacho e linda vista em Três Coroas**
+  - 💰 R$ 389.000 | 📐 30000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/3-hectares-com-riacho-e-linda-vista-em-tres-coroas-1464189806
+
+- **Paraíso na beira da Lagoa em Maquiné com  Escritura.**
+  - 💰 R$ 1.980.000 | 📐 3000 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/paraiso-na-beira-da-lagoa-em-maquine-com-escritura-1464163194
+
+- **Sítio para moradia a apenas 16 minutos de Gramado**
+  - 💰 R$ 690.000 | 📐 70000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-para-moradia-a-apenas-16-minutos-de-gramado-1464189001
+
+- **Terreno Walachai**
+  - 💰 R$ 125.000 | 📐 1500 m²
+  - 📍  — Morro Reuter
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-walachai-1480157245
+
+- **Terrenono Centro de Osório, Reserva Osório, 300m² Terrenono Centro de **
+  - 💰 R$ 191.958 | 📐 300 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenono-centro-de-osorio-reserva-osorio-300m-terrenono-centro-de-osorio-reserva-osor-1480127671
+
+- **Terreno à venda em Imbé - Balneário Mariluz**
+  - 💰 R$ 72.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-balneario-mariluz-1480098971
+
+- **Terreno À Venda em Xangri-lá**
+  - 💰 R$ 499.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-em-xangri-la-1480095377
+
+- **Área Rural para Venda em Caraá, Espigão**
+  - 💰 R$ 96.000 | 📐 1720 m²
+  - 📍  — Caraá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-rural-para-venda-em-caraa-espigao-1480092542
+
+- **Terreno beira lago à venda no Condomínio Isla Xangri-Lá**
+  - 💰 R$ 599.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-no-condominio-isla-xangri-la-1480087118
+
+- **Terreno em Imbé, Balneário Presidente**
+  - 💰 R$ 178.000 | 📐 250 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-imbe-balneario-presidente-1480033805
+
+- **Terreno em Tramandaí - Balneário Jardim Atlântico**
+  - 💰 R$ 130.000 | 📐 375 m²
+  - 📍  — Tramandaí
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-tramandai-balneario-jardim-atlantico-1480033755
+
+- **Terreno no bairro Bosque dos Ipês**
+  - 💰 R$ 600.000 | 📐 460 m²
+  - 📍 Centro — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-bosque-dos-ipes-1480033780
+
+- **Terreno no bairro Serra Grande**
+  - 💰 R$ 1.280.000 | 📐 117711 m²
+  - 📍 Centro — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-serra-grande-1480033797
+
+- **Terreno Bairro Conventos**
+  - 💰 R$ 142.000 | 📐 390 m²
+  - 📍  — Lajeado
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-conventos-1459283796
+
+- **Grande oportunidade em Mostardas - Fazenda produtiva de 140 hectares c**
+  - 💰 R$ 4.900.000 | 📐 1400000 m²
+  - 📍  — Mostardas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/grande-oportunidade-em-mostardas-fazenda-produtiva-de-140-hectares-com-fundos-para-a-lag-1479957571
+
+- **Fazenda de 78 hectares, sendo 30ha de eucaliptos com + de 13 anos, Maq**
+  - 💰 R$ 2.900.000 | 📐 780000 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/fazenda-de-78-hectares-sendo-30ha-de-eucaliptos-com-de-13-anos-maquine-1479954168
+
+- **Sítios**
+  - 💰 R$ 86.000 | 📐 7500 m²
+  - 📍 Goiás — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitios-1480070084
+
+- **Excelente oportunidade SÍTIOS 1.000 METROS QUADRADOS - LINHA CRISTO RE**
+  - 💰 R$ 59.000 | 📐 1000 m²
+  - 📍  — Morro Reuter
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-oportunidade-sitios-1-000-metros-quadrados-linha-cristo-rei-morro-reuter-1479945275
+
+- **Vende-se chácara**
+  - 💰 R$ 650.000 | 📐 44000 m²
+  - 📍  — Arvorezinha
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vende-se-chacara-1479935388
+
+- **Terreno em Balneário Pinhal 2 quadras do mar**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Balneário Pinhal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-pinhal-2-quadras-do-mar-1479899677
+
+- **Oportunidade, Loteamento, de frente para infra. Entrada e parcelamento**
+  - 💰 R$ 245.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-loteamento-de-frente-para-infra-entrada-e-parcelamento-1479863114
+
+- **TERRENO DE FRENTE PARA A LAGOA DOS PATOS**
+  - 💰 R$ 110.000 | 📐 930 m²
+  - 📍  — Tavares
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-frente-para-a-lagoa-dos-patos-1479774611
+
+- **Chácara São Sebastião do Caí**
+  - 💰 R$ 40.000 | 📐 1950 m²
+  - 📍  — São Sebastião do Caí
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-sao-sebastiao-do-cai-1479742052
+
+- **Sítio em Osório**
+  - 💰 R$ 960.000 | 📐 150 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-em-osorio-1479737601
+
+- **Sítio Fantástico a venda em Marques de Sousa**
+  - 💰 R$ 6.500.000 | 📐 1300 m²
+  - 📍  — Marques de Souza
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-fantastico-a-venda-em-marques-de-sousa-1479730502
+
+- **Terreno Diferenciado em Cond. infra completa em Capao da Canoa Curumim**
+  - 💰 R$ 340.000 | 📐 349 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-diferenciado-em-cond-infra-completa-em-capao-da-canoa-curumim-vista-para-o-mar-1479722458
+
+- **Valor: R$ 35.000 à vista ?**
+  - 💰 R$ 35.000 | 📐 300 m²
+  - 📍  — Passo do Sobrado
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/valor-r-35-000-a-vista-1479713947
+
+- **Terreno 463m2 - 25mt de frente, 200mt da HAVAN**
+  - 💰 R$ 285.000 | 📐 463 m²
+  - 📍 Centenário — Camaquã
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-463m2-25mt-de-frente-200mt-da-havan-1420555972
+
+- **Belíssima chácara**
+  - 💰 R$ 600.000 | 📐 6000000 m²
+  - 📍  — Tavares
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/belissima-chacara-1476652680
+
+- **Terreno em Sinimbu RS com escritura 1093,34m²**
+  - 💰 R$ 89.900 | 📐 1093 m²
+  - 📍  — Sinimbu
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-sinimbu-rs-com-escritura-1093-34m-1160074820
+
+- **Imóvel para venda tem 3000 metros quadrados com 3 quartos em Maquiné -**
+  - 💰 R$ 1.900.000 | 📐 3000 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-tem-3000-metros-quadrados-com-3-quartos-em-maquine-maquine-rs-1479476478
+
+- **Terreno 300m² . Loteamento Mirante dos Canyons -Mampituba/RS | Praia G**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Mampituba
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-300m-loteamento-mirante-dos-canyons-mampituba-rs-praia-grande-sc-1479476016
+
+- **Terreno em zona residencial tranquila**
+  - 💰 R$ 169.000 | 📐 256 m²
+  - 📍 Santo Inácio — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-zona-residencial-tranquila-1479437790
+
+- **Terreno na Rua 28 de Outubro**
+  - 💰 R$ 275.000 | 📐 400 m²
+  - 📍 Universitário — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-rua-28-de-outubro-1479437789
+
+- **Vendo Fazendo em Sentinela do Sul**
+  - 💰 R$ 480.000 | 📐 50000 m²
+  - 📍  — Sentinela do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-fazendo-em-sentinela-do-sul-1479400785
+
+- **TERRENO NO BAIRRO PEDREIRA**
+  - 💰 R$ 122.000 | 📐 360 m²
+  - 📍 Pedreira — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-pedreira-1479363060
+
+- **TERRENO NO BAIRRO SANTUARIO localizado às margens da BR**
+  - 💰 R$ 160.000 | 📐 371 m²
+  - 📍 Santuário — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-santuario-localizado-as-margens-da-br-1479363043
+
+- **TERRENO PARA INVESTIDOR - terreno às margens da BR em Santa Cruz do Su**
+  - 💰 R$ 270.000 | 📐 511 m²
+  - 📍 Santuário — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-investidor-terreno-as-margens-da-br-em-santa-cruz-do-sul-1479363035
+
+- **Terreno à venda, Condomínio Raro Arquitetura Brasileira - Xangri-Lá/RS**
+  - 💰 R$ 690.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-raro-arquitetura-brasileira-xangri-la-rs-1479358753
+
+- **Terreno à venda, Condomínio Duo Nautic Life Club - Osório/RS**
+  - 💰 R$ 329.900 | 📐 300 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-duo-nautic-life-club-osorio-rs-1479358618
+
+- **Chácara à venda, 8808 m² - Monte Alverne - Santa Cruz do Sul/RS**
+  - 💰 R$ 250.000 | 📐 210 m²
+  - 📍 Monte Alverne — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-a-venda-8808-m-monte-alverne-santa-cruz-do-sul-rs-1479348235
+
+- **Terreno Exclusivo à Venda no Jardim Bela Vista  Vista Privilegiada do **
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍 Linha Santa Cruz — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-exclusivo-a-venda-no-jardim-bela-vista-vista-privilegiada-do-por-do-so-1479338646
+
+- **Terreno plano, próximo ao Centro.**
+  - 💰 R$ 298.000 | 📐 416 m²
+  - 📍 Margarida — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-plano-proximo-ao-centro-1479338522
+
+- **Terreno plano, próximo ao Centro**
+  - 💰 R$ 320.000 | 📐 360 m²
+  - 📍 Margarida — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-plano-proximo-ao-centro-1479338430
+
+- **Terreno Comercial em Nenhum**
+  - 💰 R$ 780.000 | 📐 8753 m²
+  - 📍  — Paverama
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-em-nenhum-1479317293
+
+- **Vendo terreno praia Quintão RS**
+  - 💰 R$ 19.000 | 📐 300 m²
+  - 📍 Quintão — Palmares do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-praia-quintao-rs-1479304280
+
+- **Sítio maravilhoso com duas casas Enxaimel na Linha Nova RS. Ref.:935**
+  - 💰 R$ 1.590.000 | 📐 130 m²
+  - 📍  — Linha Nova
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-maravilhoso-com-duas-casas-enxaimel-na-linha-nova-rs-ref-935-1479268185
+
+- **Sítio bairro São Roque, Feliz RS Ref.:993**
+  - 💰 R$ 570.000 | 📐 80 m²
+  - 📍  — Feliz
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-bairro-sao-roque-feliz-rs-ref-993-1479267584
+
+- **Oportunidade! Terreno com excelente preço em Imbé/RS**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-terreno-com-excelente-preco-em-imbe-rs-1479259426
+
+- **Lotes para investimento**
+  - 💰 R$ 180.000 | 📐 431 m²
+  - 📍  — Presidente Lucena
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lotes-para-investimento-1479246776
+
+- **ÁREA PARA LOTEAMENTO**
+  - 💰 R$ 1.800.000 | 📐 75573 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-para-loteamento-1479246694
+
+- **Lote Urbano**
+  - 💰 R$ 138.000 | 📐 450 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-urbano-1479246674
+
+- **TERRENO  BAIRRO SÃO CRISTÓVÃO**
+  - 💰 R$ 285.000 | 📐 332 m²
+  - 📍 São Cristóvão — Lajeado
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-sao-cristovao-1479200997
+
+- **VENDO TERRENO, dentro do loteamento presidente**
+  - 💰 R$ 350.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-dentro-do-loteamento-presidente-1477825671
+
+- **IMPERDÍVEL!!!! SÍTIO 2 HECTARES  COM FUNDOS PARA LAGOA EM BALNEÁRIO PI**
+  - 💰 R$ 289.000 | 📐 20000 m²
+  - 📍  — Balneário Pinhal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imperdivel--sitio-2-hectares-com-fundos-para-lagoa-em-balneario-pinhal-1479139143
+
+- **OPORTUNIDADE ÚNICA EM TRÊS COROAS! - ÚLTIMO SÍTIO DISPONÍVEL - 1 HECTA**
+  - 💰 R$ 179.000 | 📐 10000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-tres-coroas-ultimo-sitio-disponivel-1-hectare-apenas-1479134449
+
+- **IMPERDÍVEL! SÍTIOS 1.000m² NA LINHA CRISTO REI - MORRO REUTER**
+  - 💰 R$ 79.900 | 📐 1000 m²
+  - 📍  — Morro Reuter
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imperdivel-sitios-1-000m-na-linha-cristo-rei-morro-reuter-1479131956
+
+- **Vendo terreno**
+  - 💰 R$ 185.000 | 📐 360 m²
+  - 📍  — Arvorezinha
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-1479131450
+
+- **TERRENO NO LOTEAMENTO ESTANCIA JARDIM - Em linha Santa Cruz**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍 Linha Santa Cruz — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-estancia-jardim-em-linha-santa-cruz-1479093117
+
+- **TERRENO COM VISTA DESLUMBRANTE EM SANTA MARIA DO HERVAL**
+  - 💰 R$ 390.000 | 📐 2710 m²
+  - 📍  — Santa Maria do Herval
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-vista-deslumbrante-em-santa-maria-do-herval-1479090861
+
+- **TERRENO EM SANTA MARIA DO HERVAL**
+  - 💰 R$ 350.000 | 📐 4400 m²
+  - 📍  — Santa Maria do Herval
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-santa-maria-do-herval-1479090845
+
+- **Terreno Loteamento Petry II - L19 QC - Esquina**
+  - 💰 R$ 80.000 | 📐 460 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-loteamento-petry-ii-l19-qc-esquina-1479086676
+
+- **IMÓVEL - LOTEAMENTO IMPERIAL**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-loteamento-imperial-1479086534
+
+- **Terreno Loteamento Petry I  L01 QA - Esquina**
+  - 💰 R$ 90.000 | 📐 450 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-loteamento-petry-i-l01-qa-esquina-1479086536
+
+- **Lote urbano - Infra completa**
+  - 💰 R$ 65.000 | 📐 360 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-urbano-infra-completa-1479086495
+
+- **LOTE DE ESQUINA**
+  - 💰 R$ 127.200 | 📐 450 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-esquina-1479086454
+
+- **Terreno Loteamento Petry I  L22 QB**
+  - 💰 R$ 75.000 | 📐 391 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-loteamento-petry-i-l22-qb-1479086459
+
+- **LOTE URBANO**
+  - 💰 R$ 212.000 | 📐 707 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-urbano-1479086455
+
+- **LOTE URBANO**
+  - 💰 R$ 65.000 | 📐 390 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-urbano-1479086421
+
+- **LOTES LOTEAMENTO IMPERIAL**
+  - 💰 R$ 98.900 | 📐 436 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lotes-loteamento-imperial-1479086425
+
+- **LOTE URBANO - L03 Q106 - LOTEAMENTO LUCENA**
+  - 💰 R$ 150.000 | 📐 363 m²
+  - 📍  — Presidente Lucena
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-urbano-l03-q106-loteamento-lucena-1479086426
+
+- **Lote Urbano**
+  - 💰 R$ 150.000 | 📐 465 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-urbano-1479086412
+
+- **ÁREA RURAL**
+  - 💰 R$ 512.900 | 📐 69100 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-rural-1479086417
+
+- **ÁREA RURAL**
+  - 💰 R$ 362.000 | 📐 48839 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-rural-1479086413
+
+- **LOTE DE ESQUINA**
+  - 💰 R$ 159.000 | 📐 469 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-esquina-1479086415
+
+- **LOTES COLINA DA SERRA**
+  - 💰 R$ 147.000 | 📐 360 m²
+  - 📍  — Presidente Lucena
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lotes-colina-da-serra-1479086401
+
+- **Terreno com 362,55 m² à venda no condomínio Zen em Xangri-Lá. REF:**
+  - 💰 R$ 590.000 | 📐 362 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-362-55-m-a-venda-no-condominio-zen-em-xangri-la-ref-1479086219
+
+- **Loteamento Residencial Nova Nordeste | Imbé/RS**
+  - 💰 R$ 55.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/loteamento-residencial-nova-nordeste-imbe-rs-1479075899
+
+- **Loteamento Residencial Nova Nordeste | Imbé/RS**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/loteamento-residencial-nova-nordeste-imbe-rs-1479075841
+
+- **Terreno à venda no centro de Imbé**
+  - 💰 R$ 143.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-imbe-1479075226
+
+- **Sítio 3000m² terreno plano venda Faxinal Morro Alto Maquiné**
+  - 💰 R$ 320.000 | 📐 3000 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-3000m-terreno-plano-venda-faxinal-morro-alto-maquine-1479069355
+
+- **Terrenos residenciales a partir  360 metros quadrados em Centro - Vera**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Vera Cruz
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-residenciales-a-partir-360-metros-quadrados-em-centro-vera-cruz-rs-1479050758
+
+- **Terreno - Bairro Centro**
+  - 💰 R$ 165.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-centro-1479050700
+
+- **Imóvel para venda tem 1238 metros quadrados com 3 quartos em Centro - **
+  - 💰 R$ 637.100 | 📐 1238 m²
+  - 📍  — Bom Princípio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-tem-1238-metros-quadrados-com-3-quartos-em-centro-bom-principio-rs-1479007904
+
+- **Terreno Quatro Lagos em Arroio do Sal/RS CÓD 3201**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-quatro-lagos-em-arroio-do-sal-rs-cod-3201-1478988589
+
+- **OPORTUNIDADE ÚNICA EM TRÊS COROAS! - ÚLTIMO SÍTIO DISPONÍVEL - 1 HECTA**
+  - 💰 R$ 179.000 | 📐 10000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-tres-coroas-ultimo-sitio-disponivel-1-hectare-1478845674
+
+- **SITIOS 2 HECTARES COM ESCRITURA INDIVIDUAL COM FUNDOS PARA LAGOA EM Ba**
+  - 💰 R$ 289.000 | 📐 20000 m²
+  - 📍  — Balneário Pinhal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitios-2-hectares-com-escritura-individual-com-fundos-para-lagoa-em-balneario-pinhal-1478841157
+
+- **Vendo sítio**
+  - 💰 R$ 165.000 | 📐 60000 m²
+  - 📍  — Barra do Ribeiro
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-sitio-1473873622
+
+- **Terreno 250m2**
+  - 💰 R$ 192.000 | 📐 250 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-250m2-1369916807
+
+- **AMPLO TERRENO NO BAIRRO ESMERALDA**
+  - 💰 R$ 266.000 | 📐 600 m²
+  - 📍 Esmeralda — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-terreno-no-bairro-esmeralda-1478801315
+
+- **SÍTIO COM CASCATA E LAGOS EM ALTO PAREDÃO - INTERIOR DE SANTA CRUZ DO **
+  - 💰 R$ 900.000 | 📐 22500 m²
+  - 📍 Linha Santa Cruz — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-cascata-e-lagos-em-alto-paredao-interior-de-santa-cruz-do-sul-1478801270
+
+- **Terreno amplo no Bairro Margarida**
+  - 💰 R$ 210.000 | 📐 524 m²
+  - 📍 Margarida — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-no-bairro-margarida-1478801221
+
+- **Terreno à venda, Condomínio Duo Nautic Life Club - Osório/RS**
+  - 💰 R$ 439.900 | 📐 342 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-duo-nautic-life-club-osorio-rs-1478798530
+
+- **Terreno à venda, Condomínio Las Palmas - Xangri-Lá/RS**
+  - 💰 R$ 480.000 | 📐 258 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-las-palmas-xangri-la-rs-1478797208
+
+- **Terreno à venda, Condomínio Las Palmas - Xangri-Lá/RS**
+  - 💰 R$ 750.000 | 📐 338 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-las-palmas-xangri-la-rs-1478797136
+
+- **Terreno em Condomínio com 2 Dormitorio(s) localizado(a) no bairro Capã**
+  - 💰 R$ 990.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-com-2-dormitorio-s-localizado-a-no-bairro-capao-novo-em-capao-da-c-1481213183
+
+- **Terreno em Condomínio com 1 Dormitorio(s) localizado(a) no bairro Xang**
+  - 💰 R$ 420.000 | 📐 34 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-com-1-dormitorio-s-localizado-a-no-bairro-xangrila-em-xangri-la-1481213163
+
+- **Lote com 3 Dormitorio(s) localizado(a) no bairro Xangrilá em XANGRI-LÁ**
+  - 💰 R$ 480.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-com-3-dormitorio-s-localizado-a-no-bairro-xangrila-em-xangri-la-ref-s360-428541-1481213147
+
+- **Terreno em Condomínio com 4 Dormitorio(s) localizado(a) no bairro Rain**
+  - 💰 R$ 365.000 | 📐 283 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-com-4-dormitorio-s-localizado-a-no-bairro-rainha-do-mar-em-xangri-1481213119
+
+- **Lote com 1 Dormitorio(s) localizado(a) no bairro Curumim em CAPÃO DA C**
+  - 💰 R$ 365.500 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-com-1-dormitorio-s-localizado-a-no-bairro-curumim-em-capao-da-canoa-ref-s360-214-1481212335
+
+- **Terreno à Venda em Xangri-lá**
+  - 💰 R$ 930.000 | 📐 720 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-xangri-la-1478776514
+
+- **TERRENO ATLÂNTIDA SUL**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-atlantida-sul-1478763256
+
+- **LINDA CABANA EM SERRA GRANDE 299 MIL**
+  - 💰 R$ 299.999 | 📐 18000 m²
+  - 📍  — Igrejinha
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/linda-cabana-em-serra-grande-299-mil-1478732431
+
+- **Oportunidade a venda no condomínio Allure**
+  - 💰 R$ 215.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-a-venda-no-condominio-allure-1478726709
+
+- **Terreno na Lagoa das Malvas**
+  - 💰 R$ 3.500.000 | 📐 30000 m²
+  - 📍 Morro Alto — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-lagoa-das-malvas-1478726243
+
+- **Área rural em Campinho. Entre santa Tereza e Parobé**
+  - 💰 R$ 999.900 | 📐 230 m²
+  - 📍  — Roca Sales
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-rural-em-campinho-entre-santa-tereza-e-parobe-1478717772
+
+- **Oportunidade única em Avenida. Terreno pronto para construir em Imbé/R**
+  - 💰 R$ 360.000 | 📐 420 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-avenida-terreno-pronto-para-construir-em-imbe-rs-1481123433
+
+- **Imóvel para venda com 186000 metros quadrados em Centro - Morro Reuter**
+  - 💰 R$ 1.850.000 | 📐 186000 m²
+  - 📍  — Morro Reuter
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-186000-metros-quadrados-em-centro-morro-reuter-rs-1478690898
+
+- **Lote com Condição especial - 15% Entrada e saldo em até 72X - Cond com**
+  - 💰 R$ 327.900 | 📐 300 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-com-condicao-especial-15-entrada-e-saldo-em-ate-72x-cond-com-marina-nautica-excl-1478687917
+
+- **Lote em Bairro Planejado ao lado do Hospital LIFE - Troca por automóve**
+  - 💰 R$ 240.000 | 📐 246 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-em-bairro-planejado-ao-lado-do-hospital-life-troca-por-automovel--1478687805
+
+- **40% de entrada e saldo em 36x - Uma das últimas unidades de lote a ven**
+  - 💰 R$ 1.150.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/40-de-entrada-e-saldo-em-36x-uma-das-ultimas-unidades-de-lote-a-venda-no-condominio-fa-1478687803
+
+- **TERRENO EM CONDOMÍNIO FECHADO EM NOVA SANTA RITA/RS**
+  - 💰 R$ 280.000 | 📐 540 m²
+  - 📍 Avenida — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-nova-santa-rita-rs-1392104491
+
+- **Sítio de 1 hectare com açude, apenas 1 km do asfalto, na Serra Gaúcha,**
+  - 💰 R$ 179.000 | 📐 10000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-de-1-hectare-com-acude-apenas-1-km-do-asfalto-na-serra-gaucha-1478654913
+
+- **GRANDE OPORTUNIDADE SÍTIOS 1.000 METROS QUADRADOS - LINHA CRISTO REI -**
+  - 💰 R$ 79.900 | 📐 1000 m²
+  - 📍  — Morro Reuter
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/grande-oportunidade-sitios-1-000-metros-quadrados-linha-cristo-rei-morro-reuter-1478648242
+
+- **Sítios. De 2  hectares, entre a lagoa e a RS -040 em Balneário Pinhal**
+  - 💰 R$ 289.000 | 📐 20000 m²
+  - 📍  — Balneário Pinhal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitios-de-2-hectares-entre-a-lagoa-e-a-rs-040-em-balneario-pinhal-1462787866
+
+- **Sítio de 1 hectare , na região turística,  da  Serra Gaúcha.**
+  - 💰 R$ 149.000 | 📐 10000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-de-1-hectare-na-regiao-turistica-da-serra-gaucha-1462786040
+
+- **Terreno a venda com 450m² no Bairro Remanso em Xangri-lá.**
+  - 💰 R$ 340.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-com-450m-no-bairro-remanso-em-xangri-la-1478630053
+
+- **Imóvel para venda possui 300 metros quadrados em Imara - Imbé - RS**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-possui-300-metros-quadrados-em-imara-imbe-rs-1478557297
+
+- **Sítio com acesso a lagoa da Rondinha Balneário Pinhal RS com açude**
+  - 💰 R$ 289.900 | 📐 20000 m²
+  - 📍  — Balneário Pinhal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-acesso-a-lagoa-da-rondinha-balneario-pinhal-rs-com-acude-1445660581
+
+- **Terreno à Venda no Remanso**
+  - 💰 R$ 340.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-remanso-1478520757
+
+- **Área de Terras 4,26 ha**
+  - 💰 R$ 5.113.000 | 📐 42600 m²
+  - 📍 Linha Santa Cruz — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-de-terras-4-26-ha-1478520494
+
+- **Terreno em São José do hortencio**
+  - 💰 R$ 90.000 | 📐 451 m²
+  - 📍  — São José do Hortêncio
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-sao-jose-do-hortencio-1478497301
+
+- **Vendo chácara**
+  - 💰 R$ 140.000 | 📐 2 m²
+  - 📍  — Brochier
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-chacara-1478433482
+
+- **Mariante - Venâncio Aires - belíssima chácara de veraneio na barranca **
+  - 💰 R$ 160.000 | 📐 5720 m²
+  - 📍  — Venâncio Aires
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/mariante-venancio-aires-belissima-chacara-de-veraneio-na-barranca-do-rio-taquari-1466201371
+
+- **Terreno e casa**
+  - 💰 R$ 800.000 | 📐 2500 m²
+  - 📍 Santo Antônio — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-e-casa-1478417631
+
+- **Área de terras - 7,8 hectares em Harmonia/ RS**
+  - 💰 R$ 85.000 | 📐 78000 m²
+  - 📍  — Harmonia
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-de-terras-7-8-hectares-em-harmonia-rs-1478403647
+
+- **Atlantida  Sul vendo 2 terrenos na beira mar ao lado do n 100**
+  - 💰 R$ 700.000 | 📐 600 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/atlantida-sul-vendo-2-terrenos-na-beira-mar-ao-lado-do-n-100-919231474
+
+- **Terreno com 314m² à venda no condomínio Isla em Xangri-Lá. REF:**
+  - 💰 R$ 480.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-314m-a-venda-no-condominio-isla-em-xangri-la-ref-1478337190
+
+- **Cabanas para turismo Rural/ Investimento Futuro**
+  - 💰 R$ 334.000 | 📐 105000 m²
+  - 📍 Monte Alverne — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/cabanas-para-turismo-rural-investimento-futuro-1467472037
+
+- **Terreno Condomínio Wave Home Resort, Xangri-lá, 240m2. Direto com prop**
+  - 💰 R$ 375.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-wave-home-resort-xangri-la-240m2-direto-com-proprietario-1470947355
+
+- **Oportunidade Única em COLINAS - RS | Tipo: Terreno | Negociação: Leilã**
+  - 💰 R$ 100.000 | 📐 335 m²
+  - 📍  — Colinas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-colinas-rs-tipo-terreno-negociacao-leilao-situacao-imovel-1478262763
+
+- **terremo rural**
+  - 💰 R$ 65.000 | 📐 330 m²
+  - 📍  — Caraá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terremo-rural-1478232824
+
+- **Terreno à venda Jardim Olívia Norte Arroio do Sal/RS**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-jardim-olivia-norte-arroio-do-sal-rs-1478218339
+
+- **Terreno Amplo em Local Alto - 1.213,365 m² - Bom Retiro do Sul**
+  - 💰 R$ 210.000 | 📐 1213 m²
+  - 📍  — Bom Retiro do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-em-local-alto-1-213-365-m-bom-retiro-do-sul-1478180474
+
+- **Terreno Picada Alto Tamanduá 14,2ha**
+  - 💰 R$ 200.000 | 📐 145200 m²
+  - 📍  — Marques de Souza
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-picada-alto-tamandua-14-2ha-1478159235
+
+- **RB BRANDÃO,CRECI15635 8aReguao DF MANSÕES DE RECREIO WSTRELA DALVA VII**
+  - 💰 R$ 36.000 | 📐 800 m²
+  - 📍  — Estrela
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/rb-brandao-creci15635-8areguao-df-mansoes-de-recreio-wstrela-dalva-viii-zona-urbana-luzia-1437531575
+
+- **TERRENO NO GUAIBA PARK**
+  - 💰 R$ 155.000 | 📐 200 m²
+  - 📍  — Mariana Pimentel
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-guaiba-park-1478137889
+
+- **Terreno Alto 280m² em Imbé - Santa Terezinha - Escriturado**
+  - 💰 R$ 150.000 | 📐 280 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-alto-280m-em-imbe-santa-terezinha-escriturado-1478106701
+
+- **Arroio do sal-Terreno Balneário Atlântico-15 minutos de torres**
+  - 💰 R$ 150.000 | 📐 320 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/arroio-do-sal-terreno-balneario-atlantico-15-minutos-de-torres-1332296647
+
+- **Chácara 2.6 hectares à VENDA em Três Coroas - RS**
+  - 💰 R$ 360.000 | 📐 26490 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-2-6-hectares-a-venda-em-tres-coroas-rs-1478055620
+
+- **2 hectares por R$ 46 mil a 38 km da praia**
+  - 💰 R$ 46.000 | 📐 20000 m²
+  - 📍  — Três Forquilhas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/2-hectares-por-r-46-mil-a-38-km-da-praia-1478048748
+
+- **Ponto comercial ou residencial-Balneário Atlântico av interpraias nort**
+  - 💰 R$ 190.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/ponto-comercial-ou-residencial-balneario-atlantico-av-interpraias-norte-arroio-do-sal-1368240530
+
+- **Terreno com linda vista escriturado**
+  - 💰 R$ 160.000 | 📐 505 m²
+  - 📍  — Santa Maria do Herval
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-linda-vista-escriturado-1478013297
+
+- **Terreno em Santa Maria do Herval**
+  - 💰 R$ 160.000 | 📐 505 m²
+  - 📍  — Santa Maria do Herval
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-santa-maria-do-herval-1478009938
+
+- **Sítio em Três Coroas, 3 hectares**
+  - 💰 R$ 389 | 📐 30000 m²
+  - 📍  — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-em-tres-coroas-3-hectares-1474765496
+
+- **Lindo Terreno em Maquiné**
+  - 💰 R$ 80.000 | 📐 12700 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-em-maquine-1440787772
+
+- **Condomínio Península - Atlândida Sul Xangri-lá**
+  - 💰 R$ 100.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-peninsula-atlandida-sul-xangri-la-1477973104
+
+- **Sítio Aguapés Osório RS**
+  - 💰 R$ 150.000 | 📐 2500 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-aguapes-osorio-rs-1429713773
+
+- **Terreno 300m2**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-300m2-1338074397
+
+- **Terreno 360m2**
+  - 💰 R$ 151.200 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-360m2-1332692132
+
+- **Terreno 330m2 em Capão da Canoa**
+  - 💰 R$ 330.250 | 📐 330 m²
+  - 📍 Capão da Canoa — Curumim
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-330m2-em-capao-da-canoa-1259769259
+
+- **Terreno reserva do arvoredo**
+  - 💰 R$ 260.000 | 📐 301 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-reserva-do-arvoredo-1477886035
+
+- **Chácara 3,9 hectares escriturada**
+  - 💰 R$ 280.000 | 📐 40000 m²
+  - 📍  — General Câmara
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-3-9-hectares-escriturada-1477847127
+
+- **Sítio**
+  - 💰 R$ 350.000 | 📐 ? m²
+  - 📍  — Putinga
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-1477846350
+
+- **Terreno ao lado do Stok center em Imbé**
+  - 💰 R$ 350.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-ao-lado-do-stok-center-em-imbe-1477834158
+
+- **Chácara / Sítio para Locação no Walachai em Morro Reuter**
+  - 💰 R$ 3.200.000 | 📐 222 m²
+  - 📍  — Morro Reuter
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-sitio-para-locacao-no-walachai-em-morro-reuter-1477806848
+
+- **Sítio com 35000m2**
+  - 💰 R$ 700.000 | 📐 35000 m²
+  - 📍  — Sentinela do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-35000m2-1158820505
+
+- **Terreno 360m2**
+  - 💰 R$ 152.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-360m2-1324628276
+
+- **Chácara de 1 ha na Figueira em Três Coroas**
+  - 💰 R$ 450.000 | 📐 10000 m²
+  - 📍 Centro — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-de-1-ha-na-figueira-em-tres-coroas-1477775157
+
+- **TERRENO RESIDENCIAL VILA TEREZA EM VERA CRUZ**
+  - 💰 R$ 97.638 | 📐 360 m²
+  - 📍  — Vera Cruz
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-vila-tereza-em-vera-cruz-1477771591
+
+- **TERRENO GRANDE E AMPLO NO RESIDENCIAL VILA TEREZA**
+  - 💰 R$ 99.836 | 📐 383 m²
+  - 📍  — Vera Cruz
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-grande-e-amplo-no-residencial-vila-tereza-1477771553
+
+- **TERRENO GRANDE E PLANO NO RESIDENCIAL VILA TEREZA**
+  - 💰 R$ 119.281 | 📐 424 m²
+  - 📍  — Vera Cruz
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-grande-e-plano-no-residencial-vila-tereza-1477771492
+
+- **Terreno à venda Rondinha Nova Arroio do Sal/RS**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-rondinha-nova-arroio-do-sal-rs-1477730496
+
+- **Terreno de esquina próximo ao mar**
+  - 💰 R$ 275.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-proximo-ao-mar-1477729959
+
+- **Terreno em Mariluz próximo ao mar**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-mariluz-proximo-ao-mar-1477729971
+
+- **Terreno Residencial à venda, Maristela Marina, Xangri-lá - TE0173.**
+  - 💰 R$ 457.293 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-a-venda-maristela-marina-xangri-la-te0173-1477718799
+
+- **Terreno à venda, 321 m² por R$ 266.000,00 - Centro - Osório/RS**
+  - 💰 R$ 266.000 | 📐 322 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-321-m-por-r-266-000-00-centro-osorio-rs-1477691848
+
+- **Produção de cogumelos Shimeji - Pleurotus Ostreatus - venda de 50% da **
+  - 💰 R$ 1.200.000 | 📐 1000 m²
+  - 📍  — Bom Retiro do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/producao-de-cogumelos-shimeji-pleurotus-ostreatus-venda-de-50-da-planta-instalada-1477613857
+
+- **Sítio 3000m² terreno plano venda Faxinal Morro Alto Maquiné**
+  - 💰 R$ 320.000 | 📐 3000 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-3000m-terreno-plano-venda-faxinal-morro-alto-maquine-1477563524
+
+- **Chácara / Sítio para Locação no Walachai em Morro Reuter**
+  - 💰 R$ 7.000 | 📐 222 m²
+  - 📍  — Morro Reuter
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-sitio-para-locacao-no-walachai-em-morro-reuter-1477520501
+
+- **Terreno na Borussia**
+  - 💰 R$ 40.000 | 📐 1000 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-borussia-1477489776
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 730.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1477483784
+
+- **Chacara em Linha Floresta, no interior de Vera Cruz!**
+  - 💰 R$ 1.325.000 | 📐 360 m²
+  - 📍  — Vera Cruz
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-em-linha-floresta-no-interior-de-vera-cruz-1477481158
+
+- **Sítio a venda em Mariana Pimentel**
+  - 💰 R$ 299.000 | 📐 150 m²
+  - 📍  — Mariana Pimentel
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-a-venda-em-mariana-pimentel-1477475394
+
+- **Terrenos no Jardim das Flores - Country**
+  - 💰 R$ 175.000 | 📐 327 m²
+  - 📍 Country — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-no-jardim-das-flores-country-1442723925
+
+- **Terreno Residencial em Maquiné**
+  - 💰 R$ 2.077.000 | 📐 692 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maquine-1477429468
+
+- **Terreno Residencial em Maquiné**
+  - 💰 R$ 797.000 | 📐 331 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maquine-1477429422
+
+- **Terreno Residencial em Maquiné**
+  - 💰 R$ 2.953.000 | 📐 984 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maquine-1477429054
+
+- **Terreno Residencial em Maquiné**
+  - 💰 R$ 976.000 | 📐 406 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maquine-1477428919
+
+- **Terreno Residencial em Maquiné**
+  - 💰 R$ 1.731.000 | 📐 618 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maquine-1477428921
+
+- **Terreno Residencial em Maquiné**
+  - 💰 R$ 1.402.000 | 📐 500 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maquine-1477426195
+
+- **Terreno Residencial em Maquiné**
+  - 💰 R$ 1.431.000 | 📐 511 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maquine-1477426000
+
+- **Terreno Residencial em Maquiné**
+  - 💰 R$ 2.486.000 | 📐 828 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maquine-1477425699
+
+- **Terreno Residencial em Maquiné**
+  - 💰 R$ 4.038.000 | 📐 1345 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maquine-1477425515
+
+- **Vendo casa,passando o balneario de maquine**
+  - 💰 R$ 68.000 | 📐 800 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-casa-passando-o-balneario-de-maquine-1477401294
+
+- **Terreno a venda próximo a avenida em Imbé/RS**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-proximo-a-avenida-em-imbe-rs-1477386136
+
+- **Chácara em taquari rs**
+  - 💰 R$ 270.000 | 📐 20000 m²
+  - 📍  — Taquari
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-em-taquari-rs-1477302901
+
+- **Terrenos em Igrejinha com escritura**
+  - 💰 R$ 120.000 | 📐 16000 m²
+  - 📍  — Igrejinha
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-em-igrejinha-com-escritura-1342735599
+
+- **Sítio à Venda em Três Coroas!**
+  - 💰 R$ 210.000 | 📐 15000 m²
+  - 📍 Centro — Três Coroas
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-a-venda-em-tres-coroas-1477186290
+
+- **Sitio situado a 7 minutos da Esquina de Tapes- RS**
+  - 💰 R$ 850.000 | 📐 200 m²
+  - 📍  — Tapes
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-situado-a-7-minutos-da-esquina-de-tapes-rs-1477157878
+
+- **SÍTIO EM SANTA MARIA DO HERVAL**
+  - 💰 R$ 1.760.000 | 📐 6000 m²
+  - 📍  — Santa Maria do Herval
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-em-santa-maria-do-herval-1476923027
+
+- **Terreno à venda, 600 m² por R$ 205.000,00 - Jardim Olívia - Arroio do **
+  - 💰 R$ 205.000 | 📐 600 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-600-m-por-r-205-000-00-jardim-olivia-arroio-do-sal-rs-1476900097
+
+- **Terreno à venda, 462 m² por R$ 135.000,00 - Bonfim - Santa Cruz do Sul**
+  - 💰 R$ 135.000 | 📐 462 m²
+  - 📍 Bonfim — Santa Cruz do Sul
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-462-m-por-r-135-000-00-bonfim-santa-cruz-do-sul-rs-1476883368
+
+- **Lote residencial à venda, no Condomínio Velas da Marina em Capão da Ca**
+  - 💰 R$ 1.290.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-residencial-a-venda-no-condominio-velas-da-marina-em-capao-da-canoa-1476875418
+
+- **Sítio com 8mil m2 na BR116**
+  - 💰 R$ 350.000 | 📐 8000 m²
+  - 📍 Sertão Santana — Barra do Ribeiro
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-com-8mil-m2-na-br116-1476854303
+
+- **T65 - Excelente terreno de esquina com área de 662 m²**
+  - 💰 R$ 280.000 | 📐 662 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t65-excelente-terreno-de-esquina-com-area-de-662-m-1476727809
+
+- **Vende se terreno**
+  - 💰 R$ 100.000 | 📐 324 m²
+  - 📍  — Riozinho
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vende-se-terreno-1476718782
+
+- **Terreno Amplo (300m²) em Bairro Residencial  Jardim Beira-Mar, Capão d**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-300m-em-bairro-residencial-jardim-beira-mar-capao-da-canoa-rs-1476712122
+
+- **Pousada Camélias Brancas**
+  - 💰 R$ 950.000 | 📐 29000000 m²
+  - 📍  — Caraá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pousada-camelias-brancas-1476711834
+
+- **OFERTA IMPERDÍVEL!!! Terreno em condomínio fechado!!!**
+  - 💰 R$ 80.000 | 📐 236 m²
+  - 📍  — Osório
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oferta-imperdivel-terreno-em-condominio-fechado-1374648512
+
+- **Área localizada em Maquiné.**
+  - 💰 R$ 52.000 | 📐 800 m²
+  - 📍  — Maquiné
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-localizada-em-maquine-1476661976
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 800.000 | 📐 328 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1476570847
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.300.000 | 📐 426 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1476570721
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.100.000 | 📐 322 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1476570696
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 790.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1476570566
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.100.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1476570569
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.100.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1476570471
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 630.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1476570470
+
+- **Vendo ou troco por moto ou carro ***
+  - 💰 R$ 10.000 | 📐 ? m²
+  - 📍 Área Rural de Camaquã — Camaquã
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-ou-troco-por-moto-ou-carro-1476532562
+
+- **Terreno**
+  - 💰 R$ 120.000 | 📐 ? m²
+  - 📍 Sertão Santana — Barra do Ribeiro
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-1478437354
+
+- **Terreno esquina 24x46 escriturado- Arroio do sal . Balneário Atlântico**
+  - 💰 R$ 260.000 | 📐 1100 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-esquina-24x46-escriturado-arroio-do-sal-balneario-atlantico-1384540728
+
+- **Terreno à venda, 325 m² por R$ 105.000,00 - Praia Azul - Arroio do Sal**
+  - 💰 R$ 105.000 | 📐 325 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-325-m-por-r-105-000-00-praia-azul-arroio-do-sal-rs-1475602389
+
+- **Terreno à venda, 300 m² por R$ 90.000,00 - Balneário Rondinha - Arroio**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-90-000-00-balneario-rondinha-arroio-do-sal-rs-1475602065
+
+- **Terreno São Paulo em Arroio do Sal/RS**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-sao-paulo-em-arroio-do-sal-rs-1475486492
+
+- **Terreno à venda, 302 m² por R$ 55.000,00 - Torres Sul - Arroio do Sal/**
+  - 💰 R$ 55.000 | 📐 303 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-302-m-por-r-55-000-00-torres-sul-arroio-do-sal-rs-1474691254
+
+- **Terreno de barbada em Arroio do sal**
+  - 💰 R$ 200.000 | 📐 489 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-barbada-em-arroio-do-sal-1474516148
+
+- **Lote de 450m² em Arroio do Sal**
+  - 💰 R$ 255.225 | 📐 450 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-450m-em-arroio-do-sal-1439956469
+
+- **Terreno à venda, 528 m² por R$ 200.000,00 - Balneário Tupancy - Arroio**
+  - 💰 R$ 200.000 | 📐 528 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-528-m-por-r-200-000-00-balneario-tupancy-arroio-do-sal-rs-1474136127
+
+- **OPORTUNIDADE  DO MÊS. Terreno 10x30 Balneário Atlântico-Arroio do sal**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-do-mes-terreno-10x30-balneario-atlantico-arroio-do-sal-1401286703
+
+- **Terreno na Figueirinha  Oportunidade para Construir no Litoral**
+  - 💰 R$ 98.000 | 📐 265 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-figueirinha-oportunidade-para-construir-no-litoral-1474024672
+
+- **Terreno no Balneário São Jorge  Ótima Oportunidade para Construir no L**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-balneario-sao-jorge-otima-oportunidade-para-construir-no-litoral-1474024673
+
+- **Terreno de esquina - 400m do mar - Praia Azul (Arroio do Sal)**
+  - 💰 R$ 140.000 | 📐 325 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-400m-do-mar-praia-azul-arroio-do-sal-1465895196
+
+- **Terreno à venda Balneário Atlântico Arroio do Sal/RS**
+  - 💰 R$ 135.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-balneario-atlantico-arroio-do-sal-rs-1473299463
+
+- **Terrenos planos lado a lado em Rondinha Nova**
+  - 💰 R$ 125.000 | 📐 334 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-planos-lado-a-lado-em-rondinha-nova-1473299446
+
+- **Lote 330m² Mar Del Plata - Arroio do Sal/RS**
+  - 💰 R$ 90.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-330m-mar-del-plata-arroio-do-sal-rs-1472534381
+
+- **Terreno em Arroio do sal bairro Jardim Raiante**
+  - 💰 R$ 120.000 | 📐 350 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-arroio-do-sal-bairro-jardim-raiante-1472031607
+
+- **Ótimo terreno! Aterrado e pronto para construir!**
+  - 💰 R$ 145.000 | 📐 250 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-aterrado-e-pronto-para-construir-1471959444
+
+- **Terreno Centro em Arroio do Sal/RS Cód 2042**
+  - 💰 R$ 450.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centro-em-arroio-do-sal-rs-cod-2042-1471184297
+
+- **Terreno à venda, 316 m² por R$ 145.000,00 - Balneário Rondinha - Arroi**
+  - 💰 R$ 145.000 | 📐 317 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-316-m-por-r-145-000-00-balneario-rondinha-arroio-do-sal-rs-1469348046
+
+- **TERRENO À VENDA - BALNEÁRIO RONDINHA VELHA**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-balneario-rondinha-velha-1469285636
+
+- **Terreno Residencial em Balneário São Pedro**
+  - 💰 R$ 399.700 | 📐 593 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-balneario-sao-pedro-1469221161
+
+- **Terrenos na Torres Sul**
+  - 💰 R$ 240.000 | 📐 605 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-na-torres-sul-1469158912
+
+- **2 lotes juntos pra na avenida 12x25 cada lote. Tenho 4 juntos. 1200 mt**
+  - 💰 R$ 320.000 | 📐 600 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/2-lotes-juntos-pra-na-avenida-12x25-cada-lote-tenho-4-juntos-1200-mts-area-total-1334565703
+
+- **Terreno a Venda em Bom Jesus - Arroio do Sal/RS**
+  - 💰 R$ 385.000 | 📐 840 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-bom-jesus-arroio-do-sal-rs-1468880553
+
+- **Terreno São Jorge em Arroio do Sal/RS Cod 1447**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-sao-jorge-em-arroio-do-sal-rs-cod-1447-1468718088
+
+- **Terreno à venda, 360 m² por R$ 45.000,00 - Balneário Pinus Park - Arro**
+  - 💰 R$ 45.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-45-000-00-balneario-pinus-park-arroio-do-sal-rs-1468236016
+
+- **Terreno de 300m² em Arroio do Sal**
+  - 💰 R$ 112.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-300m-em-arroio-do-sal-1468176674
+
+- **2 Terrenos à venda- Balneário Rondinha - Arroio do Sal/RS**
+  - 💰 R$ 371.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/2-terrenos-a-venda-balneario-rondinha-arroio-do-sal-rs-1467714731
+
+- **Terreno à venda, 300 m² por R$ 110.000,00 - Balneário Atlântico - Arro**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-110-000-00-balneario-atlantico-arroio-do-sal-rs-1467710663
+
+- **Terreno à venda, 360 m² por R$ 107.000,00 - Balneário Pinus Park - Arr**
+  - 💰 R$ 107.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-107-000-00-balneario-pinus-park-arroio-do-sal-rs-1467707693
+
+- **Terreno à venda, 360 m² por R$ 68.000,00 - Balneário Pinus Park - Arro**
+  - 💰 R$ 68.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-68-000-00-balneario-pinus-park-arroio-do-sal-rs-1467707222
+
+- **2 Terrenos à venda, - Balneário Rondinha - Arroio do Sal/RS**
+  - 💰 R$ 371.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/2-terrenos-a-venda-balneario-rondinha-arroio-do-sal-rs-1467700324
+
+- **Terreno à venda, 300 m² por R$ 277.000,00 - Balneário Rondinha - Arroi**
+  - 💰 R$ 277.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-277-000-00-balneario-rondinha-arroio-do-sal-rs-1467697118
+
+- **Terreno à venda, 760 m² por R$ 130.000,00 - Balneário Serra Azul - Arr**
+  - 💰 R$ 130.000 | 📐 760 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-760-m-por-r-130-000-00-balneario-serra-azul-arroio-do-sal-rs-1467697115
+
+- **Terreno à venda, 300 m² por R$ 130.000,00 - Balneário Atlântico - Arro**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-130-000-00-balneario-atlantico-arroio-do-sal-rs-1467697084
+
+- **Terreno à venda, 420 m² por R$ 320.000,00 - Novo Curumim - Terra de Ar**
+  - 💰 R$ 320.000 | 📐 420 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-420-m-por-r-320-000-00-novo-curumim-terra-de-areia-rs-1467697078
+
+- **Terreno à venda, 360 m² por R$ 73.000,00 - Balneário Pinus Park - Arro**
+  - 💰 R$ 73.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-73-000-00-balneario-pinus-park-arroio-do-sal-rs-1467697063
+
+- **Terreno à venda, 450 m² por R$ 200.000,00 - Balneário Pérola - Arroio **
+  - 💰 R$ 200.000 | 📐 450 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-450-m-por-r-200-000-00-balneario-perola-arroio-do-sal-rs-1467697052
+
+- **Terreno à venda, 264 m² por R$ 50.000,00 - Balneário Tupancy - Arroio **
+  - 💰 R$ 50.000 | 📐 264 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-264-m-por-r-50-000-00-balneario-tupancy-arroio-do-sal-rs-1467697058
+
+- **Terreno à venda, 300 m² por R$ 168.000,00 - Balneário Rondinha - Arroi**
+  - 💰 R$ 168.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-168-000-00-balneario-rondinha-arroio-do-sal-rs-1467697051
+
+- **Terreno Residencial em Balneário São Pedro**
+  - 💰 R$ 391.150 | 📐 576 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-balneario-sao-pedro-1467637524
+
+- **Terreno Residencial em Balneário São Pedro**
+  - 💰 R$ 391.150 | 📐 576 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-balneario-sao-pedro-1467636938
+
+- **Terreno Residencial em Balneário Atlântico**
+  - 💰 R$ 320.000 | 📐 540 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-balneario-atlantico-1467636250
+
+- **Terreno Residencial em Balneário São Pedro**
+  - 💰 R$ 391.150 | 📐 576 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-balneario-sao-pedro-1467631553
+
+- **Terreno Rondinha em Arroio do Sal/RS Cód 3073**
+  - 💰 R$ 396.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-rondinha-em-arroio-do-sal-rs-cod-3073-1467232285
+
+- **Terreno à venda, 360 m² por R$ 67.000,00 - Balneário Pinus Park - Arro**
+  - 💰 R$ 67.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-67-000-00-balneario-pinus-park-arroio-do-sal-rs-1466814274
+
+- **TERRENO, LOCALIZADO EM BALN. RONDINHA NOVA, NA QUADRA DO MAR**
+  - 💰 R$ 250.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-localizado-em-baln-rondinha-nova-na-quadra-do-mar-1466790311
+
+- **Terre no de esquina proximo ao mar**
+  - 💰 R$ 110.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terre-no-de-esquina-proximo-ao-mar-1466790279
+
+- **Terreno à venda, 354 m² por R$ 105.000,00 - Balneário Tupancy - Arroio**
+  - 💰 R$ 105.000 | 📐 355 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-354-m-por-r-105-000-00-balneario-tupancy-arroio-do-sal-rs-1466344133
+
+- **4 Terrenos Lada a Lado**
+  - 💰 R$ 150.000 | 📐 390 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/4-terrenos-lada-a-lado-1465718578
+
+- **Excelente oportunidade em Rondinha Nova!**
+  - 💰 R$ 130.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-oportunidade-em-rondinha-nova-1465671201
+
+- **Terreno para investimento à venda, 360 m² por R$ 45.000 - Balneário Pi**
+  - 💰 R$ 45.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-investimento-a-venda-360-m-por-r-45-000-balneario-pinus-park-arroio-do-1465502560
+
+- **Terreno à venda, 360 m² por R$ 139.000,00 - Bom Jesus - Arroio do Sal/**
+  - 💰 R$ 139.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-139-000-00-bom-jesus-arroio-do-sal-rs-1465263618
+
+- **Terreno à venda, 360 m² por R$ 139.000,00 - Bom Jesus - Arroio do Sal/**
+  - 💰 R$ 139.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-139-000-00-bom-jesus-arroio-do-sal-rs-1465263045
+
+- **Terreno à venda, 300 m² - Balneário Atlântico - Arroio do Sal/RS**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-balneario-atlantico-arroio-do-sal-rs-1464919108
+
+- **Terreno à venda, 300 m² - Balneário Atlântico - Arroio do Sal/RS**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-balneario-atlantico-arroio-do-sal-rs-1464918859
+
+- **Terreno à venda, 330 m² - Balneário Atlântico - Arroio do Sal/RS**
+  - 💰 R$ 120.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-330-m-balneario-atlantico-arroio-do-sal-rs-1464918789
+
+- **Terreno Sereia do Mar Arroio do Sal**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-sereia-do-mar-arroio-do-sal-1464894958
+
+- **Terreno à venda, 300 m² por R$ 125.000,00 - Balneário Atlântico - Arro**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-125-000-00-balneario-atlantico-arroio-do-sal-rs-1464579574
+
+- **Terreno à venda, 360 m² por R$ 160.000,00 - Novo Curumim - Terra de Ar**
+  - 💰 R$ 160.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-160-000-00-novo-curumim-terra-de-areia-rs-1464578746
+
+- **Terreno à venda, 300 m² por R$ 90.750,00 - Balneário Atlântico - Arroi**
+  - 💰 R$ 90.750 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-90-750-00-balneario-atlantico-arroio-do-sal-rs-1464578247
+
+- **Terreno à venda, 360 m² por R$ 160.000,00 - Balneário Pinus Park - Arr**
+  - 💰 R$ 160.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-160-000-00-balneario-pinus-park-arroio-do-sal-rs-1464578160
+
+- **Terreno à venda, 300 m² por R$ 130.000,00 - Balneário Atlântico - Arro**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-130-000-00-balneario-atlantico-arroio-do-sal-rs-1464577909
+
+- **Terreno à venda, 360 m² por R$ 160.000,00 - Novo Curumim - Terra de Ar**
+  - 💰 R$ 160.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-160-000-00-novo-curumim-terra-de-areia-rs-1464577911
+
+- **Terreno à venda, 300 m² por R$ 90.000,00 - Balneário Atlântico - Arroi**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-90-000-00-balneario-atlantico-arroio-do-sal-rs-1464577826
+
+- **Terreno à venda, 300 m² por R$ 96.000,00 - Balneário Atlântico - Arroi**
+  - 💰 R$ 96.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-96-000-00-balneario-atlantico-arroio-do-sal-rs-1464577829
+
+- **Terreno à venda, 300 m² por R$ 90.000,00 - Balneário Atlântico - Arroi**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-90-000-00-balneario-atlantico-arroio-do-sal-rs-1464577769
+
+- **Terreno à venda, 300 m² por R$ 90.750,00 - Balneário Atlântico - Arroi**
+  - 💰 R$ 90.750 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-90-750-00-balneario-atlantico-arroio-do-sal-rs-1464577768
+
+- **Terreno à venda, 360 m² por R$ 95.000,00 - Balneário Pinus Park - Arro**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-95-000-00-balneario-pinus-park-arroio-do-sal-rs-1464577702
+
+- **Terreno à venda, 330 m² - Arroio Seco - Arroio do Sal/RS**
+  - 💰 R$ 95.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-330-m-arroio-seco-arroio-do-sal-rs-1464577703
+
+- **Área com 41,42 Hectares**
+  - 💰 R$ 12.300.000 | 📐 414200 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-com-41-42-hectares-1464461547
+
+- **Terreno à venda, 540 m² - Balneário Atlântico - Arroio do Sal/RS**
+  - 💰 R$ 310.000 | 📐 540 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-540-m-balneario-atlantico-arroio-do-sal-rs-1463874032
+
+- **Terreno à venda, 300 m² por R$ 80.000,00 - Balneário Alfa - Arroio do **
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-80-000-00-balneario-alfa-arroio-do-sal-rs-1463873216
+
+- **Terreno à venda, 300 m² por R$ 80.000,00 - Balneário Alfa - Arroio do **
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-80-000-00-balneario-alfa-arroio-do-sal-rs-1463873204
+
+- **Terreno à venda, 300 m² por R$ 162.000,00 - Centro - Arroio do Sal/RS**
+  - 💰 R$ 162.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-162-000-00-centro-arroio-do-sal-rs-1463873209
+
+- **Terreno Balneário Arroio Seco, praia Colônia.**
+  - 💰 R$ 191.000 | 📐 520 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-balneario-arroio-seco-praia-colonia-1463873152
+
+- **Terreno à venda, 300 m² por R$ 80.000,00 - Balneário Alfa - Arroio do **
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-80-000-00-balneario-alfa-arroio-do-sal-rs-1463873006
+
+- **Terreno à venda, 450 m² por R$ 212.000,00 - Vista Alegre - Arroio do S**
+  - 💰 R$ 212.000 | 📐 450 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-450-m-por-r-212-000-00-vista-alegre-arroio-do-sal-rs-1463872831
+
+- **Terreno à venda, 396 m² por R$ 105.000,00 - Balneário Tupancy - Arroio**
+  - 💰 R$ 105.000 | 📐 396 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-396-m-por-r-105-000-00-balneario-tupancy-arroio-do-sal-rs-1463872514
+
+- **Terreno à venda, 300 m² por R$ 96.000,00 - Balneário Atlântico - Arroi**
+  - 💰 R$ 96.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-96-000-00-balneario-atlantico-arroio-do-sal-rs-1463675333
+
+- **Terreno à venda, 360 m² por R$ 80.000,00 - Balneário Pinus Park - Arro**
+  - 💰 R$ 80.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-80-000-00-balneario-pinus-park-arroio-do-sal-rs-1463674363
+
+- **Terreno à venda em Arroio do Sal**
+  - 💰 R$ 140.000 | 📐 100 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-arroio-do-sal-1463120382
+
+- **Terreno Tupancy em Arroio do Sal/RS Cód 3085**
+  - 💰 R$ 120.000 | 📐 354 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-tupancy-em-arroio-do-sal-rs-cod-3085-1460765285
+
+- **Terreno à venda Rondinha Nova Arroio do Sal/RS**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-rondinha-nova-arroio-do-sal-rs-1460615916
+
+- **TERRENO LOCALIZADO TORRES SUL À 60 M DO MAR, ÓTIMA LOCALIZAÇÃO EM ATÉ **
+  - 💰 R$ 155.000 | 📐 363 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-localizado-torres-sul-60-m-do-mar-otima-localizacao-em-ate-60x-1460172248
+
+- **Terreno à venda, 300 m² por R$ 70.000,00 - Balneário Rondinha - Arroio**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-70-000-00-balneario-rondinha-arroio-do-sal-rs-1460095371
+
+- **Terreno em Balneário São Pedro**
+  - 💰 R$ 619.717 | 📐 606 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-sao-pedro-1459910257
+
+- **Area para Venda - 10650m², 0 dormitórios, Balneário Atlântico**
+  - 💰 R$ 1.600.000 | 📐 10651 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-para-venda-10650m-0-dormitorios-balneario-atlantico-1459910092
+
+- **Terreno em Figueirinha**
+  - 💰 R$ 2.200.000 | 📐 12501 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-figueirinha-1459909678
+
+- **Terreno à venda, 360 m² por R$ 73.000,00 - Balneário Pinus Park - Arro**
+  - 💰 R$ 73.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-73-000-00-balneario-pinus-park-arroio-do-sal-rs-1459703177
+
+- **Chácara à venda, 200000 m² - Arroio do Sal - Arroio do Sal/RS**
+  - 💰 R$ 4.500.000 | 📐 200000 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-a-venda-200000-m-arroio-do-sal-arroio-do-sal-rs-1459702819
+
+- **Terreno à venda, 390 m² por R$ 110.000,00 - Quatro Lagos - Arroio do S**
+  - 💰 R$ 110.000 | 📐 390 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-390-m-por-r-110-000-00-quatro-lagos-arroio-do-sal-rs-1459702161
+
+- **Terreno à venda, 720 m² por R$ 138.000,00 - Balneário Pinus Park - Arr**
+  - 💰 R$ 138.000 | 📐 720 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-720-m-por-r-138-000-00-balneario-pinus-park-arroio-do-sal-rs-1459701127
+
+- **Terreno à venda, 330 m² no Loteamento Mar Del Plata Arroio Seco - Arro**
+  - 💰 R$ 84.900 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-330-m-no-loteamento-mar-del-plata-arroio-seco-arroio-do-sal-rs-1459701121
+
+- **Terreno Serra Azul em Arroio do Sal/RS Cód 3098**
+  - 💰 R$ 168.000 | 📐 291 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-serra-azul-em-arroio-do-sal-rs-cod-3098-1458867389
+
+- **Terreno Quatro Lagos em Arroio do Sal/RS Cód 3112**
+  - 💰 R$ 85.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-quatro-lagos-em-arroio-do-sal-rs-cod-3112-1457872746
+
+- **Terreno São Jorge em Arroio do Sal/RS Cód 3110**
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-sao-jorge-em-arroio-do-sal-rs-cod-3110-1457872741
+
+- **Terreno à venda, 342 m² por R$ 97.000,00 - Arroio Seco - Arroio do Sal**
+  - 💰 R$ 97.000 | 📐 342 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-342-m-por-r-97-000-00-arroio-seco-arroio-do-sal-rs-1457743666
+
+- **Chácara à venda, 3282 m² - Estancia do Meio - Arroio do Sal/RS**
+  - 💰 R$ 600.000 | 📐 3282 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-a-venda-3282-m-estancia-do-meio-arroio-do-sal-rs-1457143907
+
+- **Terreno à venda, 300 m² por R$ 77.000,00 - Balneário Rondinha - Arroio**
+  - 💰 R$ 77.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-77-000-00-balneario-rondinha-arroio-do-sal-rs-1457143914
+
+- **Terreno à venda, 300 m² por R$ 86.400,00 - Balneário Atlântico - Arroi**
+  - 💰 R$ 86.400 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-86-400-00-balneario-atlantico-arroio-do-sal-rs-1456845432
+
+- **Terreno com ótima posição solar no Balneário Pérola, ideal para constr**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-otima-posicao-solar-no-balneario-perola-ideal-para-construir-e-investir-1456151228
+
+- **Terreno na Estrela do Mar 150 Metro do Mar**
+  - 💰 R$ 160.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-estrela-do-mar-150-metro-do-mar-1453836755
+
+- **Terreno à venda, 360 m² por R$ 60.000,00 - Balneário Pinus Park - Arro**
+  - 💰 R$ 60.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-60-000-00-balneario-pinus-park-arroio-do-sal-rs-1453824705
+
+- **Terreno em Arroio do Sal RS**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-arroio-do-sal-rs-1453453114
+
+- **Terreno Quadra Mar Arroio do Sal**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-quadra-mar-arroio-do-sal-1451726071
+
+- **Área Rural**
+  - 💰 R$ 7.200.000 | 📐 80 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-rural-1451461691
+
+- **Terreno à venda, 360 m² por R$ 95.000,00 - Balneário Pinus Park - Arro**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-95-000-00-balneario-pinus-park-arroio-do-sal-rs-1451150182
+
+- **Terreno em Condomínio à venda Rua Francisco da Silva Matos, Balneário **
+  - 💰 R$ 310.062 | 📐 492 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-francisco-da-silva-matos-balneario-sao-pedro-arroio-d-1450973983
+
+- **Terreno em Condomínio à venda Rua Francisco da Silva Matos, Balneário **
+  - 💰 R$ 845.625 | 📐 874 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-francisco-da-silva-matos-balneario-sao-pedro-arroio-d-1450963473
+
+- **Terreno em Condomínio à venda Rua Francisco da Silva Matos, Balneário **
+  - 💰 R$ 856.900 | 📐 1410 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-francisco-da-silva-matos-balneario-sao-pedro-arroio-d-1450961408
+
+- **Terreno em Condomínio à venda Rua Francisco da Silva Matos, Balneário **
+  - 💰 R$ 280.747 | 📐 450 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-francisco-da-silva-matos-balneario-sao-pedro-arroio-d-1450961076
+
+- **Terreno em Condomínio à venda Rua Francisco da Silva Matos, Balneário **
+  - 💰 R$ 540.072 | 📐 639 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-francisco-da-silva-matos-balneario-sao-pedro-arroio-d-1450959856
+
+- **Terreno em Condomínio à venda Rua Francisco da Silva Matos, Balneário **
+  - 💰 R$ 290.895 | 📐 474 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-francisco-da-silva-matos-balneario-sao-pedro-arroio-d-1450959863
+
+- **Terreno com posição solar privilegiada no Balneário Âncora**
+  - 💰 R$ 105.000 | 📐 296 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-posicao-solar-privilegiada-no-balneario-ancora-1448869114
+
+- **Terreno à venda Rondinha Plano B Arroio do Sal/RS**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-rondinha-plano-b-arroio-do-sal-rs-1446877002
+
+- **Terreno à venda Jardim Olívia Norte Arroio do Sal/RS**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-jardim-olivia-norte-arroio-do-sal-rs-1446091248
+
+- **Terreno à venda, 300 m² por R$ 110.000,00 - Novo Curumim - Terra de Ar**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-110-000-00-novo-curumim-terra-de-areia-rs-1444790738
+
+- **Terreno Malinsky em Arroio do Sal/RS Cód 3021**
+  - 💰 R$ 280.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-malinsky-em-arroio-do-sal-rs-cod-3021-1444769392
+
+- **Excelente Oportunidade de Investimento em Arroio do Sal**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-oportunidade-de-investimento-em-arroio-do-sal-1443863714
+
+- **Terreno Sereia do Mar em Arroio do Sal/RS Cód 80**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-sereia-do-mar-em-arroio-do-sal-rs-cod-80-1441156941
+
+- **Lagoa do Camboim**
+  - 💰 R$ 225.000 | 📐 468 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lagoa-do-camboim-1441151922
+
+- **Terreno São Pedro em Arroio do Sal/RS Cód 1511**
+  - 💰 R$ 126.000 | 📐 340 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-sao-pedro-em-arroio-do-sal-rs-cod-1511-1441151406
+
+- **Terrenos em Condomínio - Arroio do Sal**
+  - 💰 R$ 403.208 | 📐 500 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-em-condominio-arroio-do-sal-1440841865
+
+- **Terreno ARROIO TEIXEIRA (DISTRITO) CAPÃO DA CANOA**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-arroio-teixeira-distrito-capao-da-canoa-1438141761
+
+- **Terreno Centro em Arroio do Sal/RS Cód 1300**
+  - 💰 R$ 200.000 | 📐 740 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centro-em-arroio-do-sal-rs-cod-1300-1437957957
+
+- **Área com 102.000 m² em Terra de areia / Litoral Norte - Rio Grande do **
+  - 💰 R$ 6.500.000 | 📐 102000 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-com-102-000-m-em-terra-de-areia-litoral-norte-rio-grande-do-sul-1437886709
+
+- **Verdemar Novo Curumim  Seu lugar à beira-mar!**
+  - 💰 R$ 191.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/verdemar-novo-curumim-seu-lugar-a-beira-mar-1435841547
+
+- **Chácara com 3 dormitórios à venda, 2400 m² por R$ 1.000.000,00 - Arroi**
+  - 💰 R$ 1.000.000 | 📐 100 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-com-3-dormitorios-a-venda-2400-m-por-r-1-000-000-00-arroio-do-sal-arroio-do-1433236467
+
+- **Terreno à venda, 360 m² por R$ 75.000,00 - Balneário Pinus Park - Arro**
+  - 💰 R$ 75.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-75-000-00-balneario-pinus-park-arroio-do-sal-rs-1433231321
+
+- **Terreno à venda, 390 m² por R$ 170.000,00 - Quatro Lagos - Arroio do S**
+  - 💰 R$ 170.000 | 📐 390 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-390-m-por-r-170-000-00-quatro-lagos-arroio-do-sal-rs-1433231299
+
+- **Terreno à venda, 288 m² por R$ 168.000,00 - Balneário Serra Azul - Arr**
+  - 💰 R$ 168.000 | 📐 288 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-288-m-por-r-168-000-00-balneario-serra-azul-arroio-do-sal-rs-1433229984
+
+- **Terreno à venda, 312 m² por R$ 135.000,00 - Praia Azul - Arroio do Sal**
+  - 💰 R$ 135.000 | 📐 313 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-312-m-por-r-135-000-00-praia-azul-arroio-do-sal-rs-1433229676
+
+- **Terreno à venda, 390 m² por R$ 170.000,00 - Quatro Lagos - Arroio do S**
+  - 💰 R$ 170.000 | 📐 390 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-390-m-por-r-170-000-00-quatro-lagos-arroio-do-sal-rs-1433229500
+
+- **Terreno Figueirinha em Arroio do Sal/RS Cód 1723**
+  - 💰 R$ 95.000 | 📐 250 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-figueirinha-em-arroio-do-sal-rs-cod-1723-1432021875
+
+- **Terreno Figueirinha em Arroio do Sal/RS Cód 173**
+  - 💰 R$ 95.000 | 📐 250 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-figueirinha-em-arroio-do-sal-rs-cod-173-1432019166
+
+- **Terreno Loteamento Esmeralda**
+  - 💰 R$ 195.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-loteamento-esmeralda-1431642330
+
+- **Terreno na Rondinha**
+  - 💰 R$ 130.000 | 📐 299 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-rondinha-1430586122
+
+- **Terreno de 330 m² em Arroio do Sal**
+  - 💰 R$ 105.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-330-m-em-arroio-do-sal-1429925209
+
+- **Venda TERRENO ARROIO DO SAL RS Brasil**
+  - 💰 R$ 60.000 | 📐 280 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-terreno-arroio-do-sal-rs-brasil-1427254121
+
+- **Venda TERRENO ARROIO DO SAL RS Brasil**
+  - 💰 R$ 50.000 | 📐 290 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-terreno-arroio-do-sal-rs-brasil-1427254005
+
+- **Terreno Torres sul**
+  - 💰 R$ 80.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-torres-sul-1423954712
+
+- **Terreno à venda Serra Azul Arroio do Sal/RS**
+  - 💰 R$ 168.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-serra-azul-arroio-do-sal-rs-1423521428
+
+- **Terreno à venda Balneário Alfa Arroio do Sal/RS**
+  - 💰 R$ 118.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-balneario-alfa-arroio-do-sal-rs-1422314618
+
+- **Terreno frente leste**
+  - 💰 R$ 102.850 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-leste-1422313684
+
+- **Excelente Terreno a 75 metros do mar em Arroio do Sal/RS**
+  - 💰 R$ 175.000 | 📐 299 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-a-75-metros-do-mar-em-arroio-do-sal-rs-1419232894
+
+- **Terreno Amplo Frente Norte**
+  - 💰 R$ 150.000 | 📐 437 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-frente-norte-1416412141
+
+- **Terreno Camboim em Arroio do Sal/RS Cód 215**
+  - 💰 R$ 150.000 | 📐 340 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-camboim-em-arroio-do-sal-rs-cod-215-1413219638
+
+- **Terreno Vista Alegre em Arroio do Sal/RS Cód 489**
+  - 💰 R$ 250.000 | 📐 390 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-vista-alegre-em-arroio-do-sal-rs-cod-489-1413214429
+
+- **Terreno Sao Pedro Arroio do Sal**
+  - 💰 R$ 215.000 | 📐 315 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-sao-pedro-arroio-do-sal-1413191440
+
+- **Terreno Amplo Frente Sul**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-frente-sul-1413135736
+
+- **Terreno na Rondinha Nova - Frente Sul - 100m do Posto de Saúde**
+  - 💰 R$ 85.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-rondinha-nova-frente-sul-100m-do-posto-de-saude-1410880622
+
+- **Terreno no bairro Balneário Atlântico**
+  - 💰 R$ 210.000 | 📐 792 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-balneario-atlantico-1409254486
+
+- **Terreno de 576 m² de frente para o lago no Condomínio Residencial Parq**
+  - 💰 R$ 460.800 | 📐 576 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-576-m-de-frente-para-o-lago-no-condominio-residencial-parque-das-figueiras-1409251159
+
+- **Terreno na Rondinha Nova - Av. Rondinha. Frente Leste**
+  - 💰 R$ 110.000 | 📐 299 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-rondinha-nova-av-rondinha-frente-leste-1408985612
+
+- **Condomínio de Terrenos Residenciais**
+  - 💰 R$ 239.000 | 📐 458 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-de-terrenos-residenciais-1358128539
+
+- **Terreno Âncora em Arroio do Sal/RS Cód 373**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-ancora-em-arroio-do-sal-rs-cod-373-1405486360
+
+- **Terreno Camboim em Arroio do Sal/RS Cód 623**
+  - 💰 R$ 155.000 | 📐 480 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-camboim-em-arroio-do-sal-rs-cod-623-1404492661
+
+- **Terreno na Torres Sul**
+  - 💰 R$ 130.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-torres-sul-1403718371
+
+- **Terreno Âncora em Arroio do Sal/RS Cód 402**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-ancora-em-arroio-do-sal-rs-cod-402-1403388130
+
+- **Terreno Loteamento Esmeralda em Arroio do Sal/RS Cód 1640**
+  - 💰 R$ 299.000 | 📐 362 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-loteamento-esmeralda-em-arroio-do-sal-rs-cod-1640-1403388087
+
+- **Terreno Bom Jesus em Arroio do Sal/RS**
+  - 💰 R$ 175.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bom-jesus-em-arroio-do-sal-rs-1403388103
+
+- **Página 1 Imóveis anuncia ótima opção de terreno à venda no bairro Cent**
+  - 💰 R$ 2.750.000 | 📐 14 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pagina-1-imoveis-anuncia-otima-opcao-de-terreno-a-venda-no-bairro-centro-em-arroio-do-sal-1403242500
+
+- **Terreno Arroio do Sal Sul em Arroio do Sal/RS Cód:1757**
+  - 💰 R$ 165.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-arroio-do-sal-sul-em-arroio-do-sal-rs-cod-1757-1401472269
+
+- **Terreno Jardim Olívia em Arroio do Sal/RS Cód 176**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-jardim-olivia-em-arroio-do-sal-rs-cod-176-1399489463
+
+- **Terreno Centro em Arroio do Sal/RS Cód 197**
+  - 💰 R$ 170.000 | 📐 375 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centro-em-arroio-do-sal-rs-cod-197-1399488998
+
+- **Terreno Balneário Atlântico em Arroio do Sal/RS Cód 594**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-balneario-atlantico-em-arroio-do-sal-rs-cod-594-1397496064
+
+- **Terreno à venda Praia Azul Arroio do Sal/RS**
+  - 💰 R$ 260.000 | 📐 600 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-azul-arroio-do-sal-rs-1396665495
+
+- **Terreno Torres Sul em Arroio do Sal/RS Cód 397**
+  - 💰 R$ 110.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-torres-sul-em-arroio-do-sal-rs-cod-397-1395835695
+
+- **Terreno Figueirinha em Arroio do Sal/RS Cód 151**
+  - 💰 R$ 90.000 | 📐 250 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-figueirinha-em-arroio-do-sal-rs-cod-151-1395832188
+
+- **Terreno Figueirinha em Arroio do Sal/RS Cód 561**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-figueirinha-em-arroio-do-sal-rs-cod-561-1395832113
+
+- **Arroio do Sal - RS - Código 56 Terreno Balneário Atlântico**
+  - 💰 R$ 165.000 | 📐 319 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/arroio-do-sal-rs-codigo-56-terreno-balneario-atlantico-1395829786
+
+- **Terreno Torres Sul em Arroio do Sal/RS Cód 1598**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-torres-sul-em-arroio-do-sal-rs-cod-1598-1395829475
+
+- **Terreno Alfa em Arroio do Sal/RS Cód 1372**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-alfa-em-arroio-do-sal-rs-cod-1372-1395829418
+
+- **Terreno Camboim em Arroio do Sal/RS Cód: 1729**
+  - 💰 R$ 145.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-camboim-em-arroio-do-sal-rs-cod-1729-1395829062
+
+- **Terreno no Arroio do Sal Sul em Arroio do Sal/RS Cód: 1691**
+  - 💰 R$ 180.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-arroio-do-sal-sul-em-arroio-do-sal-rs-cod-1691-1393796557
+
+- **Terreno à venda Areias Brancas Arroio do Sal/RS**
+  - 💰 R$ 175.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-areias-brancas-arroio-do-sal-rs-1393469413
+
+- **Terreno na Torres Sul**
+  - 💰 R$ 160.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-torres-sul-1392224369
+
+- **Terreno em Arroio Seco/RS**
+  - 💰 R$ 84.900 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-arroio-seco-rs-1391815414
+
+- **Página 1 Imóveis anuncia "terreno" em localização privilegiada para ve**
+  - 💰 R$ 9.000.000 | 📐 102000 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pagina-1-imoveis-anuncia-terreno-em-localizacao-privilegiada-para-venda-no-bairro-centro-1387623985
+
+- **Terreno Frente Mar**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-mar-1386614675
+
+- **Terreno Frente Mar**
+  - 💰 R$ 235.000 | 📐 313 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-mar-1386287350
+
+- **Terreno Frente Mar**
+  - 💰 R$ 220.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-mar-1386286068
+
+- **Terreno Figueirinha - Arroio do Sal/RS Cód: 1651**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-figueirinha-arroio-do-sal-rs-cod-1651-1385973978
+
+- **Terreno na Rondinha Nova**
+  - 💰 R$ 265.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-rondinha-nova-1383958596
+
+- **Terreno em loteamento perto do mar, Arroio do Sal/RS**
+  - 💰 R$ 90.425 | 📐 10 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-loteamento-perto-do-mar-arroio-do-sal-rs-1378225843
+
+- **TERRENO/LOTE DE 489 M² DE ESQUINA, NO LOTEAMENTO ESMERALDA NA PRAIA DO**
+  - 💰 R$ 201.400 | 📐 489 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-de-489-m-de-esquina-no-loteamento-esmeralda-na-praia-do-arroio-do-sal-rio-1376255665
+
+- **Terreno Jardim Olivia**
+  - 💰 R$ 140.000 | 📐 299 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-jardim-olivia-1376100153
+
+- **Lotes no Litoral - 300m² cada - Balneário Atlântico - Arroio do Sal/RS**
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lotes-no-litoral-300m-cada-balneario-atlantico-arroio-do-sal-rs-1372129984
+
+- **Terreno à venda Jardim Olívia Norte Arroio do Sal/RS**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-jardim-olivia-norte-arroio-do-sal-rs-1371762327
+
+- **Terreno à venda Rondinha Nova Arroio do Sal/RS**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-rondinha-nova-arroio-do-sal-rs-1370440631
+
+- **TERRENO PRONTO PARA CONSTRUIR EM BALN. ALFA**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-pronto-para-construir-em-baln-alfa-1368133465
+
+- **Terreno à Venda em Arroio do Sal - 324 m² | Aceita Financiamento**
+  - 💰 R$ 110.000 | 📐 324 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-arroio-do-sal-324-m-aceita-financiamento-1366784889
+
+- **Terreno a venda Loteamento Residencial Esmeralda**
+  - 💰 R$ 195.000 | 📐 490 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-loteamento-residencial-esmeralda-1365085719
+
+- **Ótimo Terreno na Av. Interprais no Loteamento Esmeralda: Ideal para se**
+  - 💰 R$ 175.000 | 📐 399 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-na-av-interprais-no-loteamento-esmeralda-ideal-para-seu-investimento-1363860067
+
+- **Oportunidade no Tupancy: terreno bem localizado a 800m do mar**
+  - 💰 R$ 110.000 | 📐 354 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-no-tupancy-terreno-bem-localizado-a-800m-do-mar-1363761974
+
+- **Terreno Amplo com Excelente Acesso**
+  - 💰 R$ 170.000 | 📐 390 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-com-excelente-acesso-1363760008
+
+- **Invista no Seu Futuro em Arroio do Sal**
+  - 💰 R$ 195.000 | 📐 308 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/invista-no-seu-futuro-em-arroio-do-sal-1363742063
+
+- **Terreno Camboim em Arroio do Sal/RS Cód 1546**
+  - 💰 R$ 220.000 | 📐 510 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-camboim-em-arroio-do-sal-rs-cod-1546-1355935886
+
+- **Terreno Balneário Camboim em Arroio do Sal/RS Cód 1545**
+  - 💰 R$ 220.000 | 📐 510 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-balneario-camboim-em-arroio-do-sal-rs-cod-1545-1355935838
+
+- **Terreno Camboim em Arroio do Sal/RS Cód 1548**
+  - 💰 R$ 220.000 | 📐 510 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-camboim-em-arroio-do-sal-rs-cod-1548-1355935794
+
+- **Terreno Camboim em Arroio do Sal/RS Cód 1547**
+  - 💰 R$ 220.000 | 📐 510 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-camboim-em-arroio-do-sal-rs-cod-1547-1355935769
+
+- **Terreno a Venda no bairro Centro - Arroio do Sal, RS**
+  - 💰 R$ 8.900.000 | 📐 102000 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-centro-arroio-do-sal-rs-1354586612
+
+- **Terreno no Balneário Rondinha em Arroio do Sal**
+  - 💰 R$ 107.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-balneario-rondinha-em-arroio-do-sal-1353793042
+
+- **Terrenos Camboim em Arroio do Sal/RS Cód 1146**
+  - 💰 R$ 285.000 | 📐 768 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-camboim-em-arroio-do-sal-rs-cod-1146-1350954565
+
+- **Terreno de esquina**
+  - 💰 R$ 140.000 | 📐 325 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-1350666528
+
+- **TERRENO NO RESIDENCIAL PARQUE DAS FIGUEIRAS EM ARROIO DO SAL**
+  - 💰 R$ 550.000 | 📐 1289 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-residencial-parque-das-figueiras-em-arroio-do-sal-1347384774
+
+- **Terreno Praia Azul em Arroio do Sal/RS Cód 511**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-azul-em-arroio-do-sal-rs-cod-511-1346072880
+
+- **Terreno Figueirinha em Arroio do Sal/RS Cód 169**
+  - 💰 R$ 250.000 | 📐 370 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-figueirinha-em-arroio-do-sal-rs-cod-169-1344438714
+
+- **Imóvel para venda com 300 metros quadrados em Figueirinha - Arroio do **
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-300-metros-quadrados-em-figueirinha-arroio-do-sal-rs-1344254626
+
+- **Imóvel para venda com 283 metros quadrados em Figueirinha - Arroio do **
+  - 💰 R$ 220.000 | 📐 283 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-283-metros-quadrados-em-figueirinha-arroio-do-sal-rs-1344254220
+
+- **BENTOALVES vende terreno à 4 quadras do mar, 30mts da Av. Interpraias **
+  - 💰 R$ 175.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/bentoalves-vende-terreno-a-4-quadras-do-mar-30mts-da-av-interpraias-arroio-do-sal-rs-1344254192
+
+- **Imóvel para venda possui 300 metros quadrados em Figueirinha - Arroio **
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-possui-300-metros-quadrados-em-figueirinha-arroio-do-sal-rs-1344252181
+
+- **Terreno Alfa/RS Cód 1480**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-alfa-rs-cod-1480-1344228061
+
+- **Terreno Figueirinha/RS Cód 1474**
+  - 💰 R$ 80.000 | 📐 264 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-figueirinha-rs-cod-1474-1344223542
+
+- **Terreno Camboim em Arroio do Sal/RS Cód 57**
+  - 💰 R$ 155.000 | 📐 390 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-camboim-em-arroio-do-sal-rs-cod-57-1341183567
+
+- **Excelentes Terrenos em Arroio do Sal**
+  - 💰 R$ 195.000 | 📐 600 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelentes-terrenos-em-arroio-do-sal-1338628545
+
+- **Terreno Jardim Raiante em Arroio do Sal/RS Cód 332**
+  - 💰 R$ 145.000 | 📐 375 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-jardim-raiante-em-arroio-do-sal-rs-cod-332-1338575763
+
+- **Terreno no loteamento Mar Del Plata, Arroio do Sal, RS**
+  - 💰 R$ 86.900 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-mar-del-plata-arroio-do-sal-rs-1334230951
+
+- **Terreno na Praia da Ancora**
+  - 💰 R$ 175.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-da-ancora-1333149605
+
+- **Terreno na Praia da Ancora**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-da-ancora-1333149112
+
+- **Terreno - Balneário São Jorge CÓD- 1181 Arroio do Sal**
+  - 💰 R$ 265.000 | 📐 350 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-balneario-sao-jorge-cod-1181-arroio-do-sal-1332690986
+
+- **Terreno Balneário São Jorge CÓD- 1026 Arroio do Sal**
+  - 💰 R$ 265.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-balneario-sao-jorge-cod-1026-arroio-do-sal-1332690939
+
+- **Terreno a Venda no bairro Centro - Arroio do Sal, RS**
+  - 💰 R$ 8.900.000 | 📐 102000 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-centro-arroio-do-sal-rs-1329757990
+
+- **Terreno Torres Sul em Arroio do Sal/RS Cód 1327**
+  - 💰 R$ 120.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-torres-sul-em-arroio-do-sal-rs-cod-1327-1329149699
+
+- **Terreno São Jorge em Arroio do Sal/RS Cód 512**
+  - 💰 R$ 320.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-sao-jorge-em-arroio-do-sal-rs-cod-512-1329135956
+
+- **Terreno na Serra Azul**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-serra-azul-1326524157
+
+- **Terreno no Loteamento Esmeralda**
+  - 💰 R$ 160.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-esmeralda-1324710205
+
+- **Terreno no Loteamento Esmeralda**
+  - 💰 R$ 215.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-esmeralda-1324121373
+
+- **Terreno balneário Atlântico em Arroio do Sal/RS Cód 1319**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-balneario-atlantico-em-arroio-do-sal-rs-cod-1319-1323942224
+
+- **Terreno no Balneário Marambaia**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-balneario-marambaia-1323855874
+
+- **Terreno de esquina com 608 m² no  Condomínio Residencial Parque Das Fi**
+  - 💰 R$ 390.000 | 📐 608 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-com-608-m-no-condominio-residencial-parque-das-figueiras-arroio-do-s-1323516693
+
+- **Terreno Figueirinha em Arroio do Sal/RS Cód 1311**
+  - 💰 R$ 95.000 | 📐 265 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-figueirinha-em-arroio-do-sal-rs-cod-1311-1323508788
+
+- **Terreno no Loteamento Sol Nascente**
+  - 💰 R$ 280.000 | 📐 450 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-sol-nascente-1322396176
+
+- **Terreno no Loteamento Sol Nascente**
+  - 💰 R$ 140.000 | 📐 396 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-sol-nascente-1321959762
+
+- **Dois terrenos juntos**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-terrenos-juntos-1318703316
+
+- **Terreno localizado no Balneário Figueirinha em Arroio do Sal - RS**
+  - 💰 R$ 225.000 | 📐 ? m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-localizado-no-balneario-figueirinha-em-arroio-do-sal-rs-1318457205
+
+- **Terreno na Rondinha Nova**
+  - 💰 R$ 90.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-rondinha-nova-1317926039
+
+- **Terreno no Balneário Atlântico**
+  - 💰 R$ 110.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-balneario-atlantico-1317024987
+
+- **Terreno no Balneário Alfa**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-balneario-alfa-1317024897
+
+- **Terreno na Praia Azul**
+  - 💰 R$ 160.000 | 📐 325 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-azul-1317024883
+
+- **Terreno próximo ao mar**
+  - 💰 R$ 96.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-proximo-ao-mar-1317017990
+
+- **Terreno localizado em Baln. Atlântico, há 185m do mar.**
+  - 💰 R$ 128.000 | 📐 312 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-localizado-em-baln-atlantico-ha-185m-do-mar-1317007604
+
+- **Terreno em Balneário Atlântico**
+  - 💰 R$ 93.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-atlantico-1317006209
+
+- **2 Terrenos beira mar**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/2-terrenos-beira-mar-1317005174
+
+- **Terreno Jardim Olivia Norte (escriturado) 10X30 de esquina**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-jardim-olivia-norte-escriturado-10x30-de-esquina-1317005129
+
+- **Terreno em Rondinha**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-rondinha-1316993168
+
+- **Terreno Torres Sul**
+  - 💰 R$ 130.000 | 📐 329 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-torres-sul-1316839437
+
+- **Terreno de esquina na Torres Sul**
+  - 💰 R$ 150.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-na-torres-sul-1316839229
+
+- **Terreno na Torres Sul**
+  - 💰 R$ 105.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-torres-sul-1316818615
+
+- **Terreno em Balneário Atlântico de Esquina**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-atlantico-de-esquina-1316743256
+
+- **Terreno na Serra Azul**
+  - 💰 R$ 120.000 | 📐 297 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-serra-azul-1316743115
+
+- **TERRENO PRONTO PARA CONSTRUIR**
+  - 💰 R$ 125.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-pronto-para-construir-1316742901
+
+- **Lindo Terreno Aterrado**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-aterrado-1316742316
+
+- **Área com 9.000m²**
+  - 💰 R$ 2.200.000 | 📐 9000 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-com-9-000m-1316742287
+
+- **Terreno na Torres Sul**
+  - 💰 R$ 90.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-torres-sul-1316741899
+
+- **Terreno a 400m do mar com rede elétrica**
+  - 💰 R$ 94.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-400m-do-mar-com-rede-eletrica-1316741662
+
+- **Terreno em Balneário Atlântico**
+  - 💰 R$ 97.000 | 📐 311 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-atlantico-1316741648
+
+- **TERRENO DE ESQUINA NA AV INTERPRAIAS**
+  - 💰 R$ 185.500 | 📐 264 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-na-av-interpraias-1316741610
+
+- **Terreno em Balneário Atlântico**
+  - 💰 R$ 85.000 | 📐 288 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-atlantico-1316741594
+
+- **Terreno de esquina**
+  - 💰 R$ 82.500 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-1316741566
+
+- **TERRENO DE ESQUINA BALNEÁRIO ATLÂNTICO**
+  - 💰 R$ 310.000 | 📐 540 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-balneario-atlantico-1316741524
+
+- **Área de terra com 2.800m² na principal entrada da praia**
+  - 💰 R$ 1.800.000 | 📐 2800 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-de-terra-com-2-800m-na-principal-entrada-da-praia-1316741468
+
+- **Terreno muito bem localizado na Rondinha**
+  - 💰 R$ 220.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-muito-bem-localizado-na-rondinha-1316741455
+
+- **Terreno em Balneário Atlântico**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-atlantico-1316741447
+
+- **Terreno a duas quadras do mar (Av. Verde Mar)**
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-duas-quadras-do-mar-av-verde-mar-1316741445
+
+- **Área de terra no centro de Arroio do Sal com 11 lotes juntos**
+  - 💰 R$ 2.000.000 | 📐 3791 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-de-terra-no-centro-de-arroio-do-sal-com-11-lotes-juntos-1316741444
+
+- **DOIS ÓTIMOS TERRENOS, LOCALIZADO EM BALN. RONDINHA NOVA, NA QUADRA DO **
+  - 💰 R$ 250.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-otimos-terrenos-localizado-em-baln-rondinha-nova-na-quadra-do-mar-1316741438
+
+- **Terreno de esquina. Ótimo para investimento**
+  - 💰 R$ 96.800 | 📐 297 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-otimo-para-investimento-1316741426
+
+- **2 lindos terrenos a na primeira quadra do mar**
+  - 💰 R$ 130.000 | 📐 690 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/2-lindos-terrenos-a-na-primeira-quadra-do-mar-1316741410
+
+- **Terreno comercial ou Residencial na AV de Acesso a praia de Balneário **
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-ou-residencial-na-av-de-acesso-a-praia-de-balneario-atlantico-1316741392
+
+- **DOIS TERRENOS LOCALIZADOS EM RONDINHA NOVA ( UM AO LADO DO OUTRO)**
+  - 💰 R$ 100.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-terrenos-localizados-em-rondinha-nova-um-ao-lado-do-outro-1316741253
+
+- **EXCELENTE TERRENO, Á 150M DO MAR**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-a-150m-do-mar-1316741235
+
+- **Terreno a 500 metros do mar**
+  - 💰 R$ 82.500 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-500-metros-do-mar-1316741229
+
+- **3 lotes beira mar em Rondinha do Meio**
+  - 💰 R$ 185.000 | 📐 900 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/3-lotes-beira-mar-em-rondinha-do-meio-1316741220
+
+- **DOIS TERRENO TOTALIZANDO 720M²**
+  - 💰 R$ 145.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-terreno-totalizando-720m-1316741215
+
+- **Terreno na Av Interpraia Norte em Balneário Atlântico**
+  - 💰 R$ 150.000 | 📐 299 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-av-interpraia-norte-em-balneario-atlantico-1316741188
+
+- **Terreno ótimo a apenas 300 metros do mar !**
+  - 💰 R$ 140.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-otimo-a-apenas-300-metros-do-mar-1316741142
+
+- **TERRENO LOCALIZADO EM BALN. RONDINHA NOVA.**
+  - 💰 R$ 100.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-localizado-em-baln-rondinha-nova-1316741138
+
+- **Terreno no Centrinho da Rondinha Nova**
+  - 💰 R$ 120.000 | 📐 299 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-centrinho-da-rondinha-nova-1316741068
+
+- **Terreno de esquina São Jorge**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-sao-jorge-1316741036
+
+- **Terreno em Balneário Atlântico**
+  - 💰 R$ 93.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-atlantico-1316741014
+
+- **Terreno Amplo Frente Norte**
+  - 💰 R$ 115.000 | 📐 437 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-frente-norte-1316741025
+
+- **TERRENO LOCALIZADO EM BALN. ATLÂNTICO 500M DO MAR**
+  - 💰 R$ 87.725 | 📐 357 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-localizado-em-baln-atlantico-500m-do-mar-1316741001
+
+- **Terreno em Balneário Atlântico de esquina**
+  - 💰 R$ 125.000 | 📐 390 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-atlantico-de-esquina-1316741009
+
+- **ÓTIMO TERRENO, LOCALIZADO NO COND. PARQUE DAS FIGUEIRAS EM ARROIO DO S**
+  - 💰 R$ 500.000 | 📐 821 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-localizado-no-cond-parque-das-figueiras-em-arroio-do-sal-1316741011
+
+- **Terreno em Balneário Atlântico**
+  - 💰 R$ 82.500 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-atlantico-1316740988
+
+- **Terreno em Balneário Atlântico**
+  - 💰 R$ 86.900 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-balneario-atlantico-1316740984
+
+- **Ótimo terreno no balneário atlântico**
+  - 💰 R$ 95.000 | 📐 290 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-no-balneario-atlantico-1316740977
+
+- **Terreno de esquina próximo ao mar**
+  - 💰 R$ 140.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-proximo-ao-mar-1316740899
+
+- **Terreno a 400m do mar com rede elétrica**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-400m-do-mar-com-rede-eletrica-1316740910
+
+- **Terreno Centro Arroio do Sal**
+  - 💰 R$ 205.000 | 📐 768 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centro-arroio-do-sal-1315746924
+
+- **Terreno Centro Arroio do Sal**
+  - 💰 R$ 160.000 | 📐 324 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centro-arroio-do-sal-1311186501
+
+- **Arroio do Sal Terreno - Balneário Quatro Lagos CÓD- 845**
+  - 💰 R$ 150.000 | 📐 390 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/arroio-do-sal-terreno-balneario-quatro-lagos-cod-845-1291047548
+
+- **Terreno de esquina a 300m do mar com 360m2 no Centro de Arroio do Sal.**
+  - 💰 R$ 237.500 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-a-300m-do-mar-com-360m2-no-centro-de-arroio-do-sal-1290316521
+
+- **Terreno balneário atlântico em Arroio do Sal/RS Cód 1204**
+  - 💰 R$ 210.000 | 📐 407 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-balneario-atlantico-em-arroio-do-sal-rs-cod-1204-1288976868
+
+- **Terrenos Figueirinha Arroio do Sal/RS Cód 769**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-figueirinha-arroio-do-sal-rs-cod-769-1288500039
+
+- **Terreno Figueirinha em Arroio do Sal/RS Cód 400**
+  - 💰 R$ 715.000 | 📐 317 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-figueirinha-em-arroio-do-sal-rs-cod-400-1288499981
+
+- **Terreno Torres Sul em Arroio do Sal/RS Cód 1036**
+  - 💰 R$ 110.000 | 📐 302 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-torres-sul-em-arroio-do-sal-rs-cod-1036-1288499934
+
+- **Terreno Camboim em Arroio do Sal/RS 122**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-camboim-em-arroio-do-sal-rs-122-1288499894
+
+- **Terreno Areias Brancas em Arroio do Sal/RS Cód 795**
+  - 💰 R$ 175.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-areias-brancas-em-arroio-do-sal-rs-cod-795-1288499804
+
+- **Terreno Quatro Lagos em Arroio do Sal/RS Cód 1092**
+  - 💰 R$ 220.000 | 📐 380 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-quatro-lagos-em-arroio-do-sal-rs-cod-1092-1288499741
+
+- **Arroio do Sal Terreno Bom Jesus - Cód 1060**
+  - 💰 R$ 135.000 | 📐 434 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/arroio-do-sal-terreno-bom-jesus-cod-1060-1288499734
+
+- **Chácara Estância do Meio em Arroio do Sal/RS Cód 82**
+  - 💰 R$ 1.500.000 | 📐 120 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/chacara-estancia-do-meio-em-arroio-do-sal-rs-cod-82-1288499707
+
+- **Terreno Torres Sul em Arroio do Sal/RS Cód 432**
+  - 💰 R$ 135.000 | 📐 330 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-torres-sul-em-arroio-do-sal-rs-cod-432-1288499681
+
+- **Terreno Rondinha em Arroio do Sal/RS Cód 396**
+  - 💰 R$ 90.000 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-rondinha-em-arroio-do-sal-rs-cod-396-1288499637
+
+- **Terreno Quatro Lagos em Arroio do Sal/RS Cód 704**
+  - 💰 R$ 620.000 | 📐 352 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-quatro-lagos-em-arroio-do-sal-rs-cod-704-1288499578
+
+- **Arroio do Sal/RS Cód 1136**
+  - 💰 R$ 152.000 | 📐 360 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/arroio-do-sal-rs-cod-1136-1288499585
+
+- **Terreno Centro em Arroio do Sal/RS Cód 677**
+  - 💰 R$ 1.100.000 | 📐 930 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centro-em-arroio-do-sal-rs-cod-677-1288499571
+
+- **Terreno Pérola em Arroio do Sal/RS Cód 487**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-perola-em-arroio-do-sal-rs-cod-487-1288499572
+
+- **Terreno no litoral**
+  - 💰 R$ 180.000 | 📐 264 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-litoral-1244203205
+
+- **Lote ARROIO DO SAL, Balneário Atlântico, 12 m f X 26 de fundos, escrit**
+  - 💰 R$ 140.000 | 📐 305 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-arroio-do-sal-balneario-atlantico-12-m-f-x-26-de-fundos-escriturado-140-mil-par-1211883789
+
+- **Terreno à venda, Centro, Arroio do Sal, RS**
+  - 💰 R$ 180.000 | 📐 10 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-centro-arroio-do-sal-rs-1210579460
+
+- **Terreno Âncora em Arroio do Sal/RS Cód 266**
+  - 💰 R$ 125.000 | 📐 ? m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-ancora-em-arroio-do-sal-rs-cod-266-1199135310
+
+- **Lote/Terreno para venda tem 300 metros quadrados em Bom Jesus - Arroio**
+  - 💰 R$ 97.900 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-terreno-para-venda-tem-300-metros-quadrados-em-bom-jesus-arroio-do-sal-rs-1198443994
+
+- **Lote/Terreno para venda tem 300 metros quadrados em Pérola - Arroio do**
+  - 💰 R$ 134.900 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-terreno-para-venda-tem-300-metros-quadrados-em-perola-arroio-do-sal-rs-1196407240
+
+- **Condomínio Residencial Parque das Figueiras**
+  - 💰 R$ 295.000 | 📐 822 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-residencial-parque-das-figueiras-1189798030
+
+- **BENTOALVES vende terreno à 5 quadras do mar, Praia da Figueirinha - Ar**
+  - 💰 R$ 175.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/bentoalves-vende-terreno-a-5-quadras-do-mar-praia-da-figueirinha-arroio-do-sal-rs-981773397
+
+- **BENTOALVES vende terreno de esquina, à 6 quadras do mar - Arroio do Sa**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/bentoalves-vende-terreno-de-esquina-a-6-quadras-do-mar-arroio-do-sal-rs-981782258
+
+- **BENTOALVES vende linda esquina, 250m2, Arroio do Sal - RS, 6 quadras d**
+  - 💰 R$ 105.000 | 📐 250 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/bentoalves-vende-linda-esquina-250m2-arroio-do-sal-rs-6-quadras-do-mar-praia-da-figu-982575925
+
+- **Terreno Centro Arroio do Sal**
+  - 💰 R$ 182.500 | 📐 316 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centro-arroio-do-sal-961760590
+
+- **Terreno Centro Arroio do Sal**
+  - 💰 R$ 560.000 | 📐 834 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centro-arroio-do-sal-1099144589
+
+- **Venda de Terreno em Condomínio em Arroio do Sal-RS, bairro Parque das **
+  - 💰 R$ 486.000 | 📐 543 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-de-terreno-em-condominio-em-arroio-do-sal-rs-bairro-parque-das-figueiras-1122380933
+
+- **Terreno Centro Arroio do Sal**
+  - 💰 R$ 330.000 | 📐 576 m²
+  - 📍  — Arroio do Sal
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centro-arroio-do-sal-1067337082
+
+- **Terreno praia Arroio Teixeira**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-arroio-teixeira-1473118873
+
+- **Venda sítio Capão da canoa**
+  - 💰 R$ 1.200.000 | 📐 2500 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-sitio-capao-da-canoa-1476216988
+
+- **Terreno lado mar ,bairro Arco iris em Capão da Canoa**
+  - 💰 R$ 225.000 | 📐 250 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lado-mar-bairro-arco-iris-em-capao-da-canoa-1475419053
+
+- **Terreno condomínio aberto Bela Park**
+  - 💰 R$ 175.000 | 📐 184 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-aberto-bela-park-1474873413
+
+- **Terreno - Av Paraguassu - Jardim Beira Mar - Capão da canoa**
+  - 💰 R$ 630.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-av-paraguassu-jardim-beira-mar-capao-da-canoa-1474780266
+
+- **Oportunidade Única no Pulse Resort Experience  Terreno na Praia de Cur**
+  - 💰 R$ 310.000 | 📐 482 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-no-pulse-resort-experience-terreno-na-praia-de-curumim-1474647597
+
+- **Terreno condomínio 357m² parcelamento direto venda em Capão da Canoa**
+  - 💰 R$ 360.000 | 📐 357 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-357m-parcelamento-direto-venda-em-capao-da-canoa-1474328526
+
+- **L6 terreno juntos em capão da canoa**
+  - 💰 R$ 2.000.000 | 📐 2400 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/l6-terreno-juntos-em-capao-da-canoa-1208146541
+
+- **Terreno condomínio 357m² parcelamento direto venda Capão da Canoa**
+  - 💰 R$ 370.000 | 📐 357 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-357m-parcelamento-direto-venda-capao-da-canoa-1474105123
+
+- **Pulse Curumim  Condomínio Clube em Curumim**
+  - 💰 R$ 308.293 | 📐 338 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pulse-curumim-condominio-clube-em-curumim-1474102444
+
+- **Pulse Curumim  Condomínio Clube em Curumim**
+  - 💰 R$ 623.881 | 📐 492 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pulse-curumim-condominio-clube-em-curumim-1474102446
+
+- **Pulse Curumim  Condomínio Clube em Curumim**
+  - 💰 R$ 495.751 | 📐 420 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pulse-curumim-condominio-clube-em-curumim-1474102451
+
+- **Pulse Curumim  Condomínio Clube em Curumim**
+  - 💰 R$ 446.114 | 📐 442 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pulse-curumim-condominio-clube-em-curumim-1474102458
+
+- **Pulse Curumim  Condomínio Clube em Curumim**
+  - 💰 R$ 545.485 | 📐 360 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pulse-curumim-condominio-clube-em-curumim-1474102425
+
+- **Pulse Curumim  Condomínio Clube em Curumim**
+  - 💰 R$ 446.854 | 📐 442 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pulse-curumim-condominio-clube-em-curumim-1474102435
+
+- **Pulse Curumim  Condomínio Clube em Curumim**
+  - 💰 R$ 626.789 | 📐 612 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pulse-curumim-condominio-clube-em-curumim-1474102383
+
+- **CAPÃO DA CANOA - Terreno Padrão - CAPÃO NOVO**
+  - 💰 R$ 88.800 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/capao-da-canoa-terreno-padrao-capao-novo-1473891584
+
+- **CAPÃO DA CANOA - Terreno Padrão - PRAIA DO BARCO**
+  - 💰 R$ 350.000 | 📐 268 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/capao-da-canoa-terreno-padrao-praia-do-barco-1473890934
+
+- **Terreno a venda no condomínio fechado joy vila dos lagos**
+  - 💰 R$ 120.000 | 📐 276710 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-fechado-joy-vila-dos-lagos-1473504699
+
+- **TERRENO NO ARAÇA**
+  - 💰 R$ 425.000 | 📐 360 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-araca-1349647404
+
+- **Terreno 5.50x25m Capão da Canoa**
+  - 💰 R$ 145.000 | 📐 137 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-5-50x25m-capao-da-canoa-1472603159
+
+- **Sítio na Borussia Osório**
+  - 💰 R$ 380.000 | 📐 44000 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-na-borussia-osorio-1471797874
+
+- **INBOX CIA IMOBILIÁRIA VENDE- Terreno EM CAPÃO DA CANOA**
+  - 💰 R$ 265.000 | 📐 312 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/inbox-cia-imobiliaria-vende-terreno-em-capao-da-canoa-1471101727
+
+- **Vendo lote em Condomínio Rural, Estrada da Laguna**
+  - 💰 R$ 70.000 | 📐 1050 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-lote-em-condominio-rural-estrada-da-laguna-1470044446
+
+- **Lançamento!!! O Melhor condomínio Nautico do RS!!!! 20% e saldo em 72x**
+  - 💰 R$ 899.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lancamento-o-melhor-condominio-nautico-do-rs--20-e-saldo-em-72x-1469105903
+
+- **Terreno no condominio Dubai Resort localizado em Capão de Canoa**
+  - 💰 R$ 400.000 | 📐 375 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-dubai-resort-localizado-em-capao-de-canoa-1468532149
+
+- **Terreno à venda, 375 m² por R$ 150.000 - Arroio Teixeira - Capão da Ca**
+  - 💰 R$ 150.000 | 📐 375 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-375-m-por-r-150-000-arroio-teixeira-capao-da-canoa-rs-1467697062
+
+- **OPORTUNIDADE ÚNICA: SEU LOTE NO CONDOMÍNIO TERRASUL! so 70mil ato e sa**
+  - 💰 R$ 165.000 | 📐 300000 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-seu-lote-no-condominio-terrasul-so-70mil-ato-e-saldo-em-24x-1467331782
+
+- **ENSEADA LAGOA DOS QUADROS Condomínio de Lotes Exclusivo à Beira da Lag**
+  - 💰 R$ 1.026.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/enseada-lagoa-dos-quadros-condominio-de-lotes-exclusivo-a-beira-da-lagoa-1467237589
+
+- **Lote à venda, Arroio Teixeira - Capão da Canoa/RS**
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-arroio-teixeira-capao-da-canoa-rs-1438765062
+
+- **Terreno à venda, 360 m² por R$ 140.000,00 - Curumim - Capão da Canoa/R**
+  - 💰 R$ 140.000 | 📐 360 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-360-m-por-r-140-000-00-curumim-capao-da-canoa-rs-1465262962
+
+- **Terreno à venda, 300 m² por R$ 139.000,00 - Curumim - Capão da Canoa/R**
+  - 💰 R$ 139.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-139-000-00-curumim-capao-da-canoa-rs-1463873853
+
+- **Bairro Planejado Verde Mar, Terreno à venda, 300 m² por R$ 200.000 - C**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/bairro-planejado-verde-mar-terreno-a-venda-300-m-por-r-200-000-curumim-terra-de-ar-1463680658
+
+- **Casa de condomínio para venda possui 240 metros quadrados em Centro - **
+  - 💰 R$ 227.000 | 📐 240 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/casa-de-condominio-para-venda-possui-240-metros-quadrados-em-centro-capao-da-canoa-rs-1463609275
+
+- **Terreno à venda, Condomínio Enseada Lagoa dos Quadros - Capão da Canoa**
+  - 💰 R$ 1.096.000 | 📐 526 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-enseada-lagoa-dos-quadros-capao-da-canoa-rs-1463411085
+
+- **Imóvel para venda tem 300000 metros quadrados em Posto 4 Capao Novo - **
+  - 💰 R$ 177.000 | 📐 300000 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-tem-300000-metros-quadrados-em-posto-4-capao-novo-capao-da-canoa-rs-1461759681
+
+- **Terrenos lado mar em Capão Da Canoa, praia do Arco-íris**
+  - 💰 R$ 215.000 | 📐 250 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-lado-mar-em-capao-da-canoa-praia-do-arco-iris-1461522315
+
+- **Terreno à venda**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1461338783
+
+- **O condomínio que redefine exclusividade, privacidade e valorização.**
+  - 💰 R$ 1.000.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/o-condominio-que-redefine-exclusividade-privacidade-e-valorizacao-1460517816
+
+- **TERRENO - Bairro CAPÃO NOVO**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-capao-novo-1459514669
+
+- **CONDOMÍNIO FECHADO A BEIRA MAR DE CAPÃO DA CANOA**
+  - 💰 R$ 320.000 | 📐 306 m²
+  - 📍 Capão da Canoa — Curumim
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-fechado-a-beira-mar-de-capao-da-canoa-1458922925
+
+- **Terreno à venda, 300 m² por R$ 130.000 - Arroio Texeira - Capão da Can**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-130-000-arroio-texeira-capao-da-canoa-rs-1457162447
+
+- **Terreno à venda, 420 m² por R$ 140.000,00 - Arroio Teixeira - Capão da**
+  - 💰 R$ 140.000 | 📐 420 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-420-m-por-r-140-000-00-arroio-teixeira-capao-da-canoa-rs-1457143976
+
+- **Arenas Curumim - Terreno com 338m²**
+  - 💰 R$ 249.000 | 📐 338 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/arenas-curumim-terreno-com-338m-1456794497
+
+- **TERRENO COMERCIAL - Bairro CAPÃO NOVO**
+  - 💰 R$ 450.000 | 📐 900 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-bairro-capao-novo-1455960855
+
+- **TERRENO - Bairro CAPÃO NOVO**
+  - 💰 R$ 350.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-capao-novo-1455899401
+
+- **negocio de ocasiao**
+  - 💰 R$ 285.000 | 📐 367 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/negocio-de-ocasiao-1455280901
+
+- **TERRENO - Bairro CURUMIM**
+  - 💰 R$ 520.000 | 📐 344 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-curumim-1454924820
+
+- **TERRENO - Bairro CAPÃO NOVO**
+  - 💰 R$ 89.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-capao-novo-1454923203
+
+- **TERRENO - Bairro CAPÃO NOVO**
+  - 💰 R$ 169.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-capao-novo-1454822176
+
+- **Terreno Residencial 533,12 m² no Condomínio Lótus Atlântida  Venda R$1**
+  - 💰 R$ 1.450.000 | 📐 533 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-533-12-m-no-condominio-lotus-atlantida-venda-r-1-450-000-00-1451806005
+
+- **Terreno à venda, 300 m² por R$ 150.000,00 - Praia Conceição - Capão da**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-150-000-00-praia-conceicao-capao-da-canoa-rs-1454507854
+
+- **Terreno à venda, Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 1.150.000 | 📐 534 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-capao-ilhas-resort-capao-da-canoa-rs-1436385955
+
+- **Terreno à venda, Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 1.590.000 | 📐 357 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-capao-ilhas-resort-capao-da-canoa-rs-1432475109
+
+- **Terreno à venda, Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 955.000 | 📐 343 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-capao-ilhas-resort-capao-da-canoa-rs-1432477612
+
+- **OPORTUNIDADE TERRENO EM CAPÃO DA CANOA**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-terreno-em-capao-da-canoa-1452744047
+
+- **Terreno à venda no Condomínio Fechado Arenas Curumim, Capão da Canoa**
+  - 💰 R$ 399.000 | 📐 292 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-fechado-arenas-curumim-capao-da-canoa-1451598991
+
+- **Terreno à venda, Condomínio Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 1.600.000 | 📐 631 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-capao-ilhas-resort-capao-da-canoa-rs-1451467119
+
+- **Terreno à venda, Condomínio Velas da Marina - Capão da Canoa/RS**
+  - 💰 R$ 1.560.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-velas-da-marina-capao-da-canoa-rs-1426293362
+
+- **Terreno à venda, 270 m² por R$ 285.000,00 - Curumim - Terra de Areia/R**
+  - 💰 R$ 285.000 | 📐 270 m²
+  - 📍 Capão da Canoa — Curumim
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-270-m-por-r-285-000-00-curumim-terra-de-areia-rs-1451149254
+
+- **Lote com melhor preço no Condomínio Capão Ilhas Resort**
+  - 💰 R$ 572.000 | 📐 336 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-com-melhor-preco-no-condominio-capao-ilhas-resort-1450942909
+
+- **Terreno à venda, Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 1.490.000 | 📐 357 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-capao-ilhas-resort-capao-da-canoa-rs-1432474512
+
+- **Terreno em Condomínio Fechado na praia de Arroio Teixeira**
+  - 💰 R$ 295.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-de-arroio-teixeira-1449443680
+
+- **Terreno em Navegantes**
+  - 💰 R$ 12.000.000 | 📐 1057 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-navegantes-1449225891
+
+- **Terreno em Arroio Teixeira**
+  - 💰 R$ 1.100.000 | 📐 556 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-arroio-teixeira-1449199877
+
+- **Terreno em Praia da Conceição**
+  - 💰 R$ 720.000 | 📐 481 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-praia-da-conceicao-1449199658
+
+- **Terreno em Capão Novo**
+  - 💰 R$ 1.462.428 | 📐 443 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-capao-novo-1449198131
+
+- **Terreno à venda no Condomínio Velas da Marina, com 450m² em Capão da C**
+  - 💰 R$ 1.290.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-velas-da-marina-com-450m-em-capao-da-canoa-ref-1449192781
+
+- **Terreno em Condominio Bairro Curumim**
+  - 💰 R$ 350.000 | 📐 305 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-curumim-1422997816
+
+- **Terreno em Condominio Bairro Costa Serena**
+  - 💰 R$ 520.000 | 📐 458 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-costa-serena-1422994186
+
+- **Terreno à venda, Condomínio Velas da Marina - Capão da Canoa/RS**
+  - 💰 R$ 1.350.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-velas-da-marina-capao-da-canoa-rs-1444792468
+
+- **Condomínio Pulse Resort Experience: Seu Novo Lar na Praia**
+  - 💰 R$ 260.000 | 📐 250 m²
+  - 📍 Capão da Canoa — Curumim
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-pulse-resort-experience-seu-novo-lar-na-praia-1448002144
+
+- **Condomínio TERRASUL - Arroio Teixeira, Quadra F Lote 14 - Terreno 300m**
+  - 💰 R$ 495.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-terrasul-arroio-teixeira-quadra-f-lote-14-terreno-300m2-posicao-solar-nor-1447817093
+
+- **Condomínio Verano- Xangri-lá REF: 4131**
+  - 💰 R$ 355.406 | 📐 250 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-verano-xangri-la-ref-4131-1447816988
+
+- **Condomínio TERRASUL - Arroio Teixeira, Quadra H Lote 9- Terreno 312,5m**
+  - 💰 R$ 400.000 | 📐 312 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-terrasul-arroio-teixeira-quadra-h-lote-9-terreno-312-5m2-posicao-solar-nor-1447816543
+
+- **Condomínio Verano Xangri-lá- REF: 4129**
+  - 💰 R$ 675.283 | 📐 556 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-verano-xangri-la-ref-4129-1447816443
+
+- **Condomínio TERRASUL - Arroio Teixeira, Quadra H - Lotes 7 e 8 - Terren**
+  - 💰 R$ 365.000 | 📐 312 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-terrasul-arroio-teixeira-quadra-h-lotes-7-e-8-terreno-312-5m2-posicao-1447816274
+
+- **Lotes Condomínio Occhi Marina Clube, Capão da Canoa REF: 3911**
+  - 💰 R$ 815.734 | 📐 405 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lotes-condominio-occhi-marina-clube-capao-da-canoa-ref-3911-1447816223
+
+- **Pulse Resort Curumim REF: 4918**
+  - 💰 R$ 257.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pulse-resort-curumim-ref-4918-1447816002
+
+- **Terreno fundo Lago Condomínio à venda em Curumim, CAPÃO DA CANOA - Pul**
+  - 💰 R$ 342.828 | 📐 360 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundo-lago-condominio-a-venda-em-curumim-capao-da-canoa-pulse-resort-curumim-re-1447815829
+
+- **Terreno em Condomínio Harmony à venda em Capão da Canoa. REF: 5301**
+  - 💰 R$ 560.000 | 📐 20 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-harmony-a-venda-em-capao-da-canoa-ref-5301-1447815381
+
+- **Oportunidade: Terreno em Condomínio Verano em Xangri-Lá, Rainha do Mar**
+  - 💰 R$ 310.000 | 📐 20 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-terreno-em-condominio-verano-em-xangri-la-rainha-do-mar-ref-5299-1447815094
+
+- **Terreno em Condomínio Fechado**
+  - 💰 R$ 242.037 | 📐 303 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-1447222603
+
+- **Terreno à venda no Condomínio Fechado Arenas Curumim, Capão da Canoa**
+  - 💰 R$ 330.082 | 📐 301 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-fechado-arenas-curumim-capao-da-canoa-1445332271
+
+- **Terreno à venda, Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 1.600.000 | 📐 357 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-capao-ilhas-resort-capao-da-canoa-rs-1432475263
+
+- **Terreno à venda Curumim Capão da Canoa/RS**
+  - 💰 R$ 242.131 | 📐 251 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-curumim-capao-da-canoa-rs-1445065600
+
+- **Imóvel para venda possui 300 metros quadrados em Curumin - Capão da Ca**
+  - 💰 R$ 382.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-possui-300-metros-quadrados-em-curumin-capao-da-canoa-rs-1443748394
+
+- **Terreno em Capão Novo**
+  - 💰 R$ 1.462.428 | 📐 443 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-capao-novo-1443225356
+
+- **Terreno em Condomínio à venda Ipanema, Curumim - Capão da Canoa**
+  - 💰 R$ 382.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-ipanema-curumim-capao-da-canoa-1442328824
+
+- **Terreno à venda, no Condomínio Viz Home Lake, em Capão da Canoa/RS.**
+  - 💰 R$ 389.000 | 📐 212 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-viz-home-lake-em-capao-da-canoa-rs-1441679448
+
+- **SUCESSO DE VENDAS - Curumim Capão da Canoa com 300m² QUADRA Q Q-21**
+  - 💰 R$ 260.500 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sucesso-de-vendas-curumim-capao-da-canoa-com-300m-quadra-q-q-21-1438985121
+
+- **Terreno com 450,00 m² à venda no Condomínio Velas da Marina, Capão da **
+  - 💰 R$ 1.700.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-450-00-m-a-venda-no-condominio-velas-da-marina-capao-da-canoa-ref-1438383981
+
+- **OCCHI MARINA CLUB**
+  - 💰 R$ 600.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/occhi-marina-club-1435841575
+
+- **Lotes no Pulse Resort Experience**
+  - 💰 R$ 235.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lotes-no-pulse-resort-experience-1435841584
+
+- **LOTE NO CONDOMINÍO TERRASUL**
+  - 💰 R$ 247.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-terrasul-1435841432
+
+- **ALLEGRO CONDOMÍNIO FECHADO**
+  - 💰 R$ 349.900 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/allegro-condominio-fechado-1435841385
+
+- **Barbada Terreno frente mar a uma quadra da praia - Capão da Canoa - RS**
+  - 💰 R$ 125.000 | 📐 180 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/barbada-terreno-frente-mar-a-uma-quadra-da-praia-capao-da-canoa-rs-1435800295
+
+- **Terreno à venda, 300 m² por R$ 230.000,00 - Arroio Texeira - Capão da **
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-230-000-00-arroio-texeira-capao-da-canoa-rs-1433231375
+
+- **Terreno à venda, 297 m² por R$ 312.800,00 - Curumim - Capão da Canoa/R**
+  - 💰 R$ 312.800 | 📐 297 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-297-m-por-r-312-800-00-curumim-capao-da-canoa-rs-1433228448
+
+- **Terreno beira lago á venda no Condomínio Costa Serena REF:**
+  - 💰 R$ 689.000 | 📐 470 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-no-condominio-costa-serena-ref-1433195980
+
+- **Terreno beira lago à venda, 343 m² - Capão Ilhas Resort - Capão da Can**
+  - 💰 R$ 985.000 | 📐 343 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-343-m-capao-ilhas-resort-capao-da-canoa-rs-ref-te0348-1433196002
+
+- **Terreno à venda, 555 m² - Capão Ilhas Resort - Capão da Canoa/RS REF: **
+  - 💰 R$ 950.000 | 📐 555 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-555-m-capao-ilhas-resort-capao-da-canoa-rs-ref-te0119-1433195837
+
+- **Terreno á venda no Condomínio Velas da Marina! REF:**
+  - 💰 R$ 1.300.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-velas-da-marina-ref-1433195476
+
+- **Terreno beira lago á venda no Condomínio Costa Serena REF:**
+  - 💰 R$ 750.000 | 📐 456 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-no-condominio-costa-serena-ref-1433195465
+
+- **Terreno à venda, 336 m² - Capão Ilhas Resort - Capão da Canoa/RS REF: **
+  - 💰 R$ 850.000 | 📐 336 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-336-m-capao-ilhas-resort-capao-da-canoa-rs-ref-te0114-1433195433
+
+- **Terreno à venda, 548 m² - Condomínio Velas da Marina - Capão da Canoa/**
+  - 💰 R$ 2.618.000 | 📐 461 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-548-m-condominio-velas-da-marina-capao-da-canoa-rs-ref-te0133-1433195247
+
+- **Terreno à venda, 450 m² - Velas da Marina - Capão da Canoa/RS REF: TE0**
+  - 💰 R$ 2.490.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-450-m-velas-da-marina-capao-da-canoa-rs-ref-te0171-1433195276
+
+- **Terreno á venda no Condomínio Velas da Marina! REF:**
+  - 💰 R$ 1.465.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-velas-da-marina-ref-1433195001
+
+- **Terreno beira mar á venda no Condomínio Costa Serena REF:**
+  - 💰 R$ 750.000 | 📐 453 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-mar-a-venda-no-condominio-costa-serena-ref-1433194986
+
+- **Terreno á venda no Condomínio Velas da Marina! REF:**
+  - 💰 R$ 1.540.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-velas-da-marina-ref-1433194958
+
+- **Terreno à venda, Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 890.000 | 📐 343 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-capao-ilhas-resort-capao-da-canoa-rs-1432477608
+
+- **Terreno à venda, Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 1.270.000 | 📐 343 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-capao-ilhas-resort-capao-da-canoa-rs-1432475254
+
+- **Vendo Terrenos no Belíssimo Condomínio de alto padrão Mirador Playa Ar**
+  - 💰 R$ 321.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terrenos-no-belissimo-condominio-de-alto-padrao-mirador-playa-arenas-a-beira-mar-s-1431642126
+
+- **Terreno à venda, Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 750.000 | 📐 350 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-capao-ilhas-resort-capao-da-canoa-rs-1430909393
+
+- **Terreno à venda, lindo condomínio em Arroio Teixeira - Capão da Canoa **
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lindo-condominio-em-arroio-teixeira-capao-da-canoa-rs-1318967685
+
+- **Lotes no condomínio pulse para venda com 350 metros quadrado Curumim -**
+  - 💰 R$ 260.000 | 📐 350 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lotes-no-condominio-pulse-para-venda-com-350-metros-quadrado-curumim-capao-da-canoa-rs-1372650438
+
+- **Terreno à venda, Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 955.000 | 📐 343 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-capao-ilhas-resort-capao-da-canoa-rs-1336706608
+
+- **Terreno À Venda no Condomínio Velas da Marina**
+  - 💰 R$ 1.250.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-no-condominio-velas-da-marina-1423613993
+
+- **Terreno Amplo no Jardim Beira Mar em Capão da Canoa**
+  - 💰 R$ 140.400 | 📐 312 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-no-jardim-beira-mar-em-capao-da-canoa-1423584909
+
+- **Terreno em Condominio Bairro Arroio Teixeira (Distrito)**
+  - 💰 R$ 430.000 | 📐 360 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-arroio-teixeira-distrito-1422997763
+
+- **Terreno em Condominio Bairro Costa Serena**
+  - 💰 R$ 675.000 | 📐 483 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-costa-serena-1422996867
+
+- **Terreno em Condominio Bairro Costa Serena**
+  - 💰 R$ 500.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-costa-serena-1422995120
+
+- **Terreno em Condominio Bairro Arroio Teixeira**
+  - 💰 R$ 460.000 | 📐 360 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-arroio-teixeira-1422995047
+
+- **Terreno em Condominio Bairro Curumim**
+  - 💰 R$ 510.000 | 📐 345 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-curumim-1422994316
+
+- **Terreno em Condominio Bairro Costa Serena**
+  - 💰 R$ 1.320.000 | 📐 470 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-costa-serena-1422994321
+
+- **Terreno à venda, 450 m² por R$ 700.000,00 - Santa Luzia - Capão da Can**
+  - 💰 R$ 700.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-450-m-por-r-700-000-00-santa-luzia-capao-da-canoa-rs-1419003996
+
+- **Terreno pronto para construir bairro próximo ao centro de Capão Da Can**
+  - 💰 R$ 198.000 | 📐 275 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-pronto-para-construir-bairro-proximo-ao-centro-de-capao-da-canoa-1418624122
+
+- **Barbada terreno  esquina inteiro perto do mar - Capão da Canoa - RS**
+  - 💰 R$ 220.000 | 📐 250 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/barbada-terreno-esquina-inteiro-perto-do-mar-capao-da-canoa-rs-1418324063
+
+- **Sitio â beira da Lagos em Capão da Canoa**
+  - 💰 R$ 850.000 | 📐 190 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-a-beira-da-lagos-em-capao-da-canoa-1417992105
+
+- **PULSE RESORT EXPERIENCE**
+  - 💰 R$ 260.362 | 📐 360 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pulse-resort-experience-1417318815
+
+- **Barbada terreno esquina , perto do mar  Arco Iris - Capão da Canoa - R**
+  - 💰 R$ 220.000 | 📐 250 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/barbada-terreno-esquina-perto-do-mar-arco-iris-capao-da-canoa-rs-1417299915
+
+- **TERRENO ESQUINA 1 QUADRA DO MAR NA MELHOR LOCALIZAÇÃO DO BAIRRO**
+  - 💰 R$ 320.000 | 📐 377 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-esquina-1-quadra-do-mar-na-melhor-localizacao-do-bairro-1417285105
+
+- **Torrando Terreno Village 3 quadras da av Paraguassú**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/torrando-terreno-village-3-quadras-da-av-paraguassu-1417269792
+
+- **Barbada terreno no Bela Park Baixou para vender**
+  - 💰 R$ 106.000 | 📐 152 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/barbada-terreno-no-bela-park-baixou-para-vender-1416961392
+
+- **Barbada Terreno perto do mar no  Jardim Beira-Mar - Capão da Canoa - R**
+  - 💰 R$ 215.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/barbada-terreno-perto-do-mar-no-jardim-beira-mar-capao-da-canoa-rs-1416909886
+
+- **Terreno próximo ao mar na Guarani em Capão da Canoa**
+  - 💰 R$ 255.000 | 📐 275 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-proximo-ao-mar-na-guarani-em-capao-da-canoa-1416902061
+
+- **Baixou mais ainda pra vender - Terreno para Investimento no Village!**
+  - 💰 R$ 88.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/baixou-mais-ainda-pra-vender-terreno-para-investimento-no-village-1416714200
+
+- **Terreno no condomínio Dubai**
+  - 💰 R$ 440.000 | 📐 375 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-dubai-1416652386
+
+- **Atenção investidor terreno pronto para construir**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/atencao-investidor-terreno-pronto-para-construir-1416602491
+
+- **Terreno à venda Curumim Capão da Canoa/RS**
+  - 💰 R$ 300.000 | 📐 299 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-curumim-capao-da-canoa-rs-1412927440
+
+- **Terreno no condomínio Terrasul - Arroio Teixeira**
+  - 💰 R$ 199.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-terrasul-arroio-teixeira-1411539991
+
+- **Terreno em Xangri-Lá em bairro planejado, ao lado do hospital, frente **
+  - 💰 R$ 199.000 | 📐 240 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-xangri-la-em-bairro-planejado-ao-lado-do-hospital-frente-leste-1411180895
+
+- **Terreno em condomínio fechado, preço de barbada**
+  - 💰 R$ 319.000 | 📐 367 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-preco-de-barbada-1411178977
+
+- **Lote frente à área verde e praça no Harmony Life & Style!**
+  - 💰 R$ 630.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-frente-a-area-verde-e-praca-no-harmony-life-style-1403177470
+
+- **Terreno para alugar, 348 m² por R$ 3.068,35 - Zona Nova - Capão da Can**
+  - 💰 R$ 3.000 | 📐 348 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-alugar-348-m-por-r-3-068-35-zona-nova-capao-da-canoa-rs-1407701013
+
+- **Terreno Curumim Capão da Canoa**
+  - 💰 R$ 180.000 | 📐 372 m²
+  - 📍 Capão da Canoa — Curumim
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-curumim-capao-da-canoa-1407413488
+
+- **Terreno em Curumim**
+  - 💰 R$ 350.000 | 📐 307 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-curumim-1406591630
+
+- **Terreno em Navegantes**
+  - 💰 R$ 12.000.000 | 📐 1057 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-navegantes-1406590601
+
+- **Terreno em Arroio Teixeira**
+  - 💰 R$ 352.000 | 📐 301 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-arroio-teixeira-1406590292
+
+- **Terreno em Arroio Teixeira**
+  - 💰 R$ 350.000 | 📐 301 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-arroio-teixeira-1406590173
+
+- **Terreno em Arroio Teixeira**
+  - 💰 R$ 350.000 | 📐 301 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-arroio-teixeira-1406589350
+
+- **Terreno em Praia da Conceição**
+  - 💰 R$ 720.000 | 📐 481 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-praia-da-conceicao-1402446880
+
+- **Terreno em Arroio Teixeira**
+  - 💰 R$ 1.100.000 | 📐 556 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-arroio-teixeira-1402337312
+
+- **Terreno em Curumim**
+  - 💰 R$ 435.000 | 📐 346 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-curumim-1402320933
+
+- **Terreno Rua Margaridas**
+  - 💰 R$ 216.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-rua-margaridas-1400083168
+
+- **ARENAS CURUMIM - O Seu Refúgio de Qualidade e Lazer em Capão da Canoa!**
+  - 💰 R$ 480.000 | 📐 333 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/arenas-curumim-o-seu-refugio-de-qualidade-e-lazer-em-capao-da-canoa-1400385688
+
+- **ARENAS CURUMIM - O Seu Refúgio de Qualidade e Lazer em Capão da Canoa!**
+  - 💰 R$ 380.000 | 📐 312 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/arenas-curumim-o-seu-refugio-de-qualidade-e-lazer-em-capao-da-canoa-1400385093
+
+- **Terreno Rua Tuipa no Capao Novo Village - Capão da Canoa - RS**
+  - 💰 R$ 189.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-rua-tuipa-no-capao-novo-village-capao-da-canoa-rs-1394097344
+
+- **Terreno à venda Curumim Arroio do Sal/RS**
+  - 💰 R$ 317.500 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-curumim-arroio-do-sal-rs-1393469500
+
+- **Terreno à venda Curumim Capão da Canoa/RS**
+  - 💰 R$ 350.000 | 📐 310 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-curumim-capao-da-canoa-rs-1393468092
+
+- **Terreno em Condomínio à venda RS-389, Centro - Capão da Canoa**
+  - 💰 R$ 1.368.000 | 📐 395 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-389-centro-capao-da-canoa-1385505676
+
+- **Terreno em Condomínio à venda RS-389, Centro - Capão da Canoa**
+  - 💰 R$ 1.368.000 | 📐 432 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-389-centro-capao-da-canoa-1385505641
+
+- **Terreno em Condomínio à venda RS-389, Centro - Capão da Canoa**
+  - 💰 R$ 1.003.200 | 📐 371 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-389-centro-capao-da-canoa-1384038741
+
+- **Terreno em Condomínio à venda RS-389, Centro - Capão da Canoa**
+  - 💰 R$ 1.368.000 | 📐 417 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-389-centro-capao-da-canoa-1379917355
+
+- **Terreno em Condomínio à venda RS-389, Centro - Capão da Canoa**
+  - 💰 R$ 1.020.000 | 📐 350 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-389-centro-capao-da-canoa-1379916612
+
+- **Terreno em Condomínio à venda RS-389, Centro - Capão da Canoa**
+  - 💰 R$ 1.083.000 | 📐 477 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-389-centro-capao-da-canoa-1379916145
+
+- **Terreno em Condomínio à venda RS-389, Centro - Capão da Canoa**
+  - 💰 R$ 1.020.000 | 📐 358 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-389-centro-capao-da-canoa-1379916130
+
+- **Terreno/Lote Residencial à venda 309.39M² Centro Capão da Canoa - RS |**
+  - 💰 R$ 639.509 | 📐 309 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-309-39m-centro-capao-da-canoa-rs-occhi-marina-clube-1377390714
+
+- **Terreno/Lote Residencial à venda 505.69M² Centro Capão da Canoa - RS |**
+  - 💰 R$ 777.245 | 📐 505 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-505-69m-centro-capao-da-canoa-rs-occhi-marina-clube-1377390675
+
+- **Terreno/Lote Residencial à venda 324M² Capão Novo Capão da Canoa - RS**
+  - 💰 R$ 728.028 | 📐 324 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-324m-capao-novo-capao-da-canoa-rs-1376885865
+
+- **Lote beira lago!!!**
+  - 💰 R$ 1.091.000 | 📐 343 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-beira-lago-1376155148
+
+- **Terreno Bairro Novo Curumim**
+  - 💰 R$ 361.937 | 📐 331 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-novo-curumim-1374732516
+
+- **Condomínio Phoenix**
+  - 💰 R$ 314.529 | 📐 248 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-phoenix-1374732448
+
+- **Pulse Resort Experience - Curumim**
+  - 💰 R$ 232.546 | 📐 261 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pulse-resort-experience-curumim-1374731967
+
+- **Terreno/Lote Residencial à venda 602.89M² Centro Capão da Canoa - RS |**
+  - 💰 R$ 1.278.126 | 📐 602 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-602-89m-centro-capao-da-canoa-rs-occhi-marina-clube-1367401181
+
+- **Terreno/Lote Residencial à venda 1044.89M² Morada do Sol Capão da Cano**
+  - 💰 R$ 5.800.000 | 📐 1044 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-1044-89m-morada-do-sol-capao-da-canoa-rs-velas-da-ma-1367400629
+
+- **Terreno/Lote Residencial à venda 717M² Morada do Sol Capão da Canoa - **
+  - 💰 R$ 2.300.000 | 📐 717 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-717m-morada-do-sol-capao-da-canoa-rs-velas-da-marina-1362118605
+
+- **Imóvel para venda com 300 m2 em Capao Novo - Capão da Canoa - RS**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-300-m2-em-capao-novo-capao-da-canoa-rs-1361891501
+
+- **Terreno/Lote Residencial à venda 707.87M² Centro Capão da Canoa - RS |**
+  - 💰 R$ 1.635.179 | 📐 707 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-707-87m-centro-capao-da-canoa-rs-occhi-marina-clube-1360777680
+
+- **Terreno em Condomínio à venda Rua Ipanema, Arroio Teixeira - Capão da **
+  - 💰 R$ 370.000 | 📐 299 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-ipanema-arroio-teixeira-capao-da-canoa-1358350718
+
+- **Terreno/Lote Residencial à venda 450M² Morada do Sol Capão da Canoa - **
+  - 💰 R$ 1.300.000 | 📐 450 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-450m-morada-do-sol-capao-da-canoa-rs-velas-da-marina-1354283356
+
+- **Terreno com 300 m2 a 100 metros do mar na das Rosas**
+  - 💰 R$ 194.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-300-m2-a-100-metros-do-mar-na-das-rosas-1347756716
+
+- **Terreno/Lote Residencial à venda 466.77M² Arroio Teixeira Capão da Can**
+  - 💰 R$ 413.303 | 📐 466 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-466-77m-arroio-teixeira-capao-da-canoa-rs-terrasul-c-1346492970
+
+- **Terreno/Lote Residencial à venda 300M² Arroio Teixeira Capão da Canoa **
+  - 💰 R$ 319.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-300m-arroio-teixeira-capao-da-canoa-rs-terrasul-cond-1346492942
+
+- **Terreno à venda, Condomínio Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 1.400.000 | 📐 569 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-capao-ilhas-resort-capao-da-canoa-rs-1342931931
+
+- **Terreno à venda, Condomínio Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 950.000 | 📐 555 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-capao-ilhas-resort-capao-da-canoa-rs-1338954305
+
+- **Terreno à venda, Condomínio Capão Ilhas Resort - Capão da Canoa/RS**
+  - 💰 R$ 1.600.000 | 📐 631 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-capao-ilhas-resort-capao-da-canoa-rs-1338954284
+
+- **Terreno/Lote Residencial à venda 397.78M² Centro Capão da Canoa - RS |**
+  - 💰 R$ 632.470 | 📐 397 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-397-78m-centro-capao-da-canoa-rs-occhi-marina-clube-1337824664
+
+- **Terreno à venda no Condomínio Capão Ilhas Resort em Capão da Canoa!**
+  - 💰 R$ 1.080.000 | 📐 1056 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-capao-ilhas-resort-em-capao-da-canoa-1333171776
+
+- **Terreno 16X38, Condomínio Capão Ilhas Resort em Capão da Canoa!**
+  - 💰 R$ 1.600.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-16x38-condominio-capao-ilhas-resort-em-capao-da-canoa-1312594325
+
+- **Terreno de frente para Lago, à venda, no condomínio Capão ilhas resort**
+  - 💰 R$ 897.000 | 📐 343 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-frente-para-lago-a-venda-no-condominio-capao-ilhas-resort-em-capao-da-canoa-1312584637
+
+- **TERRENO no bairro Praia do Barco em Capão da Canoa**
+  - 💰 R$ 170.000 | 📐 390 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-praia-do-barco-em-capao-da-canoa-1308032014
+
+- **Terreno/Lote Residencial à venda 300M² Curumim Capão da Canoa - RS**
+  - 💰 R$ 325.000 | 📐 300 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-300m-curumim-capao-da-canoa-rs-1303737817
+
+- **Terreno em Condomínio à venda Rodovia RS-389, Centro - Capão da Canoa**
+  - 💰 R$ 1.610.613 | 📐 668 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rodovia-rs-389-centro-capao-da-canoa-1292008827
+
+- **Terreno em Condomínio à venda Rodovia RS-389, Centro - Capão da Canoa**
+  - 💰 R$ 903.884 | 📐 365 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rodovia-rs-389-centro-capao-da-canoa-1292006885
+
+- **Terreno em Condomínio à venda Rodovia RS-389, Centro - Capão da Canoa**
+  - 💰 R$ 743.307 | 📐 308 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rodovia-rs-389-centro-capao-da-canoa-1292004364
+
+- **Terreno no bairro Jardim Beira-Mar**
+  - 💰 R$ 240.000 | 📐 396 m²
+  - 📍  — Capão da Canoa
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-jardim-beira-mar-1284233560
+
+- **MIRADOR PLAYA ARENAS**
+  - 💰 R$ 352.500 | 📐 300 m²
+  - 📍 Capão da Canoa — Curumim
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/mirador-playa-arenas-1262142774
+
+- **ARENAS CURUMIM**
+  - 💰 R$ 280.000 | 📐 300 m²
+  - 📍 Capão da Canoa — Curumim
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/arenas-curumim-1199003923
+
+- **Terreno à venda, localizado no Bairro Planejado Santorini em Xangri-Lá**
+  - 💰 R$ 290.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-localizado-no-bairro-planejado-santorini-em-xangri-la-1476360423
+
+- **Terreno à venda, Condomínio Villaggio de Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.280.000 | 📐 639 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-villaggio-de-atlantida-xangri-la-rs-1476076712
+
+- **Terreno à venda, Condomínio Villaggio de Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 950.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-villaggio-de-atlantida-xangri-la-rs-1476076579
+
+- **Terreno com 244 m² à venda no condomínio Wave Home Resort em Xangri-Lá**
+  - 💰 R$ 450.000 | 📐 244 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-244-m-a-venda-no-condominio-wave-home-resort-em-xangri-la-ref-1476075827
+
+- **Amplo terreno de esquina no Arpoador**
+  - 💰 R$ 330.000 | 📐 486 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-terreno-de-esquina-no-arpoador-1475665569
+
+- **Terreno à venda, Condomínio Villaggio de Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.480.000 | 📐 525 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-villaggio-de-atlantida-xangri-la-rs-1475598001
+
+- **Terreno a beira lago no condomínio Amare**
+  - 💰 R$ 1.280.000 | 📐 500 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-beira-lago-no-condominio-amare-1475577040
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 590.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1475313791
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 750.000 | 📐 308 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1475313571
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 790.000 | 📐 310 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1475312984
+
+- **Procuro Terreno em Xangri-la proximo ao mar**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/procuro-terreno-em-xangri-la-proximo-ao-mar-1475183138
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.414.000 | 📐 472 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1475011501
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.132.000 | 📐 526 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1475010917
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.162.000 | 📐 542 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1475010839
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.110.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1474996007
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 677.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1474995992
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.212.000 | 📐 472 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1474995844
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.212.000 | 📐 472 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1474995864
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 445.000 | 📐 304 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1474687245
+
+- **Terreno à venda, Condomínio Seasons Wonderful Living - Xangri-Lá/RS**
+  - 💰 R$ 2.426.000 | 📐 567 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-seasons-wonderful-living-xangri-la-rs-1474687163
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 677.000 | 📐 310 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1474686508
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 355.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1474686459
+
+- **Terreno à venda, Condomínio Seasons Wonderful Living - Xangri-Lá/RS**
+  - 💰 R$ 3.367.000 | 📐 463 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-seasons-wonderful-living-xangri-la-rs-1474686435
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 960.000 | 📐 448 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1474686440
+
+- **Terreno à venda, Condomínio Seasons Wonderful Living - Xangri-Lá/RS**
+  - 💰 R$ 2.010.000 | 📐 528 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-seasons-wonderful-living-xangri-la-rs-1474686437
+
+- **Terreno à venda, Condomínio Seasons Wonderful Living - Xangri-Lá/RS**
+  - 💰 R$ 4.050.000 | 📐 837 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-seasons-wonderful-living-xangri-la-rs-1474686413
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 2.495.000 | 📐 858 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1474686417
+
+- **Terreno à venda, Condomínio Seasons Wonderful Living - Xangri-Lá/RS**
+  - 💰 R$ 2.010.000 | 📐 528 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-seasons-wonderful-living-xangri-la-rs-1474686418
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.162.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1474686402
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 960.000 | 📐 371 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1474686405
+
+- **Terreno à venda, Condomínio Seasons Wonderful Living - Xangri-Lá/RS**
+  - 💰 R$ 2.655.000 | 📐 625 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-seasons-wonderful-living-xangri-la-rs-1474686391
+
+- **Imperdível! Terreno Santorini Xangri-Lá**
+  - 💰 R$ 160.000 | 📐 ? m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imperdivel-terreno-santorini-xangri-la-1474318663
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.429.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1473895303
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.280.000 | 📐 396 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1473895253
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1473895224
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.280.000 | 📐 396 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1473895123
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.480.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1473895114
+
+- **Exclusividade à Beira-Lago: O Melhor Terreno do Amare Home Resort REF:**
+  - 💰 R$ 1.280.000 | 📐 396 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/exclusividade-a-beira-lago-o-melhor-terreno-do-amare-home-resort-ref-te3415-1473829865
+
+- **Exclusividade à Beira-Lago: O Melhor Terreno do Amare Home Resort REF:**
+  - 💰 R$ 1.280.000 | 📐 396 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/exclusividade-a-beira-lago-o-melhor-terreno-do-amare-home-resort-ref-te3416-1473829872
+
+- **bairro Planejado- XANGRI-LÁ- OPORTUNIDADE- PARCELAMENTO DIRETO EM ATÉ **
+  - 💰 R$ 250.000 | 📐 246 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/bairro-planejado-xangri-la-oportunidade-parcelamento-direto-em-ate-50-meses-ref-3681-1473300592
+
+- **Terreno a venda em Xangri-lá a duas quadras do mar**
+  - 💰 R$ 500.000 | 📐 390 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-xangri-la-a-duas-quadras-do-mar-1473237755
+
+- **Terreno a venda em Xangri-lá - próximo ao mar**
+  - 💰 R$ 435.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-xangri-la-proximo-ao-mar-1473237631
+
+- **Imóvel para venda tem 300 metros quadrados em Condomínio Allure Beach **
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-tem-300-metros-quadrados-em-condominio-allure-beach-condo-xangri-la-1472755347
+
+- **Terreno à venda, Condomínio Green Village - Xangri-Lá/RS**
+  - 💰 R$ 1.380.000 | 📐 807 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-green-village-xangri-la-rs-1472645195
+
+- **Terreno à venda, Condomínio Green Village - Xangri-Lá/RS**
+  - 💰 R$ 1.380.000 | 📐 818 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-green-village-xangri-la-rs-1472644876
+
+- **Terreno com 378 m², beira lago à venda no Condomínio Amare, Xangri-lá.**
+  - 💰 R$ 1.200.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-378-m-beira-lago-a-venda-no-condominio-amare-xangri-la-ref-1472643140
+
+- **Terreno com 509 m² à venda no Condomínio Celebration em XANGRI-LÁ. REF**
+  - 💰 R$ 780.000 | 📐 509 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-509-m-a-venda-no-condominio-celebration-em-xangri-la-ref-1472642014
+
+- **Terreno com 250 m² à venda no Condomínio Blue, Xangri-lá. REF:**
+  - 💰 R$ 520.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-250-m-a-venda-no-condominio-blue-xangri-la-ref-1472641963
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.210.000 | 📐 489 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1472120652
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.330.000 | 📐 475 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1472120586
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 980.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1472120527
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 820.000 | 📐 364 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1472120515
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.540.000 | 📐 602 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1472120503
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.210.000 | 📐 367 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1472120510
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 580.000 | 📐 326 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1472120442
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 990.000 | 📐 359 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1472120387
+
+- **Terreno Condomínio AMARE**
+  - 💰 R$ 1.650.000 | 📐 409 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-amare-1472093703
+
+- **Oportunidade: Terrenos em Condomínio em Capão da Canoa - Zona Nova, Ve**
+  - 💰 R$ 400.000 | 📐 264 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-terrenos-em-condominio-em-capao-da-canoa-zona-nova-venda-ref-3577-1471895313
+
+- **TERRENO A VENDA EM CONDOMINIO COM PRAIA ARTIFICIAL COM ONDAS EM XANGRI**
+  - 💰 R$ 480.000 | 📐 354 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-com-praia-artificial-com-ondas-em-xangri-la-1471757769
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 540.000 | 📐 310 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1471615353
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 590.000 | 📐 363 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1471615021
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 980.000 | 📐 303 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1471614939
+
+- **Terreno à venda em Xangri-Lá, no exclusivo bairro Remanso REF: TE2930**
+  - 💰 R$ 380.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-xangri-la-no-exclusivo-bairro-remanso-ref-te2930-1471529750
+
+- **Terreno à Venda no Condominio Wave**
+  - 💰 R$ 571.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-wave-1471418700
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 320.000 | 📐 337 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1471318835
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 600.000 | 📐 297 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1471318257
+
+- **Terreno à venda, Condomínio Allure Beach Condo - Xangri-Lá/RS**
+  - 💰 R$ 290.000 | 📐 276 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-allure-beach-condo-xangri-la-rs-1471316396
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 860.000 | 📐 496 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1471316403
+
+- **IMPERDÍVEL! TERRENO VIENTOS RESORT XANGRI-LÁ**
+  - 💰 R$ 450.000 | 📐 690041 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imperdivel-terreno-vientos-resort-xangri-la-1470899341
+
+- **Terreno à Venda na Praia Maristela em Xangri-Lá | 300m² Próximo ao Mar**
+  - 💰 R$ 299.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-na-praia-maristela-em-xangri-la-300m-proximo-ao-mar-1470891877
+
+- **Terreno À Venda no Condomínio Isla**
+  - 💰 R$ 520.000 | 📐 388 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-no-condominio-isla-1470797278
+
+- **Terreno à Venda no Condomínio Zen**
+  - 💰 R$ 430.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-zen-1470791642
+
+- **Terreno à venda no bairro Maristela com 1 dormitório/quarto e área dis**
+  - 💰 R$ 299.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-maristela-com-1-dormitorio-quarto-e-area-disponivel-1470702442
+
+- **Oportunidade Única! Lotes comerciais em Xangri-lá:**
+  - 💰 R$ 670.000 | 📐 689 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-lotes-comerciais-em-xangri-la-1470149838
+
+- **Terreno Nova Xangrila 240m2**
+  - 💰 R$ 170.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-nova-xangrila-240m2-1468136433
+
+- **Terreno Santorini Q05 10x20m**
+  - 💰 R$ 180.000 | 📐 260 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-santorini-q05-10x20m-1469786344
+
+- **Vendo excelente terreno em Xangri-lá-RS. Barbada. Direto com proprietá**
+  - 💰 R$ 210.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-excelente-terreno-em-xangri-la-rs-barbada-direto-com-proprietaria-1469717236
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 740.000 | 📐 364 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1469687520
+
+- **Terreno à venda, Condomínio Green Village - Xangri-Lá/RS**
+  - 💰 R$ 2.300.000 | 📐 1690 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-green-village-xangri-la-rs-1469683374
+
+- **Oportunidade: Terrenos em Condomínio em Capão da Canoa - Zona Nova, Ve**
+  - 💰 R$ 400.000 | 📐 264 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-terrenos-em-condominio-em-capao-da-canoa-zona-nova-venda-ref-3577-1471894723
+
+- **Imóvel para venda possui 630 metros quadrados em Centro - Xangri-Lá - **
+  - 💰 R$ 1.000.000 | 📐 630 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-possui-630-metros-quadrados-em-centro-xangri-la-rs-1469672969
+
+- **Terreno Santorini Park**
+  - 💰 R$ 165.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-santorini-park-1469490663
+
+- **Terreno à Venda no Condomínio Isla**
+  - 💰 R$ 780.000 | 📐 303 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-isla-1469444717
+
+- **Seu novo lar está aqui! Terreno residencial à Venda em Xangri-Lá, Rio **
+  - 💰 R$ 540.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/seu-novo-lar-esta-aqui-terreno-residencial-a-venda-em-xangri-la-rio-grande-do-1469284697
+
+- **Terreno Beira-lago - Condomínio Zen**
+  - 💰 R$ 650.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-condominio-zen-1469149999
+
+- **Terreno Condomínio ISLA Xangrila - Direto com proprietário**
+  - 💰 R$ 420.000 | 📐 315 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-isla-xangrila-direto-com-proprietario-1468566633
+
+- **Terreno à venda, Condomínio Los Cobos - Xangri-Lá/RS**
+  - 💰 R$ 4.490.000 | 📐 469 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-los-cobos-xangri-la-rs-1468014872
+
+- **Terreno à Venda no Condomínio Malibu**
+  - 💰 R$ 1.070.000 | 📐 440 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-malibu-1467994394
+
+- **Terreno Residencial em Rainha do Mar**
+  - 💰 R$ 660.093 | 📐 532 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-rainha-do-mar-1467639962
+
+- **Terreno Residencial em Atlântida**
+  - 💰 R$ 2.650.000 | 📐 516 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-atlantida-1467639077
+
+- **Lote molhado a venda no condomínio Zen Resort Concept.**
+  - 💰 R$ 600.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-molhado-a-venda-no-condominio-zen-resort-concept-1467633363
+
+- **Terreno à venda no bairro Remanso - Xangri-Lá**
+  - 💰 R$ 223.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-remanso-xangri-la-1467400575
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 749.000 | 📐 312 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467106828
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 749.000 | 📐 334 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467105614
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.415.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467105479
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.415.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467105105
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.498.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467104971
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.415.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467104871
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.150.000 | 📐 492 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467104853
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.498.000 | 📐 391 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467104812
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 749.000 | 📐 316 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467104819
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.489.000 | 📐 382 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467104351
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.498.000 | 📐 391 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1467104173
+
+- **Lote no Santorini - fase 2**
+  - 💰 R$ 165.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-santorini-fase-2-1467089951
+
+- **Lote à venda no Santorini em Xangri-lá**
+  - 💰 R$ 170.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-santorini-em-xangri-la-1467089616
+
+- **Lote no Nova Xangri-lá**
+  - 💰 R$ 185.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-nova-xangri-la-1467089435
+
+- **Santorini - Xangri-lá**
+  - 💰 R$ 175.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/santorini-xangri-la-1467088212
+
+- **Imóvel para venda com 300 metros quadrados em Xangri la - Xangri-Lá - **
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-300-metros-quadrados-em-xangri-la-xangri-la-rs-1466361333
+
+- **Terreno com 391,92 m², beira lago, à venda no Condomínio Amare Home Re**
+  - 💰 R$ 1.350.000 | 📐 391 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-391-92-m-beira-lago-a-venda-no-condominio-amare-home-resort-em-xangri-la-r-1466337431
+
+- **Terreno à venda, 245 m² - Condomínio Allure - Xangri-lá/RS REF:**
+  - 💰 R$ 266.000 | 📐 245 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-245-m-condominio-allure-xangri-la-rs-ref-1466337143
+
+- **Terreno com 368,99 m² à venda no Condomínio Amare Home Resort, Xangri-**
+  - 💰 R$ 900.000 | 📐 368 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-368-99-m-a-venda-no-condominio-amare-home-resort-xangri-la-ref-1466336955
+
+- **Terreno no bairro Atlântida em Xangri-Lá**
+  - 💰 R$ 890.000 | 📐 504 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-atlantida-em-xangri-la-1462830649
+
+- **Terreno no Condomínio Raro em Xangri-lá**
+  - 💰 R$ 449.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-raro-em-xangri-la-1465691389
+
+- **Imóvel para venda possui 240 metros quadrados em Centro - Xangri-Lá - **
+  - 💰 R$ 320.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-possui-240-metros-quadrados-em-centro-xangri-la-rs-1402956243
+
+- **Terreno pronto para construir, no Condomínio ALLURE, em Xangri-Lá - RS**
+  - 💰 R$ 265.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-pronto-para-construir-no-condominio-allure-em-xangri-la-rs-1402939488
+
+- **Terreno Exclusivo de 450 m² no Condomínio Lotus Atlântida  Venda**
+  - 💰 R$ 1.250.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-exclusivo-de-450-m-no-condominio-lotus-atlantida-venda-1449516472
+
+- **Terreno à venda, Condomínio Ventura Club - Xangri-Lá/RS**
+  - 💰 R$ 2.120.000 | 📐 540 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-ventura-club-xangri-la-rs-1442265232
+
+- **Lote à venda, no bairro planejado Santorini, localizado em Xangri-lá!**
+  - 💰 R$ 270.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-bairro-planejado-santorini-localizado-em-xangri-la-1465410176
+
+- **Terreno em Xangri-Lá: excelente investimento! ICondominio Lagoa do Pas**
+  - 💰 R$ 650.000 | 📐 600 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-xangri-la-excelente-investimento-icondominio-lagoa-do-passo-ref-4813-1447815659
+
+- **Terreno em Condomínio Raro em Xangri-Lá - Segurança e lazer. REF: 5298**
+  - 💰 R$ 420.000 | 📐 20 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-raro-em-xangri-la-seguranca-e-lazer-ref-5298-1447820254
+
+- **Terreno beira lago á venda no Condomínio Enseada Lagos de Xangri-Lá/RS**
+  - 💰 R$ 1.950.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-no-condominio-enseada-lagos-de-xangri-la-rs-ref-1433196883
+
+- **Terreno à venda em condomínio fechado ISLA XANGRI-LÁ REF: 3732**
+  - 💰 R$ 786.659 | 📐 367 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-isla-xangri-la-ref-3732-1447815249
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.400.000 | 📐 469 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1464921249
+
+- **Terreno beira lago à venda, 255 m² - Condomínio Joy Xangri-Lá / RS REF**
+  - 💰 R$ 307.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-255-m-condominio-joy-xangri-la-rs-ref-1433194686
+
+- **Terreno à venda, 310 m² no Condomínio Isla - Xangri-lá/RS REF:**
+  - 💰 R$ 410.000 | 📐 310 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-310-m-no-condominio-isla-xangri-la-rs-ref-1433194698
+
+- **Terreno de esquina à venda no Condomínio Amare Home Resort Xangri-Lá. **
+  - 💰 R$ 650.000 | 📐 20 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-a-venda-no-condominio-amare-home-resort-xangri-la-ref-1449191735
+
+- **Terreno beira lago à venda, 627 m² - Condomínio Riviera Xangri-lá - Xa**
+  - 💰 R$ 500.000 | 📐 627 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-627-m-condominio-riviera-xangri-la-xangri-la-rs-ref-te03-1433195850
+
+- **Terreno de esquina beira lago à venda, 433 m² - Condomínio Amare - Xan**
+  - 💰 R$ 1.290.000 | 📐 433 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-beira-lago-a-venda-433-m-condominio-amare-xangri-la-rs-ref-1433194685
+
+- **Terreno à venda, Centro, Xangri-Lá, RS**
+  - 💰 R$ 390.000 | 📐 264 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-centro-xangri-la-rs-1464268371
+
+- **Terreno à venda, 275 m² - Condomínio Raro - Xangri-lá/RS REF:**
+  - 💰 R$ 390.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-275-m-condominio-raro-xangri-la-rs-ref-1433195104
+
+- **Terreno com 325m², oferece acesso exclusivo ao paradouro beira-mar, à **
+  - 💰 R$ 850.000 | 📐 325 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-325m-oferece-acesso-exclusivo-ao-paradouro-beira-mar-a-venda-no-condominio-1463702311
+
+- **Terreno beira lago à venda - Condomínio Sunset - Xangri-lá/RS REF:**
+  - 💰 R$ 810.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-condominio-sunset-xangri-la-rs-ref-1433194781
+
+- **Terreno em Atlântida com 504,00 metros próximo ao mar**
+  - 💰 R$ 680.000 | 📐 504 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-com-504-00-metros-proximo-ao-mar-1463408646
+
+- **Terreno condomínio Zen Concept**
+  - 💰 R$ 650.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-zen-concept-1463408240
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 695.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1463107622
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 315 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1463107238
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 740.000 | 📐 302 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1463107197
+
+- **Terreno no condomínio Green Village Golf Club em Xangri-lá**
+  - 💰 R$ 1.750.000 | 📐 956 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-green-village-golf-club-em-xangri-la-1463102114
+
+- **Terreno à venda, 316m² - Condomínio Isla - Xangri-lá/RS REF:**
+  - 💰 R$ 620.000 | 📐 316 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-316m-condominio-isla-xangri-la-rs-ref-1433195587
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.200.000 | 📐 472 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1462446396
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.700.000 | 📐 501 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1462443815
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 750.000 | 📐 312 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1462442412
+
+- **Terreno em Atlantida Sul - excelente investimento! Condomínio Lagoa do**
+  - 💰 R$ 734.000 | 📐 600 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-excelente-investimento-condominio-lagoa-do-passo-ref-4819-1447814999
+
+- **Condomínio AURA em Xangri-lá**
+  - 💰 R$ 495.000 | 📐 325 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-aura-em-xangri-la-1461857306
+
+- **Terreno Residencial em Maristela**
+  - 💰 R$ 590.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maristela-1461719263
+
+- **Ótimo terreno à venda no Condomínio Zen**
+  - 💰 R$ 495.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-a-venda-no-condominio-zen-1461423790
+
+- **Terreno no Condomínio Capão Ilhas Resort**
+  - 💰 R$ 1.690.000 | 📐 619 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-capao-ilhas-resort-1461340514
+
+- **Terreno à venda em condomínio fechado**
+  - 💰 R$ 228.000 | 📐 272 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-1461338785
+
+- **Imóvel para venda tem 250 metros quadrados em Xangri la - Xangri-Lá - **
+  - 💰 R$ 159.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-tem-250-metros-quadrados-em-xangri-la-xangri-la-rs-1461186035
+
+- **Lote à venda em Condomínio Fechado**
+  - 💰 R$ 1.900.000 | 📐 457 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-em-condominio-fechado-1461163326
+
+- **Terreno em Condomínio à venda Rua Rio Jacuí, Centro - Xangri-Lá**
+  - 💰 R$ 2.495.000 | 📐 453 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-rio-jacui-centro-xangri-la-1461155931
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.300.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1461075623
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.300.000 | 📐 476 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1461075405
+
+- **Terreno Residencial em Noiva do Mar**
+  - 💰 R$ 380.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-noiva-do-mar-1460586524
+
+- **Terreno à venda no Condomínio Oxy, em Xangri-Lá/RS.**
+  - 💰 R$ 999.554 | 📐 444 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-oxy-em-xangri-la-rs-1460487692
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 479.705 | 📐 292 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460478256
+
+- **Terreno à venda no Condomínio Oxy, em Xangri-Lá/RS.**
+  - 💰 R$ 938.250 | 📐 435 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-oxy-em-xangri-la-rs-1460478264
+
+- **Terreno à venda no Condomínio Oxy, em Xangri-Lá/RS.**
+  - 💰 R$ 999.759 | 📐 451 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-oxy-em-xangri-la-rs-1460473605
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 453.480 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460469842
+
+- **Terreno à venda no Condomínio Oxy, em Xangri-Lá/RS.**
+  - 💰 R$ 1.005.297 | 📐 431 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-oxy-em-xangri-la-rs-1460469404
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 545.612 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460469388
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 434.903 | 📐 252 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460469317
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 423.976 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460469178
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 300.499 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468971
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 464.407 | 📐 329 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468787
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 539.593 | 📐 329 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468761
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 338.744 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468733
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 596.553 | 📐 371 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468738
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 486.261 | 📐 286 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468711
+
+- **Terreno à venda no Condomínio Oxy, em Xangri-Lá/RS.**
+  - 💰 R$ 952.582 | 📐 439 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-oxy-em-xangri-la-rs-1460468718
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 433.811 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468672
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 300.499 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468645
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 453.480 | 📐 280 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468595
+
+- **Terreno à venda no Condomínio Oxy, em Xangri-Lá/RS.**
+  - 💰 R$ 996.970 | 📐 431 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-oxy-em-xangri-la-rs-1460468551
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 423.976 | 📐 253 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468527
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 490.632 | 📐 280 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468533
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 453.480 | 📐 258 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468535
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 568.268 | 📐 325 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468530
+
+- **Terreno à venda no Condomínio Oxy, em Xangri-Lá/RS.**
+  - 💰 R$ 1.090.935 | 📐 424 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-oxy-em-xangri-la-rs-1460468513
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 423.976 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468522
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 464.407 | 📐 325 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468517
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 600.862 | 📐 328 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468509
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 338.744 | 📐 257 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468521
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 423.976 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468497
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 423.976 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468494
+
+- **Terreno à venda no Condomínio Oxy, em Xangri-Lá/RS.**
+  - 💰 R$ 940.478 | 📐 437 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-oxy-em-xangri-la-rs-1460468506
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 413.049 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468437
+
+- **Terreno à venda no Condomínio Oxy, em Xangri-Lá/RS.**
+  - 💰 R$ 761.098 | 📐 413 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-oxy-em-xangri-la-rs-1460468459
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 490.632 | 📐 342 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468457
+
+- **Terreno à venda no Condomínio Oxy, em Xangri-Lá/RS.**
+  - 💰 R$ 917.500 | 📐 431 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-oxy-em-xangri-la-rs-1460468449
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 340.929 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468398
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 433.811 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1460468407
+
+- **Terreno de esquina frente norte no bairro Remanso em Capão da Canoa**
+  - 💰 R$ 420.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-frente-norte-no-bairro-remanso-em-capao-da-canoa-1457387805
+
+- **Terreno À Venda no Condomínio Lótus**
+  - 💰 R$ 2.500.000 | 📐 473 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-no-condominio-lotus-1459961127
+
+- **Terreno beira lago á venda no condomínio Sense Xangri-lá REF:**
+  - 💰 R$ 1.500.000 | 📐 457 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-no-condominio-sense-xangri-la-ref-1459461919
+
+- **Terreno com 311m² à venda no condomínio Zen em Xangri-Lá. REF:**
+  - 💰 R$ 750.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-311m-a-venda-no-condominio-zen-em-xangri-la-ref-1459179184
+
+- **Terreno com 449m² à venda no condomínio Atlântida Lagos Park em Xangri**
+  - 💰 R$ 1.590.000 | 📐 449 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-449m-a-venda-no-condominio-atlantida-lagos-park-em-xangri-la-ref-1459167621
+
+- **Terreno com 314 m² à venda no condomínio Sunset, em Xangri-Lá. REF:**
+  - 💰 R$ 640.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-314-m-a-venda-no-condominio-sunset-em-xangri-la-ref-1459167365
+
+- **Terreno com 300m² à venda no Condomínio PLENO em XANGRI-LÁ. REF:**
+  - 💰 R$ 435.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-300m-a-venda-no-condominio-pleno-em-xangri-la-ref-1459167357
+
+- **Terreno com 343 m² à venda no condomínio Zen em Xangri-Lá. REF:**
+  - 💰 R$ 450.000 | 📐 343 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-343-m-a-venda-no-condominio-zen-em-xangri-la-ref-1459167362
+
+- **Terreno com 252m² à venda no condomínio Wave Home Resort em Xangri-Lá.**
+  - 💰 R$ 530.000 | 📐 252 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-252m-a-venda-no-condominio-wave-home-resort-em-xangri-la-ref-1459167348
+
+- **Terreno 252m2 condomínio Sunset em Xangrila**
+  - 💰 R$ 600.000 | 📐 481 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-252m2-condominio-sunset-em-xangrila-1458858063
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 1.850.000 | 📐 552 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1458557877
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 700.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1458551485
+
+- **Terreno à venda, Condomínio Allure Beach Condo - Xangri-Lá/RS**
+  - 💰 R$ 320.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-allure-beach-condo-xangri-la-rs-1458551458
+
+- **Terreno à venda, Condomínio Green Village - Xangri-Lá/RS**
+  - 💰 R$ 1.850.000 | 📐 933 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-green-village-xangri-la-rs-1457260663
+
+- **Terreno à venda, Condomínio Raro Arquitetura Brasileira - Xangri-Lá/RS**
+  - 💰 R$ 450.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-raro-arquitetura-brasileira-xangri-la-rs-1457258855
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 375.000 | 📐 299 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1457258820
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 300.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1457258839
+
+- **Lote à venda em condomínio fechado**
+  - 💰 R$ 600.000 | 📐 253 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-em-condominio-fechado-1457234075
+
+- **Lote à venda em Xangri-lá - Condomínio fechado**
+  - 💰 R$ 900.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-em-xangri-la-condominio-fechado-1457233696
+
+- **Lote à venda em condomínio fechado**
+  - 💰 R$ 540.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-em-condominio-fechado-1457233637
+
+- **Lote à venda em condomínio fechado**
+  - 💰 R$ 1.200.000 | 📐 357 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-em-condominio-fechado-1457233646
+
+- **Terreno à venda, 2 vagas, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 320.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-2-vagas-condominio-wave-home-resort-xangri-la-rs-1456535586
+
+- **Terreno à Venda no Condomínio Amare**
+  - 💰 R$ 689.000 | 📐 308 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-amare-1456526899
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.390.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1456526650
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.150.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1455767627
+
+- **Terreno em condominio**
+  - 💰 R$ 1.800.000 | 📐 448 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-1454615802
+
+- **Excelente terreno na Enseada Lagos de XANGRILÁ**
+  - 💰 R$ 2.700.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-na-enseada-lagos-de-xangrila-1454562344
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 445.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1444132055
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 700.000 | 📐 308 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1445178015
+
+- **Terreno à venda no Condomínio SUNSET**
+  - 💰 R$ 550.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-sunset-1454284007
+
+- **Lançamento em Xangri-lá Condomínio Verano**
+  - 💰 R$ 354.520 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lancamento-em-xangri-la-condominio-verano-1454283087
+
+- **Verano Xangri-Lá | Condomínio Fechado com Lazer Completo no Litoral**
+  - 💰 R$ 356.000 | 📐 284 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/verano-xangri-la-condominio-fechado-com-lazer-completo-no-litoral-1454281925
+
+- **Lote Beira Lago no Sunset**
+  - 💰 R$ 870.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-beira-lago-no-sunset-1454281931
+
+- **Lote no Condomínio SUNSET**
+  - 💰 R$ 490.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-sunset-1454281949
+
+- **Lote à venda no SUNSET em Xangri-lá**
+  - 💰 R$ 636.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-sunset-em-xangri-la-1454281877
+
+- **Terreno à venda no condomínio Sunset**
+  - 💰 R$ 1.100.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-sunset-1454281870
+
+- **Lote no Condomínio Santorini  Xangri-Lá**
+  - 💰 R$ 165.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-santorini-xangri-la-1454281871
+
+- **Lote à venda no Condomínio Sunset**
+  - 💰 R$ 650.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-condominio-sunset-1454281878
+
+- **Lote à venda no Sunset**
+  - 💰 R$ 600.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-sunset-1454281880
+
+- **Terreno à venda no Condomínio SUNSET**
+  - 💰 R$ 900.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-sunset-1454281918
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 670.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1454109673
+
+- **Lotes comerciais no Santorini**
+  - 💰 R$ 1.800.000 | 📐 1048 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lotes-comerciais-no-santorini-1454084356
+
+- **Lote Beira Lago no Sunset**
+  - 💰 R$ 1.100.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-beira-lago-no-sunset-1454084361
+
+- **Terreno de frente ao Clube no Sunset**
+  - 💰 R$ 590.000 | 📐 366 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-frente-ao-clube-no-sunset-1454084296
+
+- **Terreno beira lago no Condomínio Sunset**
+  - 💰 R$ 900.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-no-condominio-sunset-1454084215
+
+- **Terreno em Condomínio à venda Avenida José Bruno Klein, XANGRI-LÁ - Xa**
+  - 💰 R$ 498.455 | 📐 319 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-jose-bruno-klein-xangri-la-xangri-la-1453999142
+
+- **Terreno em Condomínio à venda Avenida José Bruno Klein, XANGRI-LÁ - Xa**
+  - 💰 R$ 751.848 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-jose-bruno-klein-xangri-la-xangri-la-1453999055
+
+- **Terreno em Condomínio à venda Avenida José Bruno Klein, XANGRI-LÁ - Xa**
+  - 💰 R$ 502.695 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-jose-bruno-klein-xangri-la-xangri-la-1453998190
+
+- **Terreno em Condomínio à venda Avenida José Bruno Klein, XANGRI-LÁ - Xa**
+  - 💰 R$ 733.004 | 📐 339 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-jose-bruno-klein-xangri-la-xangri-la-1453997784
+
+- **Terreno em Condomínio à venda Avenida José Bruno Klein, XANGRI-LÁ - Xa**
+  - 💰 R$ 486.649 | 📐 270 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-jose-bruno-klein-xangri-la-xangri-la-1453997577
+
+- **CJBK 1 Lote 610221003-130**
+  - 💰 R$ 700.000 | 📐 480 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/cjbk-1-lote-610221003-130-1453928060
+
+- **Wave Home Resort**
+  - 💰 R$ 443.577 | 📐 278 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/wave-home-resort-1453927887
+
+- **Oxy Xangri-lá**
+  - 💰 R$ 744.574 | 📐 389 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oxy-xangri-la-1453926918
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 450.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1420122049
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 400.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1420491929
+
+- **Terreno à venda, Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 453.000 | 📐 278 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-peninsula-melnick-arcadia-osorio-rs-1430641546
+
+- **Playa Vista**
+  - 💰 R$ 1.605.900 | 📐 430 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/playa-vista-1453567814
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 849.000 | 📐 368 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1453539875
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 600.000 | 📐 276 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1432748872
+
+- **Imóvel no Centro, Xangri-Lá**
+  - 💰 R$ 577.500 | 📐 385 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-no-centro-xangri-la-1453368044
+
+- **vivendas da marina, condominio mais náutico do sul do pais**
+  - 💰 R$ 631.815 | 📐 541 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vivendas-da-marina-condominio-mais-nautico-do-sul-do-pais-1453330206
+
+- **RP 100 Lote 612671058-9**
+  - 💰 R$ 630.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/rp-100-lote-612671058-9-1453263653
+
+- **Wave Home Resort**
+  - 💰 R$ 721.197 | 📐 346 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/wave-home-resort-1453257098
+
+- **MR3 100 Lote 612671058-7**
+  - 💰 R$ 590.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/mr3-100-lote-612671058-7-1453256778
+
+- **CEDM 1 Lote 66347**
+  - 💰 R$ 455.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/cedm-1-lote-66347-1453256762
+
+- **Celebration**
+  - 💰 R$ 967.610 | 📐 536 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/celebration-1453255984
+
+- **RRC 101 Lote 3493-SH**
+  - 💰 R$ 650.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/rrc-101-lote-3493-sh-1453256012
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.180.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1437997893
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 299.000 | 📐 271 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1439827088
+
+- **Terreno à venda, Condomínio Blue, Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 520.000 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-blue-xangri-la-xangri-la-rs-1439540363
+
+- **Terreno no Wave Home Resort em Xangri-lá**
+  - 💰 R$ 580.000 | 📐 257 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-wave-home-resort-em-xangri-la-1453184569
+
+- **Terreno Residencial em Maristela**
+  - 💰 R$ 567.722 | 📐 315 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maristela-1453090297
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 750.000 | 📐 313 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1426294078
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.250.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1449116016
+
+- **Terreno à venda, Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 795.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-zen-concept-resort-xangri-la-rs-1425114811
+
+- **Terreno à venda, 1 vaga, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 490.000 | 📐 263 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1-vaga-condominio-zen-concept-resort-xangri-la-rs-1439252540
+
+- **Terreno no bairro Enseada**
+  - 💰 R$ 1.666.000 | 📐 450 m²
+  - 📍 Centro — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-enseada-1452848176
+
+- **Magnífica residência no Condomínio Enseada Lagos em Xangri-la!**
+  - 💰 R$ 1.802.000 | 📐 450 m²
+  - 📍 Centro — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/magnifica-residencia-no-condominio-enseada-lagos-em-xangri-la-1452848172
+
+- **Terreno à venda, Condomínio Los Cobos - Xangri-Lá/RS**
+  - 💰 R$ 2.100.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-los-cobos-xangri-la-rs-1427161389
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 275.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1413306563
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.200.000 | 📐 483 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1350259492
+
+- **Sofisticação em cada metro quadrado**
+  - 💰 R$ 1.800.000 | 📐 533 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sofisticacao-em-cada-metro-quadrado-1452404980
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.350.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1436352828
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.480.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1449127991
+
+- **Terreno à venda, Condomínio Península Melnick Arcadia - Osório/RS**
+  - 💰 R$ 350.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-peninsula-melnick-arcadia-osorio-rs-1426296110
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 530.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1392263314
+
+- **Terreno à venda, Condomínio Pleno Quatro Estações - Xangri-Lá/RS**
+  - 💰 R$ 620.000 | 📐 343 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-pleno-quatro-estacoes-xangri-la-rs-1426297340
+
+- **Terreno à venda, Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 400.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-joy-xangri-la-xangri-la-rs-1351150009
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.450.000 | 📐 396 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1451806731
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 980.000 | 📐 400 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1451805802
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 780.000 | 📐 362 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1451806002
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.180.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1437997996
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.300.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1445692019
+
+- **Terreno à venda, 533 m² - Condomínio Lótus - Xangri-lá/RS REF:**
+  - 💰 R$ 1.200.000 | 📐 533 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-533-m-condominio-lotus-xangri-la-rs-ref-1451732020
+
+- **Terreno à Venda no Condomínio Wave**
+  - 💰 R$ 280.000 | 📐 248 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-wave-1451723978
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.549.000 | 📐 472 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1370346896
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 550.000 | 📐 249 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1426294243
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.150.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1350849516
+
+- **Terreno à venda, Condomínio Allure Beach Condo - Xangri-Lá/RS**
+  - 💰 R$ 320.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-allure-beach-condo-xangri-la-rs-1426297344
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.380.000 | 📐 397 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1447670543
+
+- **Terreno Residencial em Arpoador**
+  - 💰 R$ 1.930.000 | 📐 511 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-arpoador-1451210440
+
+- **Terreno em condomínio fechado com 412m² em Xangri-lá**
+  - 💰 R$ 800.000 | 📐 412 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-com-412m-em-xangri-la-1451210371
+
+- **Terreno Residencial em Rainha do Mar**
+  - 💰 R$ 547.275 | 📐 373 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-rainha-do-mar-1451210290
+
+- **Terreno Residencial em Rainha do Mar**
+  - 💰 R$ 360.045 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-rainha-do-mar-1451209906
+
+- **Terreno Residencial em Arpoador**
+  - 💰 R$ 1.605.900 | 📐 430 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-arpoador-1451209832
+
+- **Terreno Residencial em Rainha do Mar**
+  - 💰 R$ 460.000 | 📐 371 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-rainha-do-mar-1451209564
+
+- **Lote de 314 m2 a venda no Condomínio Sunset em Xangri-lá.**
+  - 💰 R$ 650.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-314-m2-a-venda-no-condominio-sunset-em-xangri-la-1451209512
+
+- **Terreno Residencial em Santorini**
+  - 💰 R$ 850.000 | 📐 336 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-santorini-1451209476
+
+- **Terreno Residencial em Arpoador**
+  - 💰 R$ 967.610 | 📐 536 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-arpoador-1451209018
+
+- **Terreno Residencial em Remanso**
+  - 💰 R$ 443.577 | 📐 267 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-remanso-1451208996
+
+- **Terreno Residencial em Remanso**
+  - 💰 R$ 650.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-remanso-1451208755
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 550.000 | 📐 249 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1426293317
+
+- **Terreno à venda, Condomínio Raro Arquitetura Brasileira - Xangri-Lá/RS**
+  - 💰 R$ 390.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-raro-arquitetura-brasileira-xangri-la-rs-1426883027
+
+- **Terreno à venda, Condomínio Raro Arquitetura Brasileira - Xangri-Lá/RS**
+  - 💰 R$ 450.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-raro-arquitetura-brasileira-xangri-la-rs-1449833298
+
+- **Terreno à venda no Wave Home Resort em Xangri-Lá, RS**
+  - 💰 R$ 430.815 | 📐 10 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-wave-home-resort-em-xangri-la-rs-1449584227
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 2.000.000 | 📐 451 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1449227195
+
+- **Terreno com 311,63 m² à venda no condomínio Zen em Xangri-Lá. REF:**
+  - 💰 R$ 680.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-311-63-m-a-venda-no-condominio-zen-em-xangri-la-ref-1449212332
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.250.000 | 📐 391 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1436352533
+
+- **Terreno residencial de 263 m² à venda no Wave Home Resort, Xangri Lá  **
+  - 💰 R$ 550.000 | 📐 263 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-de-263-m-a-venda-no-wave-home-resort-xangri-la-r-590-000-1441055436
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.250.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1449117278
+
+- **Terreno em Remanso**
+  - 💰 R$ 630.000 | 📐 276 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-remanso-1449209959
+
+- **Lote molhado a venda no condomínio Zen Resort Concept.**
+  - 💰 R$ 600.000 | 📐 276 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-molhado-a-venda-no-condominio-zen-resort-concept-1449207735
+
+- **Terreno em Condomínio à venda Avenida Central, Atlantida - Xangri-Lá**
+  - 💰 R$ 761.099 | 📐 894 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-central-atlantida-xangri-la-1449201136
+
+- **Terreno em Centro**
+  - 💰 R$ 1.100.000 | 📐 520 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1449201009
+
+- **Terreno em Condomínio à venda Avenida Central, Atlantida - Xangri-Lá**
+  - 💰 R$ 940.590 | 📐 940 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-central-atlantida-xangri-la-1449199891
+
+- **Terreno em Condominio para Venda - 0m², 0 dormitórios, Playa Vista**
+  - 💰 R$ 2.150.000 | 📐 476 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-para-venda-0m-0-dormitorios-playa-vista-1449199653
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 2.150.000 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1449199643
+
+- **Terreno em Remanso**
+  - 💰 R$ 650.000 | 📐 315 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-remanso-1449199419
+
+- **Terreno em Maristela**
+  - 💰 R$ 1.800.000 | 📐 1049 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-maristela-1449198712
+
+- **Terreno 252m2 condomínio Sunset em Xangrila**
+  - 💰 R$ 600.000 | 📐 482 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-252m2-condominio-sunset-em-xangrila-1449198367
+
+- **Terreno Na Avenida Paraguassu com 420m²**
+  - 💰 R$ 1.300.000 | 📐 421 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-avenida-paraguassu-com-420m-1449198259
+
+- **Terreno em Centro**
+  - 💰 R$ 1.900.000 | 📐 458 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1449198252
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 1.685.000 | 📐 461 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1449198190
+
+- **Terreno em Centro**
+  - 💰 R$ 1.390.000 | 📐 492 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1449198168
+
+- **Terreno em Centro**
+  - 💰 R$ 990.000 | 📐 407 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1449198120
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 870.000 | 📐 451 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1449198136
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 1.350.000 | 📐 451 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1449198151
+
+- **Terreno em Santorini**
+  - 💰 R$ 850.000 | 📐 337 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-santorini-1449197897
+
+- **Terreno em Centro**
+  - 💰 R$ 1.900.000 | 📐 451 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1449197882
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 1.100.000 | 📐 393 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1449197870
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 1.900.000 | 📐 458 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1449197818
+
+- **Terreno em condomínio fechado com 412m² em Xangri-lá**
+  - 💰 R$ 800.000 | 📐 413 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-com-412m-em-xangri-la-1449197723
+
+- **Lote de 314 m2 a venda no Condomínio Sunset em Xangri-lá.**
+  - 💰 R$ 650.000 | 📐 315 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-314-m2-a-venda-no-condominio-sunset-em-xangri-la-1449197713
+
+- **Terreno em Maristela**
+  - 💰 R$ 590.000 | 📐 312 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-maristela-1449197716
+
+- **Terreno em Atlântida**
+  - 💰 R$ 2.650.000 | 📐 517 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-1449197707
+
+- **Terreno em Centro**
+  - 💰 R$ 2.200.000 | 📐 520 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1449197587
+
+- **Terreno em Centro**
+  - 💰 R$ 700.000 | 📐 481 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1449197572
+
+- **Terreno em Condominio para Venda - 0m², 0 dormitórios, Playa Vista**
+  - 💰 R$ 1.610.000 | 📐 423 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-para-venda-0m-0-dormitorios-playa-vista-1449197577
+
+- **Terreno em Condomínio à venda Avenida Central, Atlantida - Xangri-Lá**
+  - 💰 R$ 1.398.962 | 📐 1005 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-central-atlantida-xangri-la-1449197450
+
+- **Terreno em Condominio para Venda - 0m², 0 dormitórios, Playa Vista**
+  - 💰 R$ 1.530.000 | 📐 445 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-para-venda-0m-0-dormitorios-playa-vista-1449197331
+
+- **Terreno Beira Lago com 240,00m² à venda no Condomínio Allure, Xangri-L**
+  - 💰 R$ 420.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-com-240-00m-a-venda-no-condominio-allure-xangri-la-ref-1449191509
+
+- **Terreno com 243,36 m² à venda no condomínio Wave Home Resort Xangri-Lá**
+  - 💰 R$ 285.000 | 📐 243 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-243-36-m-a-venda-no-condominio-wave-home-resort-xangri-la-ref-1449191255
+
+- **Terreno Beira Lago com 240,30m² à venda no Condomínio Allure  Xangri-L**
+  - 💰 R$ 395.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-com-240-30m-a-venda-no-condominio-allure-xangri-la-ref-1449191109
+
+- **Terreno com 425,04m² à Venda no Condomínio Las Dunas, Xangri-Lá. REF:**
+  - 💰 R$ 2.500.000 | 📐 425 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-425-04m-a-venda-no-condominio-las-dunas-xangri-la-ref-1449191120
+
+- **Terreno à venda no Condomínio Zen, em Xangri-Lá, com 300,01m². REF:**
+  - 💰 R$ 850.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-zen-em-xangri-la-com-300-01m-ref-1449190999
+
+- **Terreno com 280 m² à venda no condomínio Sunset Xangri-lá. REF:**
+  - 💰 R$ 540.000 | 📐 280 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-280-m-a-venda-no-condominio-sunset-xangri-la-ref-1449191005
+
+- **Terreno Beira Lago com 362m² à venda no Condomínio Zen em Xangri-Lá. R**
+  - 💰 R$ 750.000 | 📐 362 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-com-362m-a-venda-no-condominio-zen-em-xangri-la-ref-1449191011
+
+- **Terreno à venda no Condomínio Wave Home Resort, em Xangri-Lá, com 263m**
+  - 💰 R$ 550.000 | 📐 263 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-wave-home-resort-em-xangri-la-com-263m-ref-1449190957
+
+- **Terreno em Maristela**
+  - 💰 R$ 19.000.000 | 📐 5701 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-maristela-1449162263
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 1.738.210 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1384052241
+
+- **Terreno à venda, Pleno Quatro Estações - Xangri-Lá/RS**
+  - 💰 R$ 382.000 | 📐 277 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-pleno-quatro-estacoes-xangri-la-rs-1429739575
+
+- **Terreno à venda, Royal Lake - Xangri-Lá/RS**
+  - 💰 R$ 1.190.000 | 📐 422 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-royal-lake-xangri-la-rs-1400492777
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.290.000 | 📐 434 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1444141148
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.500.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1449114116
+
+- **Terreno em Condominio Bairro Atlântida**
+  - 💰 R$ 930.000 | 📐 343 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-atlantida-1422996037
+
+- **Terreno em Xangri-lá: Ótima Oportunidade!**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-xangri-la-otima-oportunidade-1448724300
+
+- **Terreno em condomínio de luxo**
+  - 💰 R$ 1.149.900 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-de-luxo-1448692579
+
+- **Terreno à venda, Condomínio Joy Vila dos Lagos - Xangri-Lá/RS**
+  - 💰 R$ 350.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-vila-dos-lagos-xangri-la-rs-1422846123
+
+- **Terreno à venda, ISLA Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 700.000 | 📐 350 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-isla-xangri-la-xangri-la-rs-1445692117
+
+- **Terreno à venda, 3 vagas, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 800.000 | 📐 413 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-3-vagas-condominio-zen-concept-resort-xangri-la-rs-1438340173
+
+- **Terreno à venda, Condomínio Allure Beach Condo - Xangri-Lá/RS**
+  - 💰 R$ 325.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-allure-beach-condo-xangri-la-rs-1444136761
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 304 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1444792481
+
+- **Terreno à venda no Condomínio Santorini - Xangrilá Centro. REF: 3729**
+  - 💰 R$ 259.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-santorini-xangrila-centro-ref-3729-1447820684
+
+- **Terreno à venda Bairro Boulevard Xangri-la REF: 4577**
+  - 💰 R$ 265.000 | 📐 270 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-bairro-boulevard-xangri-la-ref-4577-1447820548
+
+- **Terreno Duas frentes em Condomínio de Golf - Green Village Golf Club R**
+  - 💰 R$ 950.000 | 📐 984 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-duas-frentes-em-condominio-de-golf-green-village-golf-club-ref-4965-1447820385
+
+- **Oportunidade: Terreno beira lago em Condomínio Allure Beach Condo, Xan**
+  - 💰 R$ 373.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-terreno-beira-lago-em-condominio-allure-beach-condo-xangri-la-venda-ref-1447820374
+
+- **Vientos Resort - Terrenos 78% lotes beira lago, Localização privilegia**
+  - 💰 R$ 636.693 | 📐 400 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vientos-resort-terrenos-78-lotes-beira-lago-localizacao-privilegiada-em-xangri-la-co-1447817102
+
+- **Terreno à venda em condomínio fechado ISLA XANGRI-LÁ REF: 3733**
+  - 💰 R$ 704.473 | 📐 361 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-isla-xangri-la-ref-3733-1447817075
+
+- **Terreno à venda em condomínio fechado ISLA XANGRI-LÁ REF: 3726**
+  - 💰 R$ 605.120 | 📐 348 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-isla-xangri-la-ref-3726-1447817033
+
+- **Oportunidade única: Terreno no Condomínio Fechado WAVE - Aproveite! RE**
+  - 💰 R$ 414.000 | 📐 270 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-terreno-no-condominio-fechado-wave-aproveite-ref-4349-1447817040
+
+- **Terreno à venda em condomínio fechado ISLA XANGRI-LÁ REF: 3731**
+  - 💰 R$ 786.659 | 📐 312 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-isla-xangri-la-ref-3731-1447816864
+
+- **Terreno à venda em Condominio fechado Joy 01 Xangrilá, centro Xangrilá**
+  - 💰 R$ 319.000 | 📐 280 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-joy-01-xangrila-centro-xangrila-ref-3728-1447816724
+
+- **Terrenos no Aura Garden Place - Conforto, qualidade e exclusividade RE**
+  - 💰 R$ 319.000 | 📐 250 m²
+  - 📍 Rainha do Mar — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-no-aura-garden-place-conforto-qualidade-e-exclusividade-ref-4609-1447816517
+
+- **Terreno Condominio Joy - Xangri-lá REF: 4698**
+  - 💰 R$ 350.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-joy-xangri-la-ref-4698-1447816522
+
+- **OXY XANGRI-LÁ - Onde a sofisticação encontra a natureza! REF: 4272**
+  - 💰 R$ 761.098 | 📐 399 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oxy-xangri-la-onde-a-sofisticacao-encontra-a-natureza-ref-4272-1447816529
+
+- **Oportunidade: Terreno Beira Lago Condomínio em Xangri-Lá - Condomínio **
+  - 💰 R$ 250.000 | 📐 259 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-terreno-beira-lago-condominio-em-xangri-la-condominio-joy-ref-5123-1447816176
+
+- **Terreno Condomínio à venda em Xangri-Lá - Riviera 2 REF: 4600**
+  - 💰 R$ 1.300.000 | 📐 420 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-a-venda-em-xangri-la-riviera-2-ref-4600-1447815997
+
+- **Terreno 100% Beira Lago à venda em Xangri-lá - Royal Lake Xangri-lá RE**
+  - 💰 R$ 890.000 | 📐 305 m²
+  - 📍 Rainha do Mar — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-100-beira-lago-a-venda-em-xangri-la-royal-lake-xangri-la-ref-4635-1447815993
+
+- **Terreno Condomínio à venda em Xangri-Lá, no bairro Remanso - Zen Conce**
+  - 💰 R$ 1.200.000 | 📐 371 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-a-venda-em-xangri-la-no-bairro-remanso-zen-concept-resort-ref-4907-1447815690
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.280.000 | 📐 458 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1447671580
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 550.000 | 📐 362 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1439827090
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.390.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1436060042
+
+- **Terreno à venda, Condomínio Bosques de Atlantida - Xangri-Lá/RS**
+  - 💰 R$ 2.200.000 | 📐 716 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-bosques-de-atlantida-xangri-la-rs-1422846964
+
+- **Terreno em condomínio fechado com 412m² em Xangri-lá**
+  - 💰 R$ 800.000 | 📐 413 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-com-412m-em-xangri-la-1446903816
+
+- **Terreno à venda, Condomínio Green Village - Xangri-Lá/RS**
+  - 💰 R$ 850.000 | 📐 592 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-green-village-xangri-la-rs-1436629585
+
+- **Terreno à venda, Condomínio Raro Arquitetura Brasileira - Xangri-Lá/RS**
+  - 💰 R$ 665.000 | 📐 305 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-raro-arquitetura-brasileira-xangri-la-rs-1442265326
+
+- **Lote no Santorini em Xangri-lá**
+  - 💰 R$ 180.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-santorini-em-xangri-la-1446196423
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 350.000 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1421120710
+
+- **Terreno no condomínio fechado Sea Coast, em Xangri-Lá/RS.**
+  - 💰 R$ 1.300.000 | 📐 489 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-fechado-sea-coast-em-xangri-la-rs-1422846134
+
+- **Terreno à venda, Condomínio Bosques de Atlantida - Xangri-Lá/RS**
+  - 💰 R$ 2.200.000 | 📐 514 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-bosques-de-atlantida-xangri-la-rs-1422850593
+
+- **Terreno em condomínio à venda no Bairro Remanso em Xangri-lá - RS REF:**
+  - 💰 R$ 470.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-no-bairro-remanso-em-xangri-la-rs-ref-3580-1445389641
+
+- **Terreno à venda em condomínio no bairro Remanso - Xangri-lá - RS REF: **
+  - 💰 R$ 850.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-no-bairro-remanso-xangri-la-rs-ref-3576-1445389636
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 330.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1441987890
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 268.000 | 📐 260 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1343190751
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.400.000 | 📐 495 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1369650455
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.500.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1371139317
+
+- **Lote a venda no Condomínio Wave Home Resort**
+  - 💰 R$ 430.814 | 📐 278 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-condominio-wave-home-resort-1444320368
+
+- **Terreno à venda, Condomínio Allure Beach Condo - Xangri-Lá/RS**
+  - 💰 R$ 320.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-allure-beach-condo-xangri-la-rs-1444132042
+
+- **Terreno em Remanso**
+  - 💰 R$ 650.000 | 📐 315 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-remanso-1443546013
+
+- **Terreno beira lago á venda no Condomínio Seasons Xangri-Lá REF:**
+  - 💰 R$ 2.010.000 | 📐 512 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-no-condominio-seasons-xangri-la-ref-1443375324
+
+- **Terreno plano 300 m² em Rainha do Mar ? rua asfaltada e pronto para co**
+  - 💰 R$ 138.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-plano-300-m-em-rainha-do-mar-rua-asfaltada-e-pronto-para-construir-1442215446
+
+- **Terreno de esquina no Centro de Xangri-Lá ? 360 m² em frente à praça, **
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-no-centro-de-xangri-la-360-m-em-frente-a-praca-localizacao-privileg-1442215305
+
+- **Terreno em Condomínio em Xangri-lá  240m² em Condomínio Fechado com La**
+  - 💰 R$ 350.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-em-xangri-la-240m-em-condominio-fechado-com-lazer-completo-1441941936
+
+- **Terreno de 324 m² em Noiva do Mar ? esquina com a Alameda**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-324-m-em-noiva-do-mar-esquina-com-a-alameda-1441332561
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 495.000 | 📐 260 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1441064697
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 520.000 | 📐 388 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1439827089
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 350.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1438730174
+
+- **Terreno em condomínio fechado Playa Vista em Xangri-Lá!**
+  - 💰 R$ 1.605.900 | 📐 430 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-playa-vista-em-xangri-la-1438294724
+
+- **Terreno em Centro**
+  - 💰 R$ 350.000 | 📐 241 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1437670639
+
+- **Terreno à venda em Xangri-lá/RS**
+  - 💰 R$ 800.000 | 📐 1015 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-xangri-la-rs-1437284572
+
+- **Terreno à venda, no condomínio Riviera, Xangri-lá/RS**
+  - 💰 R$ 850.000 | 📐 667 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-riviera-xangri-la-rs-1437284273
+
+- **TERRENO EM CONDOMINIO EM XANGI-LA**
+  - 💰 R$ 350.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-em-xangi-la-1436729843
+
+- **Terreno à venda, Condomínio Green Village - Xangri-Lá/RS**
+  - 💰 R$ 750.000 | 📐 591 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-green-village-xangri-la-rs-1436622783
+
+- **Terreno em Centro**
+  - 💰 R$ 700.000 | 📐 481 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1436355717
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 700.000 | 📐 480 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1436138797
+
+- **Lote no Santorini em Xangri-lá**
+  - 💰 R$ 180.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-santorini-em-xangri-la-1436033883
+
+- **Lote à venda**
+  - 💰 R$ 228.000 | 📐 287 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-1435867585
+
+- **Lote no Condomínio ZEN**
+  - 💰 R$ 486.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-zen-1435848151
+
+- **Lote no Santorini Fase 1**
+  - 💰 R$ 315.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-santorini-fase-1-1435845876
+
+- **Lote no Sunset com vista para o lago**
+  - 💰 R$ 650.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-sunset-com-vista-para-o-lago-1435845790
+
+- **Terreno no Santorini em Xangri-lá**
+  - 💰 R$ 190.800 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-santorini-em-xangri-la-1435845603
+
+- **CONDOMÍNIO OXY**
+  - 💰 R$ 744.574 | 📐 389 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-oxy-1435845529
+
+- **Lote no Santorini**
+  - 💰 R$ 240.000 | 📐 252 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-santorini-1435845520
+
+- **O MAIOR LOTE DO CAPÃO ILHAS RESORT**
+  - 💰 R$ 1.080.000 | 📐 1056 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/o-maior-lote-do-capao-ilhas-resort-1435845541
+
+- **Condomínio AURA em Xangri-lá**
+  - 💰 R$ 288.000 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-aura-em-xangri-la-1435845516
+
+- **Terreno Condomínio Sunset**
+  - 💰 R$ 530.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-sunset-1435845523
+
+- **Lote no Santorini**
+  - 💰 R$ 229.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-santorini-1435841539
+
+- **Zen Concept Resort**
+  - 💰 R$ 450.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/zen-concept-resort-1435841519
+
+- **Vientos Resort**
+  - 💰 R$ 450.000 | 📐 375 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vientos-resort-1435841403
+
+- **AMARE HOME RESORT**
+  - 💰 R$ 689.000 | 📐 312 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amare-home-resort-1435841375
+
+- **Santorine, Bairro Planejado**
+  - 💰 R$ 213.206 | 📐 243 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/santorine-bairro-planejado-1435841377
+
+- **Terreno à venda**
+  - 💰 R$ 195.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841339
+
+- **LÓTUS ATLÂNTIDA**
+  - 💰 R$ 2.300.000 | 📐 469 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lotus-atlantida-1435841315
+
+- **Condomínio Pleno 4 Estações**
+  - 💰 R$ 598.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-pleno-4-estacoes-1435841321
+
+- **Condomínio VERANO**
+  - 💰 R$ 235.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-verano-1435841305
+
+- **LOTE XANGRI-LÁ BOULEVARD**
+  - 💰 R$ 295.000 | 📐 244 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-xangri-la-boulevard-1435841270
+
+- **Lote no Santorini**
+  - 💰 R$ 230.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-santorini-1435841225
+
+- **Lote à venda no Condomínio Pleno**
+  - 💰 R$ 630.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-condominio-pleno-1435841244
+
+- **Terrreno Santorini**
+  - 💰 R$ 250.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrreno-santorini-1435841185
+
+- **Terreno no Santorini em Xangri-lá**
+  - 💰 R$ 190.800 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-santorini-em-xangri-la-1435841089
+
+- **Terreno à venda no Condomínio SUNSET**
+  - 💰 R$ 590.000 | 📐 366 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-sunset-1435841020
+
+- **Terrreno Santorini**
+  - 💰 R$ 240.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrreno-santorini-1435840930
+
+- **Terreno no Santorini**
+  - 💰 R$ 220.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-santorini-1435840980
+
+- **Lote Ilha no Condomínio AMARE**
+  - 💰 R$ 1.400.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-ilha-no-condominio-amare-1435840983
+
+- **Lote no Allure**
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-allure-1435840860
+
+- **Lote no Sunset**
+  - 💰 R$ 550.000 | 📐 270 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-sunset-1435840873
+
+- **Terreno no Santorini**
+  - 💰 R$ 250.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-santorini-1435840895
+
+- **Lote no Sunset**
+  - 💰 R$ 700.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-sunset-1435840896
+
+- **Terrreno Santorini**
+  - 💰 R$ 200.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrreno-santorini-1435840850
+
+- **Lote a venda no condomínio Las Palmas Xangri-lá. 259m² REF: TE0020**
+  - 💰 R$ 510.000 | 📐 259 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-condominio-las-palmas-xangri-la-259m-ref-te0020-1435645536
+
+- **Lote a venda no condomínio Las Palmas Xangri-lá. 278m² REF: TE0023**
+  - 💰 R$ 720.000 | 📐 278 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-condominio-las-palmas-xangri-la-278m-ref-te0023-1434939097
+
+- **Terreno Residencial em Remanso**
+  - 💰 R$ 721.197 | 📐 342 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-remanso-1434892723
+
+- **Terreno 237 M² - Condomínio Allure Beach Condo, em Xangri-Lá/RS**
+  - 💰 R$ 410.000 | 📐 237 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-237-m-condominio-allure-beach-condo-em-xangri-la-rs-1434627858
+
+- **Terreno à venda, 422 m² - Condomínio Playa Vista - Xangri-lá/RS REF: T**
+  - 💰 R$ 1.806.000 | 📐 422 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-422-m-condominio-playa-vista-xangri-la-rs-ref-te0287-1433203690
+
+- **Terreno beira lago à venda, 552 m² - Condomínio Celebration - Xangri-l**
+  - 💰 R$ 1.850.000 | 📐 552 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-552-m-condominio-celebration-xangri-la-rs-ref-te0317-1433203661
+
+- **Terreno à venda, 253m² - Condomínio Allure - Xangri-lá/RS REF: TE0452**
+  - 💰 R$ 320.000 | 📐 253 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-253m-condominio-allure-xangri-la-rs-ref-te0452-1433203472
+
+- **Terreno à venda, 460m² - Condomínio Playa Vista - Xangri-lá/RS REF: TE**
+  - 💰 R$ 1.860.000 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-460m-condominio-playa-vista-xangri-la-rs-ref-te0295-1433203466
+
+- **Terreno beira lago à venda, 300 m² - Condomínio Sunset - Xangri-lá/RS **
+  - 💰 R$ 900.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-300-m-condominio-sunset-xangri-la-rs-ref-1433203347
+
+- **Terreno beira lago à venda, 278 m² - Condomínio Amare - Xangri-lá/RS R**
+  - 💰 R$ 1.390.000 | 📐 278 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-278-m-condominio-amare-xangri-la-rs-ref-1433203342
+
+- **Terreno à venda em Condomínio Blue, Xangri-lá - Centro, pronto para co**
+  - 💰 R$ 560.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-blue-xangri-la-centro-pronto-para-construir-ref-1433203078
+
+- **Terreno à venda, 254 m² - Condomínio Allure - Xangri-lá/RS REF: TE0485**
+  - 💰 R$ 250.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-254-m-condominio-allure-xangri-la-rs-ref-te0485-1433199177
+
+- **Terreno à venda, 287 m² - Condomínio Sunset - Xangri-lá/RS REF: TE0580**
+  - 💰 R$ 540.000 | 📐 287 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-287-m-condominio-sunset-xangri-la-rs-ref-te0580-1433199173
+
+- **Terreno frente para o lago á venda no condominio Sunset REF: TE0111**
+  - 💰 R$ 650.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-para-o-lago-a-venda-no-condominio-sunset-ref-te0111-1433198445
+
+- **Terreno à venda, 250 m² - Condomínio Zen - Xangri-lá/RS REF: TE0318**
+  - 💰 R$ 550.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-250-m-condominio-zen-xangri-la-rs-ref-te0318-1433197823
+
+- **Terreno beira lago - Condomínio Zen em Xangri-lá REF:**
+  - 💰 R$ 655.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-condominio-zen-em-xangri-la-ref-1433197829
+
+- **Terreno à venda, 444 m² - Condomínio Playa Vista - Xangri-lá/RS REF: T**
+  - 💰 R$ 1.785.000 | 📐 444 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-444-m-condominio-playa-vista-xangri-la-rs-ref-te0290-1433197821
+
+- **Terreno à venda, 422 m² - Condomínio Playa Vista - Xangri-lá/RS REF: T**
+  - 💰 R$ 1.780.000 | 📐 422 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-422-m-condominio-playa-vista-xangri-la-rs-ref-te0288-1433197834
+
+- **Terreno beira lago à venda, 378 m² - Condomínio Amare - Xangri-lá/RS R**
+  - 💰 R$ 1.270.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-378-m-condominio-amare-xangri-la-rs-ref-te0552-1433196904
+
+- **Terreno à venda, 486 m² no Condomínio Celebration - Xangri-lá/RS REF: **
+  - 💰 R$ 967.000 | 📐 486 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-486-m-no-condominio-celebration-xangri-la-rs-ref-te0283-1433196898
+
+- **Terreno à venda, 303m² no Condomínio Isla - Xangri-lá/RS REF: TE0196**
+  - 💰 R$ 495.000 | 📐 303 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-303m-no-condominio-isla-xangri-la-rs-ref-te0196-1433196903
+
+- **Terreno à venda, 457 m² no Condomínio Sense - Xangri-lá/RS REF: TE0248**
+  - 💰 R$ 1.900.000 | 📐 457 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-457-m-no-condominio-sense-xangri-la-rs-ref-te0248-1433196910
+
+- **Terreno beira lago à venda, 240 m² - Condomínio Allure - Xangri-lá/RS **
+  - 💰 R$ 380.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-240-m-condominio-allure-xangri-la-rs-ref-te0461-1433196911
+
+- **Terreno à venda, 422 m² - Condomínio Playa Vista - Xangri-lá/RS REF: T**
+  - 💰 R$ 1.746.000 | 📐 422 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-422-m-condominio-playa-vista-xangri-la-rs-ref-te0286-1433196695
+
+- **Terreno á venda no condomínio Malibu - 392m² REF:**
+  - 💰 R$ 1.200.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-malibu-392m-ref-1433196684
+
+- **Terreno à venda, 320 m² - Condomínio Isla - Xangri-lá/RS REF: TE0528**
+  - 💰 R$ 480.000 | 📐 320 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-320-m-condominio-isla-xangri-la-rs-ref-te0528-1433196491
+
+- **Terreno beira lago à venda, 450 m² - Condomínio Lótus - Xangri-lá/RS R**
+  - 💰 R$ 2.320.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-450-m-condominio-lotus-xangri-la-rs-ref-te0496-1433196477
+
+- **Terreno beira lago à venda, 310 m² - Condomínio Raro - Xangri-lá/RS RE**
+  - 💰 R$ 690.000 | 📐 310 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-310-m-condominio-raro-xangri-la-rs-ref-te0542-1433196482
+
+- **Terreno beira lago à venda, 240 m² - Condomínio Allure - Xangri-lá/RS **
+  - 💰 R$ 380.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-240-m-condominio-allure-xangri-la-rs-ref-te0405-1433196457
+
+- **Terreno à venda, 444 m² - Condomínio Playa Vista - Xangri-lá/RS REF: T**
+  - 💰 R$ 1.785.000 | 📐 444 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-444-m-condominio-playa-vista-xangri-la-rs-ref-te0289-1433196446
+
+- **Terreno à venda, 592 m² - Condomínio Bosques de Atlântida - Xangri-lá/**
+  - 💰 R$ 2.120.000 | 📐 575 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-592-m-condominio-bosques-de-atlantida-xangri-la-rs-ref-te0168-1433196390
+
+- **Terreno à venda - Condomínio Sunset - Xangri-lá/RS REF: TE0109**
+  - 💰 R$ 700.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-rs-ref-te0109-1433196392
+
+- **Terreno à venda, 240 m² - Condomínio Allure - Xangri-lá/RS REF: TE0414**
+  - 💰 R$ 300.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-240-m-condominio-allure-xangri-la-rs-ref-te0414-1433196365
+
+- **Terreno beira lago à venda, 301 m² - Condomínio Zen - Xangri-lá/RS REF**
+  - 💰 R$ 710.000 | 📐 301 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-301-m-condominio-zen-xangri-la-rs-ref-te0354-1433196291
+
+- **Terreno de esquina com 290m² à venda - Condomínio Sunset, em Xangri-lá**
+  - 💰 R$ 530.000 | 📐 290 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-com-290m-a-venda-condominio-sunset-em-xangri-la-ref-1433196268
+
+- **Terreno beira lago à venda, 240 m² - Condomínio Allure - Xangri-lá/RS **
+  - 💰 R$ 420.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-240-m-condominio-allure-xangri-la-rs-ref-te0443-1433196263
+
+- **Terreno à venda, 315 m² - Condomínio Allure - Xangri-lá/RS REF: TE0490**
+  - 💰 R$ 295.000 | 📐 315 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-315-m-condominio-allure-xangri-la-rs-ref-te0490-1433196137
+
+- **Terreno frente para o lago á venda no condominio Sunset REF:**
+  - 💰 R$ 720.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-para-o-lago-a-venda-no-condominio-sunset-ref-1433196142
+
+- **Terreno à venda, 536 m² no Condomínio Celebration - Xangri-lá/RS REF: **
+  - 💰 R$ 967.610 | 📐 536 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-536-m-no-condominio-celebration-xangri-la-rs-ref-te0276-1433196136
+
+- **Wave: Viva o equilíbrio perfeito entre natureza, lazer e conforto em X**
+  - 💰 R$ 467.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/wave-viva-o-equilibrio-perfeito-entre-natureza-lazer-e-conforto-em-xangri-la-ref-1433196125
+
+- **Terreno esquina à venda, 240 m² - Condomínio Allure - Xangri-lá/RS REF**
+  - 💰 R$ 295.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-esquina-a-venda-240-m-condominio-allure-xangri-la-rs-ref-te0503-1433196001
+
+- **Terreno à venda, 378 m² - Condomínio Amare - Xangri-lá/RS REF: TE0314**
+  - 💰 R$ 1.150.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-378-m-condominio-amare-xangri-la-rs-ref-te0314-1433195865
+
+- **Terreno à venda, 514 m² - Condomínio Celebration - Xangri-lá/RS REF: T**
+  - 💰 R$ 1.600.000 | 📐 514 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-514-m-condominio-celebration-xangri-la-rs-ref-te0316-1433195868
+
+- **Terreno beira lago à venda, 240 m² - Condomínio Allure - Xangri-lá/RS **
+  - 💰 R$ 330.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-240-m-condominio-allure-xangri-la-rs-ref-te0410-1433195848
+
+- **Terreno à venda, 313m² no Condomínio Isla - Xangri-lá/RS REF: TE0195**
+  - 💰 R$ 440.000 | 📐 313 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-313m-no-condominio-isla-xangri-la-rs-ref-te0195-1433195855
+
+- **Terreno beira lago à venda, 500m² no Condomínio Sense - Xangri-lá/RS R**
+  - 💰 R$ 2.000.000 | 📐 501 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-500m-no-condominio-sense-xangri-la-rs-ref-te0256-1433195818
+
+- **Terreno à venda, 536 m² no Condomínio Celebration - Xangri-lá/RS REF: **
+  - 💰 R$ 967.610 | 📐 536 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-536-m-no-condominio-celebration-xangri-la-rs-ref-te0275-1433195803
+
+- **Terreno à venda, 450 m² no Condomínio Los Cobos - Xangri-lá/RS REF: TE**
+  - 💰 R$ 3.000.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-450-m-no-condominio-los-cobos-xangri-la-rs-ref-te0184-1433195809
+
+- **Terreno de esquina 328m² à venda em Xangri-lá, Condomínio Sunset, pron**
+  - 💰 R$ 600.000 | 📐 328 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-328m-a-venda-em-xangri-la-condominio-sunset-pronto-para-construir-re-1433195820
+
+- **Terreno beira lago à venda, 300 m² - Condomínio Raro - Xangri-lá/RS RE**
+  - 💰 R$ 690.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-300-m-condominio-raro-xangri-la-rs-ref-1433195822
+
+- **Terreno esquina à venda, 447 m² - Condomínio Amare - Xangri-lá/RS REF:**
+  - 💰 R$ 960.000 | 📐 447 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-esquina-a-venda-447-m-condominio-amare-xangri-la-rs-ref-te0136-1433195788
+
+- **Terreno beira lago á venda no Condomínio Seasons Xangri-Lá REF:**
+  - 💰 R$ 1.990.000 | 📐 480 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-no-condominio-seasons-xangri-la-ref-1433195794
+
+- **Terreno beira lago à venda, 444 m² - Condomínio Sea Coast - Xangri-lá/**
+  - 💰 R$ 1.260.000 | 📐 444 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-444-m-condominio-sea-coast-xangri-la-rs-ref-te0347-1433195681
+
+- **Terreno à venda, 465 m² - Condomínio Los Cobos - Xangri-lá/RS REF: TE0**
+  - 💰 R$ 3.500.000 | 📐 465 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-465-m-condominio-los-cobos-xangri-la-rs-ref-te0366-1433195680
+
+- **Terreno beira lago à venda, 667 m² - Condomínio Riviera Xangri-lá - Xa**
+  - 💰 R$ 795.000 | 📐 667 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-667-m-condominio-riviera-xangri-la-xangri-la-rs-ref-te03-1433195683
+
+- **Terreno esquina à venda, 491 m² - Condomínio Sense - Xangri-lá/RS REF:**
+  - 💰 R$ 1.380.000 | 📐 491 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-esquina-a-venda-491-m-condominio-sense-xangri-la-rs-ref-te0594-1433195693
+
+- **Terreno à venda, 250 m² - Condomínio Allure - Xangri-lá/RS REF: TE0449**
+  - 💰 R$ 250.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-250-m-condominio-allure-xangri-la-rs-ref-te0449-1433195651
+
+- **Terreno beira lago à venda, 275 m² - Condomínio Raro - Xangri-lá/RS RE**
+  - 💰 R$ 600.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-275-m-condominio-raro-xangri-la-rs-ref-1433195662
+
+- **Terreno à venda, 314 m² - Condomínio Isla - Xangri-lá/RS REF: TE0487**
+  - 💰 R$ 450.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-314-m-condominio-isla-xangri-la-rs-ref-te0487-1433195665
+
+- **Seasons: luxo, exclusividade e lazer completo no litoral de Xangri-Lá.**
+  - 💰 R$ 2.400.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/seasons-luxo-exclusividade-e-lazer-completo-no-litoral-de-xangri-la-ref-1433195668
+
+- **Lote beira lago a venda no condomínio Sense Xangri-lá REF: TE0053**
+  - 💰 R$ 1.940.000 | 📐 501 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-beira-lago-a-venda-no-condominio-sense-xangri-la-ref-te0053-1433195636
+
+- **Terreno beira lago à venda, 275 m² - Condomínio Raro - Xangri-lá/RS RE**
+  - 💰 R$ 620.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-275-m-condominio-raro-xangri-la-rs-ref-te0524-1433195639
+
+- **Terreno à venda, 314 m² - Condomínio Isla - Xangri-lá/RS REF:**
+  - 💰 R$ 490.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-314-m-condominio-isla-xangri-la-rs-ref-1433195648
+
+- **Terreno à venda, 300 m² no Condomínio Isla - Xangri-lá/RS REF: TE0193**
+  - 💰 R$ 750.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-no-condominio-isla-xangri-la-rs-ref-te0193-1433195608
+
+- **Royal Lake: O Futuro da Moradia Exclusiva à Beira do Lago em Xangri-Lá**
+  - 💰 R$ 890.000 | 📐 20 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/royal-lake-o-futuro-da-moradia-exclusiva-a-beira-do-lago-em-xangri-la-ref-1433195611
+
+- **Lote beira lago a venda no condomínio Sense Xangri-lá REF: TE0057**
+  - 💰 R$ 2.100.000 | 📐 473 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-beira-lago-a-venda-no-condominio-sense-xangri-la-ref-te0057-1433195603
+
+- **Terreno com 273 m² à venda em Xangri-lá, Condomínio Sunset, pronto par**
+  - 💰 R$ 480.000 | 📐 273 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-273-m-a-venda-em-xangri-la-condominio-sunset-pronto-para-construir-ref-1433195615
+
+- **Terreno à venda, 254 m² - Condomínio Allure - Xangri-lá/RS REF: TE0459**
+  - 💰 R$ 320.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-254-m-condominio-allure-xangri-la-rs-ref-te0459-1433195616
+
+- **Terreno beira lago á venda no Condomínio Enseada Lagos de Xangri-Lá/RS**
+  - 💰 R$ 2.650.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-no-condominio-enseada-lagos-de-xangri-la-rs-ref-1433195635
+
+- **Terreno com vista para o lago com 395m2 á venda- Condomínio Amare Xang**
+  - 💰 R$ 970.000 | 📐 395 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-vista-para-o-lago-com-395m2-a-venda-condominio-amare-xangri-la-rs-ref-1433195589
+
+- **Terreno beira lago à venda, 529 m²- Condomínio Celebration - Xangri-lá**
+  - 💰 R$ 1.800.000 | 📐 529 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-529-m-condominio-celebration-xangri-la-rs-ref-te0122-1433195598
+
+- **Terreno à venda, 250 m² no Condomínio Zen - Xangri-lá/RS REF: TE0259**
+  - 💰 R$ 445.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-250-m-no-condominio-zen-xangri-la-rs-ref-te0259-1433195582
+
+- **Terreno à venda, 486 m² no Condomínio Celebration - Xangri-lá/RS REF: **
+  - 💰 R$ 967.000 | 📐 486 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-486-m-no-condominio-celebration-xangri-la-rs-ref-te0284-1433195573
+
+- **Terreno à venda, 240 m² - Condomínio Allure - Xangri-lá/RS REF: TE0484**
+  - 💰 R$ 245.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-240-m-condominio-allure-xangri-la-rs-ref-te0484-1433195580
+
+- **Terreno à venda, 1015 m² - Condomínio Green Village - Xangri-lá/RS REF**
+  - 💰 R$ 874.000 | 📐 1015 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1015-m-condominio-green-village-xangri-la-rs-ref-te0350-1433195469
+
+- **Terreno à venda, 314 m² - Condomínio Isla - Xangri-lá/RS REF:**
+  - 💰 R$ 420.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-314-m-condominio-isla-xangri-la-rs-ref-1433195473
+
+- **Terreno á beira lago - Condomínio Zen em Xangri-lá REF:**
+  - 💰 R$ 650.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-beira-lago-condominio-zen-em-xangri-la-ref-1433195448
+
+- **Terreno beira lago à venda, 300 m² - Condomínio Raro - Xangri-lá/RS RE**
+  - 💰 R$ 645.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-300-m-condominio-raro-xangri-la-rs-ref-te0550-1433195426
+
+- **Terreno à venda, 339m² no Condomínio Isla - Xangri-lá/RS REF: TE0204**
+  - 💰 R$ 460.000 | 📐 339 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-339m-no-condominio-isla-xangri-la-rs-ref-te0204-1433195339
+
+- **Terreno à venda, 450m² no Condomínio Los Cobos - Xangri-lá/RS REF: TE0**
+  - 💰 R$ 2.500.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-450m-no-condominio-los-cobos-xangri-la-rs-ref-te0189-1433195315
+
+- **Terreno à venda, 254 m² - Condomínio Allure - Xangri-lá/RS REF: TE0460**
+  - 💰 R$ 295.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-254-m-condominio-allure-xangri-la-rs-ref-te0460-1433195316
+
+- **Terreno à venda, 716m² - Condomínio Bosques de Atlântida - Xangri-lá/R**
+  - 💰 R$ 2.120.000 | 📐 716 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-716m-condominio-bosques-de-atlantida-xangri-la-rs-ref-te0169-1433195301
+
+- **Terreno à venda, 240 m² - Condomínio Allure - Xangri-lá/RS REF: TE0467**
+  - 💰 R$ 295.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-240-m-condominio-allure-xangri-la-rs-ref-te0467-1433195320
+
+- **Terreno à venda, 370 m² - Condomínio Amare - Xangri-lá/RS REF: TE0138**
+  - 💰 R$ 960.000 | 📐 370 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-370-m-condominio-amare-xangri-la-rs-ref-te0138-1433195285
+
+- **Terreno à venda, 326m² no Condomínio Isla - Xangri-lá/RS REF: TE0200**
+  - 💰 R$ 439.000 | 📐 326 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-326m-no-condominio-isla-xangri-la-rs-ref-te0200-1433195238
+
+- **Terreno beira lago à venda, 460 m² no Condomínio Celebration - Xangri-**
+  - 💰 R$ 1.748.000 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-460-m-no-condominio-celebration-xangri-la-rs-ref-te0282-1433195248
+
+- **Terreno beira lago à venda, 460 m² - Condomínio Celebration - Xangri-l**
+  - 💰 R$ 1.680.000 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-460-m-condominio-celebration-xangri-la-rs-ref-te0498-1433195252
+
+- **Terreno à venda, 457 m² - Condomínio Sense - Xangri-lá/RS REF: TE0306**
+  - 💰 R$ 1.550.000 | 📐 457 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-457-m-condominio-sense-xangri-la-rs-ref-te0306-1433195228
+
+- **Terreno à venda, 511 m² - Condomínio Playa Vista - Xangri-lá/RS REF: T**
+  - 💰 R$ 1.930.000 | 📐 511 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-511-m-condominio-playa-vista-xangri-la-rs-ref-te0293-1433195251
+
+- **Terreno beira lago à venda, 487 m² no Condomínio Celebration - Xangri-**
+  - 💰 R$ 1.778.610 | 📐 487 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-487-m-no-condominio-celebration-xangri-la-rs-ref-te0277-1433195227
+
+- **Terreno à venda, 460 m² no Condomínio Celebration - Xangri-lá/RS REF: **
+  - 💰 R$ 1.395.000 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-460-m-no-condominio-celebration-xangri-la-rs-ref-te0280-1433195237
+
+- **Terreno beira lago à venda, 460 m² - Condomínio Celebration - Xangri-l**
+  - 💰 R$ 1.738.210 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-460-m-condominio-celebration-xangri-la-rs-ref-te0278-1433195197
+
+- **Terreno à venda, 450 m² - Condomínio Enseada Lagos de Xangri-Lá - Xang**
+  - 💰 R$ 2.550.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-450-m-condominio-enseada-lagos-de-xangri-la-xangri-la-rs-ref-te0374-1433195211
+
+- **Terreno à venda, 460 m² no Condomínio Celebration - Xangri-lá/RS REF: **
+  - 💰 R$ 1.279.700 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-460-m-no-condominio-celebration-xangri-la-rs-ref-te0279-1433195212
+
+- **Terreno beira lago à venda - Condomínio Amare - Xangri-lá/RS REF:**
+  - 💰 R$ 1.272.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-condominio-amare-xangri-la-rs-ref-1433195205
+
+- **Terreno frente lago à venda, 314 m² - Condomínio Isla - Xangri-lá/RS R**
+  - 💰 R$ 480.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-lago-a-venda-314-m-condominio-isla-xangri-la-rs-ref-te0488-1433195210
+
+- **Terreno beira lago à venda, 300 m² - Condomínio Sunset - Xangri-lá/RS **
+  - 💰 R$ 848.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-300-m-condominio-sunset-xangri-la-rs-ref-te0341-1433195208
+
+- **Terreno à venda, 240 m² - Condomínio Allure - Xangri-lá/RS REF: TE0404**
+  - 💰 R$ 270.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-240-m-condominio-allure-xangri-la-rs-ref-te0404-1433195216
+
+- **Terreno à venda, 483m² no Condomínio Sense - Xangri-lá/RS REF: TE0253**
+  - 💰 R$ 1.490.000 | 📐 483 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-483m-no-condominio-sense-xangri-la-rs-ref-te0253-1433195232
+
+- **Terreno beira lago à venda, 300 m² - Condomínio Riviera Xangri-lá - Xa**
+  - 💰 R$ 690.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-300-m-condominio-riviera-xangri-la-xangri-la-rs-ref-te05-1433195111
+
+- **Terreno beira lago à venda, 460 m² no Condomínio Celebration - Xangri-**
+  - 💰 R$ 1.748.000 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-460-m-no-condominio-celebration-xangri-la-rs-ref-te0281-1433195090
+
+- **Terreno à venda, 253 m² - Condomínio Allure - Xangri-lá/RS REF: TE0486**
+  - 💰 R$ 260.000 | 📐 253 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-253-m-condominio-allure-xangri-la-rs-ref-te0486-1433195095
+
+- **Terreno beira lago à venda, 248 m² - Condomínio Allure - Xangri-lá/RS **
+  - 💰 R$ 410.000 | 📐 248 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-248-m-condominio-allure-xangri-la-rs-ref-te0521-1433195105
+
+- **Terreno à venda, 487 m² - Condomínio Enseada Lagos de Xangri-Lá - Xang**
+  - 💰 R$ 2.000.000 | 📐 487 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-487-m-condominio-enseada-lagos-de-xangri-la-xangri-la-rs-ref-te0525-1433195091
+
+- **Terreno à venda, 310 m² - Condomínio Amare - Xangri-lá/RS REF: TE0478**
+  - 💰 R$ 680.000 | 📐 310 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-310-m-condominio-amare-xangri-la-rs-ref-te0478-1433195087
+
+- **Terreno à venda, 275 m² - Condomínio Raro - Xangri-lá/RS REF: TE0541**
+  - 💰 R$ 420.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-275-m-condominio-raro-xangri-la-rs-ref-te0541-1433195059
+
+- **Terreno à venda, 254 m² - Condomínio Allure - Xangri-lá/RS REF: TE0441**
+  - 💰 R$ 310.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-254-m-condominio-allure-xangri-la-rs-ref-te0441-1433195064
+
+- **Terreno à venda, 314m² - Condomínio Isla - Xangri-lá/RS REF:**
+  - 💰 R$ 540.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-314m-condominio-isla-xangri-la-rs-ref-1433195075
+
+- **Terreno beira lago à venda, 240 m² - Condomínio Allure - Xangri-lá/RS **
+  - 💰 R$ 420.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-240-m-condominio-allure-xangri-la-rs-ref-te0444-1433195058
+
+- **Terreno à venda, 475 m² - Condomínio Enseada Lagos de Xangri-Lá - Xang**
+  - 💰 R$ 1.500.000 | 📐 475 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-475-m-condominio-enseada-lagos-de-xangri-la-xangri-la-rs-ref-te0300-1433195057
+
+- **Terreno esquina à venda, 252m² - Condomínio Allure - Xangri-lá/RS REF:**
+  - 💰 R$ 320.000 | 📐 252 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-esquina-a-venda-252m-condominio-allure-xangri-la-rs-ref-te0406-1433195056
+
+- **Terreno à venda, 249 m² - Condomínio Allure - Xangri-lá/RS REF: TE0442**
+  - 💰 R$ 300.000 | 📐 249 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-249-m-condominio-allure-xangri-la-rs-ref-te0442-1433195078
+
+- **Terreno beira lago à venda, 378 m² - Condomínio Amare - Xangri-lá/RS R**
+  - 💰 R$ 1.320.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-378-m-condominio-amare-xangri-la-rs-ref-te0575-1433194988
+
+- **Terreno beira lago à venda, 240 m² - Condomínio Allure - Xangri-lá/RS **
+  - 💰 R$ 400.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-240-m-condominio-allure-xangri-la-rs-ref-1433195014
+
+- **Terreno beira lago à venda, 474 m² - Condomínio Celebration - Xangri-l**
+  - 💰 R$ 1.450.000 | 📐 474 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-474-m-condominio-celebration-xangri-la-rs-ref-te0559-1433195021
+
+- **Vientos: exclusividade e lazer de alto padrão no centro de Xangri-Lá. **
+  - 💰 R$ 606.000 | 📐 325 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vientos-exclusividade-e-lazer-de-alto-padrao-no-centro-de-xangri-la-ref-1433194981
+
+- **Terreno beira lago à venda, 275 m² - Condomínio Raro - Xangri-lá/RS RE**
+  - 💰 R$ 650.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-275-m-condominio-raro-xangri-la-rs-ref-te0576-1433194992
+
+- **Lançamento - Condomínio de lotes Aura Xangri-lá !!! REF:**
+  - 💰 R$ 380.000 | 📐 20 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lancamento-condominio-de-lotes-aura-xangri-la--ref-1433194967
+
+- **Terreno à venda - Condomínio Sunset - Xangri-lá/RS REF:**
+  - 💰 R$ 590.000 | 📐 295 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-rs-ref-1433194974
+
+- **Terreno à venda, 450 m² no Condomínio Los Cobos - Xangri-lá/RS REF:**
+  - 💰 R$ 2.450.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-450-m-no-condominio-los-cobos-xangri-la-rs-ref-1433194942
+
+- **Terreno beira lago à venda, 300 m² - Condomínio Sunset - Xangri-lá/RS **
+  - 💰 R$ 900.000 | 📐 301 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-300-m-condominio-sunset-xangri-la-rs-ref-1433194959
+
+- **Terreno à venda - Condomínio Amare - Xangri-lá/RS REF:**
+  - 💰 R$ 742.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-xangri-la-rs-ref-1433194956
+
+- **Terreno beira lago à venda, 378 m² - Condomínio Amare - Xangri-lá/RS R**
+  - 💰 R$ 1.300.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-378-m-condominio-amare-xangri-la-rs-ref-1433194913
+
+- **Terreno beira lago com 248m² à venda no Condomínio Allure Beach em Xan**
+  - 💰 R$ 350.000 | 📐 248 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-com-248m-a-venda-no-condominio-allure-beach-em-xangri-la-ref-1433194927
+
+- **Pleno Quatro Estações: Um novo conceito de viver na praia o ano inteir**
+  - 💰 R$ 480.000 | 📐 20 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/pleno-quatro-estacoes-um-novo-conceito-de-viver-na-praia-o-ano-inteiro-em-xangri-la-ref-1433194905
+
+- **Terreno beira lago à venda, 378 m² - Condomínio Amare - Xangri-lá/RS R**
+  - 💰 R$ 1.300.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-a-venda-378-m-condominio-amare-xangri-la-rs-ref-1433194898
+
+- **Terreno á venda no Condomínio Wave Xangri-Lá! 284m REF:**
+  - 💰 R$ 360.000 | 📐 284 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-wave-xangri-la-284m-ref-1433194773
+
+- **Terreno à Venda em Atlântida**
+  - 💰 R$ 600.000 | 📐 525 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-atlantida-1432941805
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 1.900.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1432704674
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 319.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1432702737
+
+- **Terreno em Condominio para Venda - 0m², 0 dormitórios, Playa Vista**
+  - 💰 R$ 2.150.000 | 📐 475 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-para-venda-0m-0-dormitorios-playa-vista-1432702092
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 686.774 | 📐 566 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1432701665
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 2.200.000 | 📐 519 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1432701576
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 990.000 | 📐 499 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1432701530
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 1.100.000 | 📐 519 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1432701510
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 890.000 | 📐 333 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1432701241
+
+- **Terreno à venda, Condomínio Allure Beach Condo - Xangri-Lá/RS**
+  - 💰 R$ 320.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-allure-beach-condo-xangri-la-rs-1432474751
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 590.000 | 📐 256 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1431906568
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1430637068
+
+- **Terreno à venda, Condomínio Raro Arquitetura Brasileira - Xangri-Lá/RS**
+  - 💰 R$ 390.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-raro-arquitetura-brasileira-xangri-la-rs-1430637070
+
+- **Terreno em Maristela**
+  - 💰 R$ 590.000 | 📐 312 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-maristela-1429279661
+
+- **Terreno em Remanso**
+  - 💰 R$ 630.000 | 📐 276 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-remanso-1429279503
+
+- **Terreno Residencial em Remanso**
+  - 💰 R$ 630.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-remanso-1429216761
+
+- **Terreno à venda, Condomínio Raro Arquitetura Brasileira - Xangri-Lá/RS**
+  - 💰 R$ 360.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-raro-arquitetura-brasileira-xangri-la-rs-1414654476
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 600.000 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1422846535
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 470.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1413311643
+
+- **Terreno à venda, Condomínio Pleno Quatro Estações - Xangri-Lá/RS**
+  - 💰 R$ 580.000 | 📐 308 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-pleno-quatro-estacoes-xangri-la-rs-1348686378
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 2.250.000 | 📐 534 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336706123
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 960.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1350488367
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.310.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1336706558
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 341 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1336558715
+
+- **Terreno à venda, Condomínio Playa Vista - Xangri-Lá/RS**
+  - 💰 R$ 1.806.700 | 📐 422 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-playa-vista-xangri-la-rs-1384052234
+
+- **Terreno à venda, Las Palmas - Xangri-Lá/RS**
+  - 💰 R$ 615.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-las-palmas-xangri-la-rs-1336706591
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 470.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1343190201
+
+- **Terreno à venda, Las Palmas - Xangri-Lá/RS**
+  - 💰 R$ 550.000 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-las-palmas-xangri-la-rs-1336706371
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 279 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1336706068
+
+- **Terreno no Condominio Zen Concept em Xangri-Lá**
+  - 💰 R$ 630.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-zen-concept-em-xangri-la-1428672891
+
+- **Terreno beira-lago no Condominio Isla-Xangri-lá**
+  - 💰 R$ 590.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-no-condominio-isla-xangri-la-1428672804
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 330.000 | 📐 260 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1422846120
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 360.000 | 📐 267 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1421120674
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 585.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1422846399
+
+- **Terreno à venda, Condomínio Joy Vila dos Lagos - Xangri-Lá/RS**
+  - 💰 R$ 350.000 | 📐 241 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-vila-dos-lagos-xangri-la-rs-1422846112
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.500.000 | 📐 498 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1371139237
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 295.000 | 📐 249 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1350849404
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 967.610 | 📐 536 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1384052138
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.892.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1369649519
+
+- **Terreno à venda, Condomínio Playa Vista - Xangri-Lá/RS**
+  - 💰 R$ 1.785.600 | 📐 445 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-playa-vista-xangri-la-rs-1384402978
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 580.000 | 📐 276 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1337629917
+
+- **Terreno à venda, Condomínio Playa Vista - Xangri-Lá/RS**
+  - 💰 R$ 1.930.000 | 📐 511 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-playa-vista-xangri-la-rs-1384402974
+
+- **Terreno à venda, Condomínio Isla - Xangri-Lá/RS**
+  - 💰 R$ 1.100.000 | 📐 440 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-rs-1350488378
+
+- **Terreno à venda, Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 750.000 | 📐 362 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-zen-concept-resort-xangri-la-rs-1340982396
+
+- **Terreno à venda, Condomínio Riviera Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 500.000 | 📐 627 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-riviera-xangri-la-xangri-la-rs-1336706496
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.490.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1406280809
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.090.000 | 📐 375 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1336706393
+
+- **Terreno na Praia de Xangrilá**
+  - 💰 R$ 214.910 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-de-xangrila-1427924672
+
+- **Terreno À Venda no Condomínio Amare**
+  - 💰 R$ 720.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-no-condominio-amare-1427776347
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 450.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1426293355
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 361.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1391613332
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 1.748.340 | 📐 462 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1384052136
+
+- **Terreno à venda, Condomínio Verano Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 325.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-verano-xangri-la-xangri-la-rs-1426883477
+
+- **Terreno à venda, Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.050.000 | 📐 357 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-zen-concept-resort-xangri-la-rs-1426583885
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 700.000 | 📐 279 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1389837045
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 450.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1359052689
+
+- **Terreno à venda, Condomínio Joy Vila dos Lagos - Xangri-Lá/RS**
+  - 💰 R$ 266.000 | 📐 283 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-vila-dos-lagos-xangri-la-rs-1349103607
+
+- **Terreno no Villagio de Atlandida**
+  - 💰 R$ 1.200.000 | 📐 638 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-villagio-de-atlandida-1425996575
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.350.000 | 📐 394 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1410216502
+
+- **Terreno à venda, Condomínio Playa Vista - Xangri-Lá/RS**
+  - 💰 R$ 3.320.000 | 📐 570 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-playa-vista-xangri-la-rs-1384403107
+
+- **Terreno à venda, Condomínio Playa Vista - Xangri-Lá/RS**
+  - 💰 R$ 1.746.100 | 📐 422 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-playa-vista-xangri-la-rs-1386042421
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 490.000 | 📐 274 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1336706167
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 1.394.810 | 📐 462 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1384052239
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.000.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1336706296
+
+- **Lote molhado a venda no condomínio Zen Resort Concept.**
+  - 💰 R$ 600.000 | 📐 276 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-molhado-a-venda-no-condominio-zen-resort-concept-1425008263
+
+- **Lote de 314 m2 a venda no Condomínio Sunset em Xangri-lá.**
+  - 💰 R$ 650.000 | 📐 315 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-314-m2-a-venda-no-condominio-sunset-em-xangri-la-1425007442
+
+- **Terreno em Condomínio à venda Rua RS-389, Centro - Xangri-Lá**
+  - 💰 R$ 636.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-rs-389-centro-xangri-la-1424756112
+
+- **Terreno à venda, Condomínio Quintas do Lago - Xangri-Lá/RS**
+  - 💰 R$ 890.000 | 📐 593 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-quintas-do-lago-xangri-la-rs-1342219753
+
+- **Terreno à venda, Condomínio Isla Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 470.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-isla-xangri-la-xangri-la-rs-1376300362
+
+- **Terreno à venda, Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 540.000 | 📐 245 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-wave-home-resort-xangri-la-rs-1413306411
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 950.000 | 📐 301 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1407319199
+
+- **Terreno à venda, Condomínio Raro Arquitetura Brasileira - Xangri-Lá/RS**
+  - 💰 R$ 480.000 | 📐 284 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-raro-arquitetura-brasileira-xangri-la-rs-1402183479
+
+- **Terreno em òtima localização em Xangri-lá, praia Coqueiros**
+  - 💰 R$ 315.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-tima-localizacao-em-xangri-la-praia-coqueiros-1423644377
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 1.390.000 | 📐 491 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1423588317
+
+- **Terreno Residencial em Maristela**
+  - 💰 R$ 1.800.000 | 📐 1048 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-maristela-1423587951
+
+- **Terreno Residencial em Arpoador**
+  - 💰 R$ 489.990 | 📐 354 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-arpoador-1423587832
+
+- **Terreno Na Avenida Paraguassu com 420m²**
+  - 💰 R$ 1.300.000 | 📐 420 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-avenida-paraguassu-com-420m-1423587814
+
+- **Terreno Residencial em Arpoador**
+  - 💰 R$ 358.990 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-arpoador-1423587772
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 990.000 | 📐 406 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1423587485
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 1.900.000 | 📐 457 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1423587446
+
+- **Terreno Residencial em Santorini**
+  - 💰 R$ 495.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-santorini-1423587193
+
+- **Terreno Residencial em Santorini**
+  - 💰 R$ 495.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-santorini-1423587197
+
+- **Terreno à venda, Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 400.000 | 📐 284 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-wave-home-resort-xangri-la-rs-1423170048
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.340.000 | 📐 453 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1348686336
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 585.000 | 📐 332 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1352617729
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1337631758
+
+- **Terreno à venda, Condomínio Quintas do Lago - Xangri-Lá/RS**
+  - 💰 R$ 750.000 | 📐 540 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-quintas-do-lago-xangri-la-rs-1342219691
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 430.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1359050124
+
+- **Terreno à venda, Joy Vila dos Lagos - Xangri-Lá/RS**
+  - 💰 R$ 210.000 | 📐 241 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-joy-vila-dos-lagos-xangri-la-rs-1337014462
+
+- **Terreno à venda, Condomínio Verano Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 299.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-verano-xangri-la-xangri-la-rs-1407319207
+
+- **Terreno em Condominio Bairro Rainha do Mar**
+  - 💰 R$ 750.000 | 📐 667 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-rainha-do-mar-1422995369
+
+- **Terreno em Condominio Bairro Remanso**
+  - 💰 R$ 780.000 | 📐 885 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-remanso-1422994829
+
+- **Terreno em Condominio Bairro Marina**
+  - 💰 R$ 670.000 | 📐 301 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-marina-1422994456
+
+- **Terreno em Condomínio à venda Rodovia Estrada do Mar, Parque Antártica**
+  - 💰 R$ 1.026.000 | 📐 357 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rodovia-estrada-do-mar-parque-antartica-capao-da-canoa-1422784855
+
+- **Terreno à venda, Royal Lake - Xangri-Lá/RS**
+  - 💰 R$ 890.000 | 📐 301 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-royal-lake-xangri-la-rs-1400491751
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 455.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1421695224
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.500.000 | 📐 472 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1371139236
+
+- **Imóvel à venda em Xangri-lá - Condomínio ALLURE, lote/terreno 250 metr**
+  - 💰 R$ 295.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-a-venda-em-xangri-la-condominio-allure-lote-terreno-250-metros-quadrados-1421546238
+
+- **Terreno À Venda no Condomínio Enseada**
+  - 💰 R$ 2.550.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-no-condominio-enseada-1420438626
+
+- **Terreno no Wave Home Resort em Xangri-lá**
+  - 💰 R$ 585.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-wave-home-resort-em-xangri-la-1420288407
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 480.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1342526846
+
+- **Terreno à venda, Condomínio Green Village - Xangri-Lá/RS**
+  - 💰 R$ 1.650.000 | 📐 957 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-green-village-xangri-la-rs-1344965385
+
+- **Terreno à Venda no Condomínio Zen**
+  - 💰 R$ 380.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-zen-1418790548
+
+- **Terreno no Wave Home Resort em Xangri-lá**
+  - 💰 R$ 602.000 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-wave-home-resort-em-xangri-la-1418351874
+
+- **Excelente terreno na Nova Xangrilá**
+  - 💰 R$ 180.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-na-nova-xangrila-1418320046
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 1.778.610 | 📐 487 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1384052164
+
+- **Terreno à venda, PLENO Quatro Estações- Xangri-Lá/RS**
+  - 💰 R$ 403.896 | 📐 322 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-pleno-quatro-estacoes-xangri-la-rs-1336557806
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 1.748.340 | 📐 462 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1384052167
+
+- **Terreno em Centro**
+  - 💰 R$ 1.100.000 | 📐 520 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1417446662
+
+- **Terreno com ótima localização em Xangri-lá, praia Coqueiros**
+  - 💰 R$ 315.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-otima-localizacao-em-xangri-la-praia-coqueiros-1415630232
+
+- **Terreno em Condomínio à venda Estrada RS-389, Santorini - Xangri-Lá**
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-estrada-rs-389-santorini-xangri-la-1415303788
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 590.000 | 📐 244 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1406598241
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 670.000 | 📐 290 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1393585515
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 1.210.000 | 📐 523 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1414288373
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 535.300 | 📐 286 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1414288303
+
+- **Terreno Residencial em Arpoador**
+  - 💰 R$ 744.574 | 📐 389 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-arpoador-1414288274
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 418.700 | 📐 286 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1414288099
+
+- **Terreno à Venda no Condomínio Pleno**
+  - 💰 R$ 386.000 | 📐 277 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-pleno-1414143431
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.200.000 | 📐 389 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1350488377
+
+- **Terreno à venda, Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 655.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-zen-concept-resort-xangri-la-rs-1350849706
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 967.610 | 📐 486 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1384052257
+
+- **Terreno Na Avenida Paraguassu com 420m²**
+  - 💰 R$ 1.300.000 | 📐 421 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-avenida-paraguassu-com-420m-1411962367
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 967.610 | 📐 536 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1384052134
+
+- **Terreno à Venda no Condomínio Isla**
+  - 💰 R$ 350.000 | 📐 311 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-isla-1411280618
+
+- **Terreno à Venda no Condomínio Lótus**
+  - 💰 R$ 1.300.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-lotus-1410680391
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.600.000 | 📐 408 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1350488370
+
+- **Terreno amplo 525m² de área há 2 quadras do mar Atlantida**
+  - 💰 R$ 900.000 | 📐 525 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-525m-de-area-ha-2-quadras-do-mar-atlantida-1408687136
+
+- **Terreno em Condomínio à venda Avenida Central, Atlantida - Xangri-Lá**
+  - 💰 R$ 761.099 | 📐 894 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-central-atlantida-xangri-la-1408311440
+
+- **Terreno em Condomínio à venda Avenida Central, Atlantida - Xangri-Lá**
+  - 💰 R$ 940.590 | 📐 940 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-central-atlantida-xangri-la-1408311416
+
+- **Terreno em Arpoador**
+  - 💰 R$ 489.990 | 📐 355 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-arpoador-1408311352
+
+- **Terreno em Condomínio à venda Avenida Central, Atlantida - Xangri-Lá**
+  - 💰 R$ 1.398.962 | 📐 1005 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-central-atlantida-xangri-la-1408311265
+
+- **Terreno em Arpoador**
+  - 💰 R$ 358.990 | 📐 301 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-arpoador-1408311192
+
+- **Amplo terreno na Guatambu 720m2**
+  - 💰 R$ 600.000 | 📐 720 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-terreno-na-guatambu-720m2-1407957893
+
+- **Terreno à venda, Condomínio Playa Vista - Xangri-Lá/RS**
+  - 💰 R$ 1.777.600 | 📐 468 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-playa-vista-xangri-la-rs-1384052386
+
+- **Terreno à venda, Condomínio Pleno Quatro Estações - Xangri-Lá/RS**
+  - 💰 R$ 580.000 | 📐 308 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-pleno-quatro-estacoes-xangri-la-rs-1348686337
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 1.100.000 | 📐 393 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1406595869
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 2.150.000 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1406594538
+
+- **Terreno em Centro**
+  - 💰 R$ 1.390.000 | 📐 492 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1406594110
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 870.000 | 📐 451 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1406591080
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 1.685.000 | 📐 461 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1406591044
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 461.000 | 📐 474 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1406590643
+
+- **Terreno em Centro**
+  - 💰 R$ 1.900.000 | 📐 451 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1406590577
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 1.350.000 | 📐 451 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1406590434
+
+- **Terreno em Maristela**
+  - 💰 R$ 1.800.000 | 📐 1049 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-maristela-1406590419
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 1.900.000 | 📐 458 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1406590320
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 2.000.000 | 📐 451 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1406590222
+
+- **Terreno em Atlântida**
+  - 💰 R$ 2.650.000 | 📐 517 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-1406589796
+
+- **Ótimo terreno em condomínio**
+  - 💰 R$ 1.777.600 | 📐 468 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-em-condominio-1358130095
+
+- **Lindo terreno à venda no Condomínio Playa Vista**
+  - 💰 R$ 1.656.400 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-a-venda-no-condominio-playa-vista-1358128636
+
+- **AMPLO LOTE BEIRA LAGO**
+  - 💰 R$ 1.890.000 | 📐 472 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-lote-beira-lago-1358128465
+
+- **Maravilhoso terreno no Condomínio Playa Vista**
+  - 💰 R$ 1.605.900 | 📐 430 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/maravilhoso-terreno-no-condominio-playa-vista-1358128871
+
+- **Terrenos em condomínio à venda em Xangri-Lá, Condomínio Playa Vista**
+  - 💰 R$ 1.605.900 | 📐 430 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-em-condominio-a-venda-em-xangri-la-condominio-playa-vista-1358128475
+
+- **Lindo terreno no Condomínio Playa Vista**
+  - 💰 R$ 1.777.600 | 📐 468 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-no-condominio-playa-vista-1358128527
+
+- **Terreno em condomínio fechado**
+  - 💰 R$ 967.610 | 📐 536 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-1358130092
+
+- **Ótimo terreno em condomínio fechado**
+  - 💰 R$ 1.656.400 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-em-condominio-fechado-1358128853
+
+- **O primeiro Marina Bairro do Litoral Gaúcho**
+  - 💰 R$ 432.853 | 📐 383 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/o-primeiro-marina-bairro-do-litoral-gaucho-1358128544
+
+- **Terreno À Venda no Condomínio Isla**
+  - 💰 R$ 800.000 | 📐 362 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-no-condominio-isla-1406094217
+
+- **Terreno em Santorini**
+  - 💰 R$ 850.000 | 📐 337 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-santorini-1405933008
+
+- **Terreno em Centro**
+  - 💰 R$ 1.900.000 | 📐 458 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1405932958
+
+- **Terreno em Condominio para Venda - 0m², 0 dormitórios, Playa Vista**
+  - 💰 R$ 1.530.000 | 📐 444 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-para-venda-0m-0-dormitorios-playa-vista-1405842362
+
+- **Terreno em Condominio para Venda - 0m², 0 dormitórios, Playa Vista**
+  - 💰 R$ 1.610.000 | 📐 422 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-para-venda-0m-0-dormitorios-playa-vista-1405835958
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.029.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1396297134
+
+- **Terreno À Venda no Boulevard**
+  - 💰 R$ 300.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-no-boulevard-1405450819
+
+- **Terreno À Venda no Boulevard**
+  - 💰 R$ 340.000 | 📐 304 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-no-boulevard-1405445454
+
+- **Terreno À Venda no Boulevard**
+  - 💰 R$ 300.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-no-boulevard-1405442316
+
+- **Terreno à venda, Condomínio Playa Vista - Xangri-Lá/RS**
+  - 💰 R$ 1.860.000 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-playa-vista-xangri-la-rs-1384403080
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 395.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1392263162
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 967.610 | 📐 486 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1384052171
+
+- **Terreno à Venda no Condomínio Riviera**
+  - 💰 R$ 499.000 | 📐 300 m²
+  - 📍 Rainha do Mar — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-riviera-1405133289
+
+- **Terreno à Venda no Condomínio Isla**
+  - 💰 R$ 835.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-isla-1405124850
+
+- **Terreno à Venda no Condomínio Wave**
+  - 💰 R$ 280.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-wave-1405123334
+
+- **Otimo terreno a venda no condomínio Raro**
+  - 💰 R$ 595.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-a-venda-no-condominio-raro-1405123091
+
+- **Terreno à Venda no Condomínio Isla**
+  - 💰 R$ 1.210.000 | 📐 480 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-isla-1405121730
+
+- **Terreno em Centro**
+  - 💰 R$ 990.000 | 📐 407 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1404886975
+
+- **Terreno a venda no condomínio Lótus**
+  - 💰 R$ 2.199.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-lotus-1404779256
+
+- **Ótimo terreno à venda no Condomínio Allure**
+  - 💰 R$ 250.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-a-venda-no-condominio-allure-1404778357
+
+- **Terreno à Venda no Condomínio Zen**
+  - 💰 R$ 550.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-zen-1404778103
+
+- **Terreno à venda, Pleno Quatro Estações - Xangri-Lá/RS**
+  - 💰 R$ 439.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-pleno-quatro-estacoes-xangri-la-rs-1392568068
+
+- **Terreno à venda, ISLA Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 480.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-isla-xangri-la-xangri-la-rs-1352271382
+
+- **Terreno à venda, Atlântida, Xangri-Lá, RS**
+  - 💰 R$ 690.000 | 📐 720 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-atlantida-xangri-la-rs-1404558819
+
+- **Terreno à Venda no Condomínio Wave**
+  - 💰 R$ 490.000 | 📐 244 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-wave-1404115780
+
+- **Terreno a venda no Condomínio Raro!**
+  - 💰 R$ 665.000 | 📐 306 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-raro-1404115567
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 380.000 | 📐 243 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1392568063
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.400.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1369649526
+
+- **Terreno à Venda no Condomínio Zen**
+  - 💰 R$ 457.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-zen-1403785958
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.250.000 | 📐 396 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1357603098
+
+- **Terreno à venda, Condomínio Playa Vista - Xangri-Lá/RS**
+  - 💰 R$ 1.785.600 | 📐 445 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-playa-vista-xangri-la-rs-1384403078
+
+- **Terreno à Venda no Condomínio Zen**
+  - 💰 R$ 610.000 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-zen-1403341033
+
+- **Terreno em Rainha do Mar**
+  - 💰 R$ 460.000 | 📐 372 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-rainha-do-mar-1402459638
+
+- **Terreno Beira Lago Condomínio Zen Concept Resort**
+  - 💰 R$ 600.000 | 📐 252 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-condominio-zen-concept-resort-1402454800
+
+- **Terreno em Santorini**
+  - 💰 R$ 495.000 | 📐 276 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-santorini-1402448366
+
+- **Terreno em Santorini**
+  - 💰 R$ 495.000 | 📐 276 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-santorini-1402447161
+
+- **Terreno 252m2 condomínio Sunset em Xangrila**
+  - 💰 R$ 600.000 | 📐 482 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-252m2-condominio-sunset-em-xangrila-1402447143
+
+- **Terreno em Centro**
+  - 💰 R$ 2.200.000 | 📐 520 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1402446878
+
+- **Terreno em Condominio para Venda - 0m², 0 dormitórios, Playa Vista**
+  - 💰 R$ 1.530.000 | 📐 445 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-para-venda-0m-0-dormitorios-playa-vista-1402369456
+
+- **lotes no isla em xangri la entrega em mar/26**
+  - 💰 R$ 489.000 | 📐 339 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lotes-no-isla-em-xangri-la-entrega-em-mar-26-1402328924
+
+- **Terreno em Atlântida Sul**
+  - 💰 R$ 2.500.000 | 📐 426 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-atlantida-sul-1402328440
+
+- **Terreno em Condominio para Venda - 0m², 0 dormitórios, Playa Vista**
+  - 💰 R$ 1.610.000 | 📐 423 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-para-venda-0m-0-dormitorios-playa-vista-1402327330
+
+- **Terreno em Condominio para Venda - 0m², 0 dormitórios, Playa Vista**
+  - 💰 R$ 2.150.000 | 📐 476 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-para-venda-0m-0-dormitorios-playa-vista-1402326082
+
+- **Terreno para Venda - 1000m², 0 dormitórios, Atlântida**
+  - 💰 R$ 1.650.000 | 📐 1001 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-venda-1000m-0-dormitorios-atlantida-1402325997
+
+- **Terreno à venda no condomínio Las Dunas**
+  - 💰 R$ 2.500.000 | 📐 425 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-las-dunas-1402308640
+
+- **Terreno à Venda no Bairro Planejado Santorini**
+  - 💰 R$ 220.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-planejado-santorini-1402302624
+
+- **Terreno à Venda no Condomínio Lótus**
+  - 💰 R$ 1.100.000 | 📐 533 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-lotus-1402302405
+
+- **Terreno em Condomínio à venda Avenida Jaçanã, XANGRI-LÁ - Xangri-Lá**
+  - 💰 R$ 950.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-jacana-xangri-la-xangri-la-1402186508
+
+- **Terreno em Condomínio à venda Avenida José Bruno Klein, XANGRI-LÁ - Xa**
+  - 💰 R$ 347.520 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-jose-bruno-klein-xangri-la-xangri-la-1401248206
+
+- **Excelente terreno no Condomínio Santorini em Xangri-lá.**
+  - 💰 R$ 280.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-no-condominio-santorini-em-xangri-la-1399969765
+
+- **Terreno condomínio fechado ISLA em Xangri-Lá**
+  - 💰 R$ 499.000 | 📐 315 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-fechado-isla-em-xangri-la-1399525195
+
+- **Terreno à venda, Condomínio Verano Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 299.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-verano-xangri-la-xangri-la-rs-1394909558
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 565.000 | 📐 308 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1393585570
+
+- **Terreno Comercial à Venda no Centro de Xangri-Lá - 420m²**
+  - 💰 R$ 1.800.000 | 📐 420 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-a-venda-no-centro-de-xangri-la-420m-1391837942
+
+- **Terreno em Condomínio à venda Avenida Central, Atlantida - Xangri-Lá**
+  - 💰 R$ 816.859 | 📐 413 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-central-atlantida-xangri-la-1389758895
+
+- **Terreno em Condomínio à venda Avenida Central, Atlantida - Xangri-Lá**
+  - 💰 R$ 1.284.779 | 📐 465 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-central-atlantida-xangri-la-1389737055
+
+- **Terreno em Condomínio à venda Avenida Central, Atlantida - Xangri-Lá**
+  - 💰 R$ 1.050.273 | 📐 430 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-central-atlantida-xangri-la-1389736994
+
+- **Terreno em Condomínio a venda no bairro Condomínio Wave Home Resort**
+  - 💰 R$ 488.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-no-bairro-condominio-wave-home-resort-1388721538
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 1.279.700 | 📐 462 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1384052258
+
+- **"Terreno Exclusivo em Xangri-lá  360 m² em Localização Estratégica e T**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-exclusivo-em-xangri-la-360-m-em-localizacao-estrategica-e-tranquila-1382372558
+
+- **Terreno em Xangrilá**
+  - 💰 R$ 260.000 | 📐 292 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-xangrila-1380746313
+
+- **Terreno em Xangrilá**
+  - 💰 R$ 260.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-xangrila-1380746092
+
+- **Lançamento construtora Alfa do Brasil, Condomínio Aura.**
+  - 💰 R$ 349.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lancamento-construtora-alfa-do-brasil-condominio-aura-1379461419
+
+- **GARANTA JÁ O SEU IMÓVEL NO LITORAL COM 12mil DE ENTRADA**
+  - 💰 R$ 418.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/garanta-ja-o-seu-imovel-no-litoral-com-12mil-de-entrada-1378782572
+
+- **Condomínio Amare Home Resort**
+  - 💰 R$ 1.290.000 | 📐 434 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-amare-home-resort-1374732458
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 620.000 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1373158754
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.728.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1369649529
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.549.000 | 📐 472 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1369649523
+
+- **RARO, Quadra J lote 15. 250m² -**
+  - 💰 R$ 399.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/raro-quadra-j-lote-15-250m-1364338938
+
+- **ISLA, Quadra A lote 25**
+  - 💰 R$ 749.000 | 📐 381 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/isla-quadra-a-lote-25-1364039982
+
+- **Ótima Oportunidade de Negócio, lote no Bairro Planejado, Nova Xangri L**
+  - 💰 R$ 175.000 | 📐 240 m²
+  - 📍 Rainha do Mar — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otima-oportunidade-de-negocio-lote-no-bairro-planejado-nova-xangri-la-1363416249
+
+- **Terreno no condomínio fechado Sunset**
+  - 💰 R$ 485.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-fechado-sunset-1359977854
+
+- **Terreno de 450m² no Condomínio SENSE**
+  - 💰 R$ 1.890.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-450m-no-condominio-sense-1353083699
+
+- **Terreno em Condomínio à venda Avenida Paraguassu, Centro - Xangri-Lá**
+  - 💰 R$ 600.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-paraguassu-centro-xangri-la-1353064986
+
+- **Terreno no Condomínio novo Sunset Xangri-lá!**
+  - 💰 R$ 900.000 | 📐 600 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-novo-sunset-xangri-la-1353058976
+
+- **Terreno à venda no bairro Planejado com área total de {LivingArea} e {**
+  - 💰 R$ 336.868 | 📐 ? m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-planejado-com-area-total-de-livingarea-e-quartos-dormitorios-1353005397
+
+- **Terreno em Condomínio Vientos Resort, lançamento, praia artificial, in**
+  - 💰 R$ 606.375 | 📐 385 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-vientos-resort-lancamento-praia-artificial-infra-completa-estrad-1352830515
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 600.000 | 📐 296 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1351314469
+
+- **Terreno à venda, Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 400.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-joy-xangri-la-xangri-la-rs-1351145910
+
+- **Terreno à venda, Condomínio Allure Beach Condo - Xangri-Lá/RS**
+  - 💰 R$ 295.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-allure-beach-condo-xangri-la-rs-1350488395
+
+- **Terreno à venda, Condomínio Allure Beach Condo - Xangri-Lá/RS**
+  - 💰 R$ 270.000 | 📐 241 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-allure-beach-condo-xangri-la-rs-1349458954
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 310.000 | 📐 315 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1349103531
+
+- **Terreno à venda, Condomínio Pleno Quatro Estações - Xangri-Lá/RS**
+  - 💰 R$ 580.000 | 📐 308 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-pleno-quatro-estacoes-xangri-la-rs-1348686373
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.045.000 | 📐 388 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1347306675
+
+- **Terreno à venda, Condomínio Green Village - Xangri-Lá/RS**
+  - 💰 R$ 1.500.000 | 📐 1000 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-green-village-xangri-la-rs-1346526877
+
+- **TERRENO VILLAGIO DE ATLÂNTIDA CONDOMÍNIO FECHADO**
+  - 💰 R$ 1.685.000 | 📐 639 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-villagio-de-atlantida-condominio-fechado-1346452027
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.550.000 | 📐 457 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1343190854
+
+- **Terreno à venda, Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 399.000 | 📐 299 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-joy-xangri-la-xangri-la-rs-1342219734
+
+- **Terreno no condomínio Bosques de Atlântida - Xangri-lá/RS**
+  - 💰 R$ 2.120.000 | 📐 714 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-bosques-de-atlantida-xangri-la-rs-1341590601
+
+- **Terreno à venda, Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.900.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-lotus-atlantida-xangri-la-rs-1340982394
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 350.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1338954286
+
+- **Terreno à venda, Condomínio Allure Beach Condo - Xangri-Lá/RS**
+  - 💰 R$ 420.000 | 📐 248 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-allure-beach-condo-xangri-la-rs-1338954039
+
+- **Terreno à venda, Condomínio Riviera Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 689.000 | 📐 368 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-riviera-xangri-la-xangri-la-rs-1338954032
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 690.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1338343241
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 281 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1337632060
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 590.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1337631926
+
+- **Terreno à venda, Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 712.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-zen-concept-resort-xangri-la-rs-1337631935
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 960.000 | 📐 313 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1337631920
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 540.000 | 📐 287 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1337631854
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1337631787
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 570.000 | 📐 302 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1337631793
+
+- **Terreno à venda, Zen Concept Resort - Xangri-Lá/RS.**
+  - 💰 R$ 1.095.000 | 📐 426 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-zen-concept-resort-xangri-la-rs-1337631794
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 580.000 | 📐 251 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1337631682
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 700.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1337631710
+
+- **Terreno à venda, Vientos Resort - Xangri-Lá/RS**
+  - 💰 R$ 580.000 | 📐 355 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-vientos-resort-xangri-la-rs-1337631622
+
+- **Terreno à venda, Condomínio Seasons Wonderful Living - Xangri-Lá/RS**
+  - 💰 R$ 2.166.452 | 📐 492 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-seasons-wonderful-living-xangri-la-rs-1337631336
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.100.000 | 📐 383 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1337631004
+
+- **Terreno à venda, Condomínio Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 570.000 | 📐 328 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sunset-xangri-la-xangri-la-rs-1337631012
+
+- **Terreno à venda, Condomínio Green Village - Xangri-Lá/RS**
+  - 💰 R$ 1.000.000 | 📐 801 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-green-village-xangri-la-rs-1337631014
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 279 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1337630985
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 650.000 | 📐 279 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1337630886
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 585.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1337630797
+
+- **Terreno à venda, Zen Concept Resort - Xangri-Lá/RS.**
+  - 💰 R$ 995.000 | 📐 347 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-zen-concept-resort-xangri-la-rs-1337630678
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 700.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1337630542
+
+- **Terreno à venda, Condomínio Zen Concept Resort - Xangri-Lá/RS**
+  - 💰 R$ 790.000 | 📐 338 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-zen-concept-resort-xangri-la-rs-1337630459
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 585.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1337630362
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 600.000 | 📐 254 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1337630162
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.390.000 | 📐 516 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1337346121
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.380.000 | 📐 540 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1337346117
+
+- **Terreno à venda, Condomínio Wave Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 379.000 | 📐 246 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-wave-home-resort-xangri-la-rs-1337346075
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 2.800.000 | 📐 459 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1337346081
+
+- **Terreno à venda, Condomínio Lótus Atlântida - Xangri-Lá/RS**
+  - 💰 R$ 1.590.000 | 📐 533 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-lotus-atlantida-xangri-la-rs-1337346045
+
+- **Terreno à venda, Condomínio Playa Vista - Xangri-Lá/RS**
+  - 💰 R$ 3.395.000 | 📐 579 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-playa-vista-xangri-la-rs-1337346043
+
+- **Terreno à venda, Condomínio Playa Vista - Xangri-Lá/RS**
+  - 💰 R$ 3.395.000 | 📐 579 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-playa-vista-xangri-la-rs-1337346032
+
+- **Terreno no condomínio Sunset - Xangri-lá/RS**
+  - 💰 R$ 490.000 | 📐 274 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-sunset-xangri-la-rs-1337316950
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 2.000.000 | 📐 457 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1337014554
+
+- **Terreno à venda, Condomínio Joy Vila dos Lagos - Xangri-Lá/RS**
+  - 💰 R$ 315.000 | 📐 266 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-vila-dos-lagos-xangri-la-rs-1337014452
+
+- **Terreno em Condomínio à venda Rio Novo, XANGRI-LÁ - Xangri-Lá**
+  - 💰 R$ 749.000 | 📐 333 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rio-novo-xangri-la-xangri-la-1336849432
+
+- **Terreno em Condomínio à venda Rio Novo, XANGRI-LÁ - Xangri-Lá**
+  - 💰 R$ 1.489.000 | 📐 382 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rio-novo-xangri-la-xangri-la-1336849139
+
+- **Terreno em Condomínio à venda Rio Novo, XANGRI-LÁ - Xangri-Lá**
+  - 💰 R$ 749.000 | 📐 312 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rio-novo-xangri-la-xangri-la-1336848476
+
+- **Terreno em Condomínio à venda Rio Novo, XANGRI-LÁ - Xangri-Lá**
+  - 💰 R$ 1.498.000 | 📐 390 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rio-novo-xangri-la-xangri-la-1336848345
+
+- **Terreno em Condomínio à venda Rio Novo, XANGRI-LÁ - Xangri-Lá**
+  - 💰 R$ 1.150.000 | 📐 491 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rio-novo-xangri-la-xangri-la-1336848178
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.950.000 | 📐 502 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336706748
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 307.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1336706725
+
+- **Terreno à venda, ISLA Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 450.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-isla-xangri-la-xangri-la-rs-1336706699
+
+- **Terreno à venda, Condomínio Enseada Lagos de Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 2.760.000 | 📐 627 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-enseada-lagos-de-xangri-la-xangri-la-rs-1336706683
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 980.000 | 📐 452 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1336706673
+
+- **Terreno à venda, ISLA Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 439.000 | 📐 326 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-isla-xangri-la-xangri-la-rs-1336706665
+
+- **Terreno à venda, Condomínio Joy Vila dos Lagos - Xangri-Lá/RS**
+  - 💰 R$ 310.000 | 📐 287 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-vila-dos-lagos-xangri-la-rs-1336706641
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 2.000.000 | 📐 501 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336706636
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 1.300.000 | 📐 482 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1336706631
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.280.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1336706615
+
+- **Terreno à venda, Condomínio Enseada Lagos de Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.500.000 | 📐 472 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-enseada-lagos-de-xangri-la-xangri-la-rs-1336706611
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 4.400.000 | 📐 916 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336706569
+
+- **Terreno à venda, Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 320.000 | 📐 257 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-joy-xangri-la-xangri-la-rs-1336706555
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.200.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1336706529
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.090.000 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1336706521
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 810.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1336706526
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 850.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1336706484
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.900.000 | 📐 457 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336706476
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.900.000 | 📐 458 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336706432
+
+- **Terreno à venda, Condomínio Sea Coast - Xangri-Lá/RS**
+  - 💰 R$ 1.300.000 | 📐 420 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sea-coast-xangri-la-rs-1336706405
+
+- **Terreno à venda, Condomínio Enseada Lagos de Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.920.000 | 📐 468 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-enseada-lagos-de-xangri-la-xangri-la-rs-1336706394
+
+- **Terreno à venda, Condomínio Amare Home Resort - Xangri-Lá/RS**
+  - 💰 R$ 1.200.000 | 📐 392 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-amare-home-resort-xangri-la-rs-1336706376
+
+- **Terreno à venda, Las Palmas - Xangri-Lá/RS**
+  - 💰 R$ 720.000 | 📐 278 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-las-palmas-xangri-la-rs-1336706356
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 2.000.000 | 📐 502 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336706323
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 840.000 | 📐 375 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1336706298
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 390.000 | 📐 257 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1336706293
+
+- **Terreno à venda, Sunset Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 530.000 | 📐 290 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-sunset-xangri-la-xangri-la-rs-1336706295
+
+- **Terreno à venda, Riviera Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 910.000 | 📐 667 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-riviera-xangri-la-xangri-la-rs-1336706267
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 1.450.000 | 📐 474 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1336706244
+
+- **Terreno à venda, ISLA Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 480.000 | 📐 314 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-isla-xangri-la-xangri-la-rs-1336706233
+
+- **Terreno à venda, Allure Beach Condo - Xangri-Lá/RS**
+  - 💰 R$ 375.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-allure-beach-condo-xangri-la-rs-1336706215
+
+- **Terreno à venda, Condomínio Joy Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 360.000 | 📐 255 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-joy-xangri-la-xangri-la-rs-1336706208
+
+- **Terreno à venda, Condomínio Enseada Lagos de Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 2.550.000 | 📐 450 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-enseada-lagos-de-xangri-la-xangri-la-rs-1336706144
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 2.150.000 | 📐 459 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336706105
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 2.000.000 | 📐 459 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336706107
+
+- **Terreno à venda, Condomínio Riviera Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 636.000 | 📐 368 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-riviera-xangri-la-xangri-la-rs-1336573108
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.380.000 | 📐 491 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336567042
+
+- **Terreno à venda, Condomínio Celebration - Xangri-Lá/RS**
+  - 💰 R$ 1.680.000 | 📐 460 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-celebration-xangri-la-rs-1336561069
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.900.000 | 📐 457 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336560712
+
+- **Terreno à venda, Condomínio Sense Xangri-Lá - Xangri-Lá/RS**
+  - 💰 R$ 1.300.000 | 📐 459 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-sense-xangri-la-xangri-la-rs-1336560150
+
+- **Terreno à venda, Condomínio Green Village - Xangri-Lá/RS**
+  - 💰 R$ 1.060.000 | 📐 670 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-green-village-xangri-la-rs-1336556991
+
+- **Terreno em Condomínio à venda Avenida José Bruno Klein, Marina - Xangr**
+  - 💰 R$ 332.500 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-jose-bruno-klein-marina-xangri-la-1335977264
+
+- **ISLA, Quadra A lote 24 377,62m²**
+  - 💰 R$ 350.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/isla-quadra-a-lote-24-377-62m-1335132976
+
+- **Terreno à venda, no condomínio Sunset, Xangri-Lá/RS**
+  - 💰 R$ 899.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-sunset-xangri-la-rs-1335130981
+
+- **Terreno beira lago no condomínio Sunset, Xangri-La**
+  - 💰 R$ 900.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-lago-no-condominio-sunset-xangri-la-1334804182
+
+- **Terreno no bairro Centro**
+  - 💰 R$ 425.000 | 📐 250 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-centro-1334707590
+
+- **Terreno à Venda em Xangri-lá!**
+  - 💰 R$ 670.000 | 📐 600 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-xangri-la-1333171907
+
+- **Terreno à venda, no condomínio Enseada, Xangri-Lá/RS**
+  - 💰 R$ 2.970.000 | 📐 626 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-enseada-xangri-la-rs-1330820443
+
+- **Terreno em condomínio fechado com unidades a beira lago Royal Lake em **
+  - 💰 R$ 1.040.000 | 📐 422 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-com-unidades-a-beira-lago-royal-lake-em-xangri-la-1329484584
+
+- **Terreno no condomínio Bosques de Atlãntida - Xangri-lá/RS**
+  - 💰 R$ 2.120.000 | 📐 514 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-bosques-de-atlantida-xangri-la-rs-1328888981
+
+- **CONDOMÍNIO RARO**
+  - 💰 R$ 549.000 | 📐 275 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-raro-1328888693
+
+- **Terreno beira-mar na Praia de Noiva do Mar - Xangri-lá**
+  - 💰 R$ 680.000 | 📐 300 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-mar-na-praia-de-noiva-do-mar-xangri-la-1327560674
+
+- **Terreno em Condomínio à venda Rua RS Estrada do Mar, Centro - Xangri-L**
+  - 💰 R$ 315.000 | 📐 249 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-rs-estrada-do-mar-centro-xangri-la-1320614059
+
+- **Terreno/Lote Residencial à venda 310M² Centro Capão da Canoa - RS**
+  - 💰 R$ 4.480.000 | 📐 310 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-lote-residencial-a-venda-310m-centro-capao-da-canoa-rs-1305512021
+
+- **Terreno à venda no condomínio Riviera!**
+  - 💰 R$ 2.890.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-riviera-1296565433
+
+- **Excelente terreno no Bairro Remanso em Xangri-lá/RS**
+  - 💰 R$ 260.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-no-bairro-remanso-em-xangri-la-rs-1293459974
+
+- **Terreno em Condomínio à venda Avenida Paraguassu, Centro - Xangri-Lá**
+  - 💰 R$ 1.778.610 | 📐 487 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-paraguassu-centro-xangri-la-1292005173
+
+- **Terreno em Condomínio à venda Avenida Paraguassu, Centro - Xangri-Lá**
+  - 💰 R$ 1.279.700 | 📐 462 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-paraguassu-centro-xangri-la-1292002262
+
+- **Terreno em Condomínio à venda Avenida Paraguassu, Maristela - Xangri-L**
+  - 💰 R$ 3.320.000 | 📐 570 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-paraguassu-maristela-xangri-la-1292001317
+
+- **Terreno em Condomínio à venda Avenida Paraguassu, Maristela - Xangri-L**
+  - 💰 R$ 1.746.100 | 📐 422 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-paraguassu-maristela-xangri-la-1292001311
+
+- **Terreno em Condomínio à venda Avenida Paraguassu, Centro - Xangri-Lá**
+  - 💰 R$ 967.610 | 📐 536 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-paraguassu-centro-xangri-la-1292001223
+
+- **Terreno em Condomínio à venda Avenida Paraguassu, Maristela - Xangri-L**
+  - 💰 R$ 1.777.600 | 📐 468 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-avenida-paraguassu-maristela-xangri-la-1292000591
+
+- **TERRENO EM CONDOMINIO EM XANGI-LA**
+  - 💰 R$ 700.000 | 📐 480 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-em-xangi-la-1290978615
+
+- **Terreno no bairro planejado Santorini em Xangri-lá/RS**
+  - 💰 R$ 280.000 | 📐 240 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-planejado-santorini-em-xangri-la-rs-1286476166
+
+- **Terreno no centro de Xangrilá!**
+  - 💰 R$ 420.000 | 📐 360 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-centro-de-xangrila-1286476157
+
+- **Terreno alto padrão condomínio fechado Xangri-Lá**
+  - 💰 R$ 2.000.000 | 📐 488 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-alto-padrao-condominio-fechado-xangri-la-1248397393
+
+- **Terreno em condomínio de luxo**
+  - 💰 R$ 1.149.900 | 📐 378 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-de-luxo-1247734589
+
+- **Terreno à venda, Remanso, Xangri-Lá, RS**
+  - 💰 R$ 900.000 | 📐 10 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-remanso-xangri-la-rs-1221420518
+
+- **Terreno à venda, 269 m² por R$ 2.100.000 - Xangri-Lá - Xangri-lá/RS**
+  - 💰 R$ 2.100.000 | 📐 10 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-269-m-por-r-2-100-000-xangri-la-xangri-la-rs-1185055207
+
+- **Terreno à venda, 251 m² por R$ 376.350,00 - Xangri-Lá - Xangri-lá/RS**
+  - 💰 R$ 376.350 | 📐 10 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-251-m-por-r-376-350-00-xangri-la-xangri-la-rs-1185054690
+
+- **Terreno à venda, 250 m² por R$ 430.000 - Xangri-Lá - Xangri-lá/RS**
+  - 💰 R$ 430.000 | 📐 10 m²
+  - 📍  — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-250-m-por-r-430-000-xangri-la-xangri-la-rs-1185052073
+
+- **Lote/Terreno para venda com 5700 metros quadrados em Centro - Xangri-L**
+  - 💰 R$ 18.000.000 | 📐 5700 m²
+  - 📍 Centro — Xangri-Lá
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-terreno-para-venda-com-5700-metros-quadrados-em-centro-xangri-la-rs-1105253997
+
+- **Excelente**
+  - 💰 R$ 119.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-1476137237
+
+- **Terreno ótima localização.**
+  - 💰 R$ 165.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-otima-localizacao-1453592673
+
+- **Excelente terreno de esquina a menos de 70m do Mar.**
+  - 💰 R$ 320.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-de-esquina-a-menos-de-70m-do-mar-1475757073
+
+- **Terreno à venda no Centro de Imbé 840 m2**
+  - 💰 R$ 420.000 | 📐 840 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-imbe-840-m2-1475752205
+
+- **T415 - Excelentes lotes situados no Balneário Nova Nordeste**
+  - 💰 R$ 66.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t415-excelentes-lotes-situados-no-balneario-nova-nordeste-1475446087
+
+- **Terreno em Mariluz - Imbe a uma quadra da av Mariluz e três quadras da**
+  - 💰 R$ 150.000 | 📐 ? m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-mariluz-imbe-a-uma-quadra-da-av-mariluz-e-tres-quadras-da-av-paraguassu-1474915698
+
+- **Sítio a venda em Aguas Claras**
+  - 💰 R$ 1.350.000 | 📐 2000 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/sitio-a-venda-em-aguas-claras-1392115306
+
+- **Terreno no Loteamento Presidente Prudente m Imbé - RS**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-presidente-prudente-m-imbe-rs-1473894358
+
+- **Terreno à venda em Imbé - Nordeste**
+  - 💰 R$ 143.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-nordeste-1473881459
+
+- **Terreno de esquina a venda no centro de Imbé/RS**
+  - 💰 R$ 290.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-a-venda-no-centro-de-imbe-rs-1473773153
+
+- **Terreno à venda no centro de Imbé**
+  - 💰 R$ 195.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-imbe-1473299361
+
+- **Ótimo terreno com posição solar frente mar, pronto para construir.**
+  - 💰 R$ 143.000 | 📐 240 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-com-posicao-solar-frente-mar-pronto-para-construir-1473181899
+
+- **Terreno comercial a venda com preço de oportunidade em Imbé/RS**
+  - 💰 R$ 434.000 | 📐 425 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-a-venda-com-preco-de-oportunidade-em-imbe-rs-1473181693
+
+- **T420 - Ótimo terreno com 150 m² localizado no Balneário Mariluz**
+  - 💰 R$ 72.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t420-otimo-terreno-com-150-m-localizado-no-balneario-mariluz-1472447697
+
+- **Terreno à venda Centro Imbé/RS**
+  - 💰 R$ 220.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-centro-imbe-rs-1472231372
+
+- **Terreno - Bairro Centro na praia do Imbé.**
+  - 💰 R$ 1.210.000 | 📐 667 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-centro-na-praia-do-imbe-1471904298
+
+- **Terreno amplo zona de moradores na praia do Imbé/RS.**
+  - 💰 R$ 150.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-zona-de-moradores-na-praia-do-imbe-rs-1471904286
+
+- **Terreno à venda Presidente (Distrito) Imbé/RS**
+  - 💰 R$ 238.000 | 📐 312 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-presidente-distrito-imbe-rs-1471770405
+
+- **Terreno a venda em Imbé**
+  - 💰 R$ 135.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1471770362
+
+- **Terreno - Bairro Centro em Imbé**
+  - 💰 R$ 550.000 | 📐 440 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-centro-em-imbe-1471770098
+
+- **Terreno próximo ao mar na praia de Imbé/RS.**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-proximo-ao-mar-na-praia-de-imbe-rs-1471770114
+
+- **Terreno pronto para construir em Imbé RS**
+  - 💰 R$ 216.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-pronto-para-construir-em-imbe-rs-1471770069
+
+- **Terreno de esquina na Avenida Caxias do Sul na praia do Imbé**
+  - 💰 R$ 450.000 | 📐 450 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-na-avenida-caxias-do-sul-na-praia-do-imbe-1471770103
+
+- **Terreno cercado pronto para construir em Imbé RS**
+  - 💰 R$ 181.500 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-cercado-pronto-para-construir-em-imbe-rs-1471770050
+
+- **Terreno residencial próximo avenida Paraguassu Imbé.**
+  - 💰 R$ 400.000 | 📐 930 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-proximo-avenida-paraguassu-imbe-1471613632
+
+- **Terreno à venda Centro Imbé/RS**
+  - 💰 R$ 385.000 | 📐 450 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-centro-imbe-rs-1471613438
+
+- **Terreno com Barranca de Rio em Imbé**
+  - 💰 R$ 270.000 | 📐 468 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-barranca-de-rio-em-imbe-1471613416
+
+- **Terreno - Bairro Centro na praia do Imbé.**
+  - 💰 R$ 330.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-centro-na-praia-do-imbe-1471612998
+
+- **Terreno - Bairro Centro na praia do Imbé.**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-centro-na-praia-do-imbe-1471612854
+
+- **Terreno à venda em Imbé - Próximo ao mar**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-proximo-ao-mar-1471304215
+
+- **Terreno 20,8x75 imbé Av Paraguassú**
+  - 💰 R$ 2.650.000 | 📐 1560 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-20-8x75-imbe-av-paraguassu-1470070076
+
+- **Terreno à venda na Beira Mar**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-na-beira-mar-1469671740
+
+- **T185 - Excelente terreno com área de 150 m² no Balneário Marisul**
+  - 💰 R$ 60.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t185-excelente-terreno-com-area-de-150-m-no-balneario-marisul-1469580986
+
+- **Terreno 300m² a Poucos Minutos do Mar em Imbé - Santa Terezinha**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-300m-a-poucos-minutos-do-mar-em-imbe-santa-terezinha-1469511523
+
+- **T409 - Excelente terreno com área de 300 m² a apenas 220 metros do mar**
+  - 💰 R$ 231.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t409-excelente-terreno-com-area-de-300-m-a-apenas-220-metros-do-mar-1468797135
+
+- **T02 -  Terreno com área de 300 m² em região de moradores**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t02-terreno-com-area-de-300-m-em-regiao-de-moradores-1468064986
+
+- **T155 - Ótimo terreno com área de 300 m² em região de moradores**
+  - 💰 R$ 103.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t155-otimo-terreno-com-area-de-300-m-em-regiao-de-moradores-1464171337
+
+- **T156 - Ótimo lote com área de 300 m² no Balneário Marisul**
+  - 💰 R$ 104.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t156-otimo-lote-com-area-de-300-m-no-balneario-marisul-1464169929
+
+- **T174 - Excelente terreno em região de moradores no balneário Marisul**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t174-excelente-terreno-em-regiao-de-moradores-no-balneario-marisul-1464161798
+
+- **T146 - Terreno com área de 175 m² localizada no Balneário Santa Terezi**
+  - 💰 R$ 80.000 | 📐 175 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t146-terreno-com-area-de-175-m-localizada-no-balneario-santa-terezinha-1464129525
+
+- **Terreno à venda em Imbé - Centro**
+  - 💰 R$ 198.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-centro-1463081969
+
+- **Terreno à venda em Imbé - centro**
+  - 💰 R$ 400.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-centro-1463079761
+
+- **2 lotes juntos à venda**
+  - 💰 R$ 385.000 | 📐 780 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/2-lotes-juntos-a-venda-1463077726
+
+- **Terreno de esquina à venda em Imbé - Centro**
+  - 💰 R$ 500.000 | 📐 900 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-a-venda-em-imbe-centro-1463075684
+
+- **Terreno à venda em Imbé - Pagamento Facilitado**
+  - 💰 R$ 167.785 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-pagamento-facilitado-1463075157
+
+- **Terreno à venda em Imbé - Morada do Sol**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-morada-do-sol-1463075137
+
+- **Meio lote à venda em Imbé - Albatroz**
+  - 💰 R$ 65.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/meio-lote-a-venda-em-imbe-albatroz-1462775411
+
+- **Terreno à venda em Imbé - Nordeste**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-nordeste-1462771699
+
+- **Terreno à venda em Imbé - Centro**
+  - 💰 R$ 209.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-centro-1462406216
+
+- **Terreno com anexo à venda em Imbé**
+  - 💰 R$ 378.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-anexo-a-venda-em-imbe-1462403711
+
+- **Terreno à venda em Imbé - Mariluz**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-mariluz-1461598742
+
+- **Terreno à venda em Imbé - Santa Terezinha**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-santa-terezinha-1461340521
+
+- **Terreno à venda em Imbé - Santa Terezinha**
+  - 💰 R$ 220.000 | 📐 520 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-santa-terezinha-1461340131
+
+- **Terreno à venda em Imbé - Presidente**
+  - 💰 R$ 215.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-presidente-1461338902
+
+- **Terreno venda em Imbé**
+  - 💰 R$ 154.000 | 📐 312 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-em-imbe-1461338864
+
+- **Terreno à venda em Imbé - Presidente**
+  - 💰 R$ 220.000 | 📐 428 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-presidente-1461338824
+
+- **Terreno à venda em Imbé - Mariluz**
+  - 💰 R$ 275.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-mariluz-1461338829
+
+- **Terreno à venda em Imbé - Presidente**
+  - 💰 R$ 154.000 | 📐 350 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-presidente-1461338826
+
+- **T87 - Excelente terreno com área de 300 m² localizado a apenas 200 m d**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t87-excelente-terreno-com-area-de-300-m-localizado-a-apenas-200-m-do-mar-1460552394
+
+- **Terreno à venda em Imbé - Centro**
+  - 💰 R$ 275.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-centro-1460507703
+
+- **2 Terrenos à venda em Imbé - Presidente**
+  - 💰 R$ 550.000 | 📐 600 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/2-terrenos-a-venda-em-imbe-presidente-1459813320
+
+- **Terreno à venda em Imbé - Harmonia**
+  - 💰 R$ 330.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-harmonia-1459128105
+
+- **Casa à venda em Imbé - Albatroz**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/casa-a-venda-em-imbe-albatroz-1458914824
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1457812068
+
+- **Terreno à venda - Balneário Presidente**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-balneario-presidente-1457811495
+
+- **Terreno à venda em imbé**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1457811339
+
+- **Terreno à venda - Balneário Presidente**
+  - 💰 R$ 88.000 | 📐 168 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-balneario-presidente-1457811260
+
+- **Terreno à venda em Mariluz**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-mariluz-1457556201
+
+- **Terreno à venda em Albatroz**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-albatroz-1457556035
+
+- **Terreno à venda em Avenida**
+  - 💰 R$ 110.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-avenida-1457553157
+
+- **Terreno em região de moradores**
+  - 💰 R$ 88.200 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-regiao-de-moradores-1457552497
+
+- **Terreno em Imbé**
+  - 💰 R$ 159.500 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-imbe-1457438651
+
+- **Terreno próximo ao mar em Mariluz**
+  - 💰 R$ 154.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-proximo-ao-mar-em-mariluz-1457234070
+
+- **T1007 - Excelente terreno de 390 m² situado no Centro de Imbé**
+  - 💰 R$ 165.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1007-excelente-terreno-de-390-m-situado-no-centro-de-imbe-1455844152
+
+- **T342 - Terreno com área de 307 m² localizado à beira mar**
+  - 💰 R$ 550.000 | 📐 307 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t342-terreno-com-area-de-307-m-localizado-a-beira-mar-1455835417
+
+- **T299 - Ótimo terreno localizado no Balneário Presidente**
+  - 💰 R$ 66.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t299-otimo-terreno-localizado-no-balneario-presidente-1454940045
+
+- **Terreno de esquina à venda em Mariluz**
+  - 💰 R$ 220.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-a-venda-em-mariluz-1454283785
+
+- **Terreno próximo ao mar**
+  - 💰 R$ 154.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-proximo-ao-mar-1454283098
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 198.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1454281956
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1454281911
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 88.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1454281873
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 297.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1454281909
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 280.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1454281927
+
+- **Terreno próximo ao mar**
+  - 💰 R$ 165.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-proximo-ao-mar-1454084394
+
+- **Terreno à venda no Balneário Presidente em Imbé**
+  - 💰 R$ 132.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-balneario-presidente-em-imbe-1454084392
+
+- **Terreno no Balneário Presidente  Imbé/RS**
+  - 💰 R$ 154.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-balneario-presidente-imbe-rs-1454084357
+
+- **Terreno no Balneário Presidente em Imbé**
+  - 💰 R$ 162.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-balneario-presidente-em-imbe-1454084333
+
+- **Terreno à venda no Balneário Presidente em Imbé**
+  - 💰 R$ 143.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-balneario-presidente-em-imbe-1454084189
+
+- **Terreno à venda Balneário Presidente**
+  - 💰 R$ 132.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-balneario-presidente-1454084195
+
+- **T06 - Terreno de 300 m² localizado em região de moradores**
+  - 💰 R$ 100.000 | 📐 299 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t06-terreno-de-300-m-localizado-em-regiao-de-moradores-1454000496
+
+- **T94 - Terreno cercado com 300 m² em região de moradores**
+  - 💰 R$ 152.000 | 📐 299 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t94-terreno-cercado-com-300-m-em-regiao-de-moradores-1453750197
+
+- **Terreno à Venda  Excelente Oportunidade!**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-excelente-oportunidade-1453740925
+
+- **Lindo terreno de esquina no centro de Imbé - 18x30 - Oportunidade de I**
+  - 💰 R$ 600.000 | 📐 540 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-de-esquina-no-centro-de-imbe-18x30-oportunidade-de-investimento-ref-1453507615
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 88.200 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1453215591
+
+- **T157 - Ótimo terreno localizado no Balneário Mariluz**
+  - 💰 R$ 143.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t157-otimo-terreno-localizado-no-balneario-mariluz-1452949155
+
+- **Amplo Terreno Bem Localizado em Imbé**
+  - 💰 R$ 55.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-terreno-bem-localizado-em-imbe-1452875970
+
+- **Últimos terrenos à venda na beira-mar**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/ultimos-terrenos-a-venda-na-beira-mar-1451726578
+
+- **Terreno à venda no Balneário Presidente**
+  - 💰 R$ 162.000 | 📐 600 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-balneario-presidente-1451726316
+
+- **Terreno à venda em Imbé, bairro Presidente - Ótima oportunidade! REF: **
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-bairro-presidente-otima-oportunidade-ref-5335-1451223997
+
+- **T263 - Excelente terreno localizado em região de moradores**
+  - 💰 R$ 75.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t263-excelente-terreno-localizado-em-regiao-de-moradores-1450716121
+
+- **T119 - Terreno de esquina localizado a 50 metros do mar**
+  - 💰 R$ 165.000 | 📐 329 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t119-terreno-de-esquina-localizado-a-50-metros-do-mar-1449898622
+
+- **Terreno Amplo de 360m² no Centro de Imbé**
+  - 💰 R$ 145.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-de-360m-no-centro-de-imbe-1449785668
+
+- **T1014 - Belíssimo terreno com piscina no Centro de Imbé**
+  - 💰 R$ 385.000 | 📐 359 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1014-belissimo-terreno-com-piscina-no-centro-de-imbe-1449235956
+
+- **T111 - Ótimo terreno medindo 150m² localizado em região de moradores**
+  - 💰 R$ 55.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t111-otimo-terreno-medindo-150m-localizado-em-regiao-de-moradores-1448919967
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1448877458
+
+- **T103 - Ótimo terreno medindo 150m² localizado em região de moradores**
+  - 💰 R$ 55.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t103-otimo-terreno-medindo-150m-localizado-em-regiao-de-moradores-1448700325
+
+- **Lote à venda no Balneário Presidente em Imbé**
+  - 💰 R$ 159.500 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-balneario-presidente-em-imbe-1447910952
+
+- **Terreno à venda em Imbé, Presidente - Oportunidade única! REF: 3606**
+  - 💰 R$ 162.000 | 📐 292 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-presidente-oportunidade-unica-ref-3606-1447820723
+
+- **Lindo terreno de esquina em Avenida no Bairro Presidente em Imbé, posi**
+  - 💰 R$ 432.000 | 📐 459 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-de-esquina-em-avenida-no-bairro-presidente-em-imbe-posicao-solar-frente-mar-1447820690
+
+- **Lindo terreno com acesso ao Rio Tramandaí, para embarcação como lancha**
+  - 💰 R$ 350.000 | 📐 593 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-com-acesso-ao-rio-tramandai-para-embarcacao-como-lanchas-jet-ski-e-barcos-1447820661
+
+- **Lindo terreno alto e murado à venda no Centro de Imbé!!! REF: 5317**
+  - 💰 R$ 357.000 | 📐 420 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-alto-e-murado-a-venda-no-centro-de-imbe-ref-5317-1447820282
+
+- **Terreno em Condomínio Golden River no centro de Imbé, com acesso ao Ri**
+  - 💰 R$ 880.000 | 📐 1017 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-golden-river-no-centro-de-imbe-com-acesso-ao-rio-tramandai-ref-40-1447817065
+
+- **Terreno de esquina 35x30 à venda no Centro de Imbé, 2 lotes somando 10**
+  - 💰 R$ 756.000 | 📐 1050 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-35x30-a-venda-no-centro-de-imbe-2-lotes-somando-1050m2-ref-4062-1447817081
+
+- **Terreno à venda no Centro de Imbé, 2 lotes total 780m2 REF: 4063**
+  - 💰 R$ 486.000 | 📐 1050 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-imbe-2-lotes-total-780m2-ref-4063-1447817089
+
+- **Terreno de 850m² em Imbé - Frente para Paraguassú - Confira essa ofert**
+  - 💰 R$ 1.026.000 | 📐 850 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-850m-em-imbe-frente-para-paraguassu-confira-essa-oferta-imperdivel-ref-4-1447816960
+
+- **Terreno à venda no Centro de Imbé, 2 lotes total 780m². REF: 4064**
+  - 💰 R$ 486.000 | 📐 780 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-imbe-2-lotes-total-780m-ref-4064-1447816970
+
+- **Terreno de esquina à venda no Centro de Imbé - Ótima oportunidade! REF**
+  - 💰 R$ 254.000 | 📐 442 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-a-venda-no-centro-de-imbe-otima-oportunidade-ref-4657-1447816854
+
+- **Lindo terreno de esquina à venda no centro de Imbé, cercado e murado! **
+  - 💰 R$ 227.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-de-esquina-a-venda-no-centro-de-imbe-cercado-e-murado-ref-4559-1447816530
+
+- **Terreno à venda no Centro de Imbé, de esquina. REF: 4061**
+  - 💰 R$ 648.000 | 📐 450 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-imbe-de-esquina-ref-4061-1447816515
+
+- **Terreno para venda em Imbé, região de comércio, não perca essa chance **
+  - 💰 R$ 324.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-venda-em-imbe-regiao-de-comercio-nao-perca-essa-chance-unica-ref-4419-1447816419
+
+- **Lindo terreno próximo ao mar na zona nobre de Imbé - Venda REF: 4972**
+  - 💰 R$ 324.000 | 📐 350 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-proximo-ao-mar-na-zona-nobre-de-imbe-venda-ref-4972-1447816344
+
+- **Lindo terreno condomínio Golden River Imbé bairro centro de Imbé. REF:**
+  - 💰 R$ 756.000 | 📐 648 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-condominio-golden-river-imbe-bairro-centro-de-imbe-ref-3953-1447816272
+
+- **Terreno à venda no centro de Imbé, próximo ao comércio! REF: 4637**
+  - 💰 R$ 162.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-imbe-proximo-ao-comercio-ref-4637-1447816260
+
+- **Terreno disponível para venda em Presidente, ótima oportunidade de inv**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-disponivel-para-venda-em-presidente-otima-oportunidade-de-investimento-ref-4632-1447816206
+
+- **Terreno para venda em Imbé: ótima localização no Centro REF: 4739**
+  - 💰 R$ 152.000 | 📐 350 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-venda-em-imbe-otima-localizacao-no-centro-ref-4739-1447816205
+
+- **Terreno à venda em Imbé: confira essa oportunidade! REF: 4350**
+  - 💰 R$ 162.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-confira-essa-oportunidade-ref-4350-1447816174
+
+- **Terreno disponível para venda em Presidente, ótima oportunidade de inv**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-disponivel-para-venda-em-presidente-otima-oportunidade-de-investimento-opcao-de-1447816009
+
+- **Terreno à venda em Imbé: confira essa oportunidade! REF: 4728**
+  - 💰 R$ 171.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-confira-essa-oportunidade-ref-4728-1447815998
+
+- **Oportunidade: Terreno de esquina 31x30 para venda em Imbé, Centro! REF**
+  - 💰 R$ 389.000 | 📐 930 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-terreno-de-esquina-31x30-para-venda-em-imbe-centro-ref-5368-1447815574
+
+- **Terreno à venda no Centro de Imbé - Ótima oportunidade! REF: 5286**
+  - 💰 R$ 152.000 | 📐 351 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-imbe-otima-oportunidade-ref-5286-1447815256
+
+- **T34 - Ótimo terreno a apenas 400 metros do mar**
+  - 💰 R$ 94.000 | 📐 149 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t34-otimo-terreno-a-apenas-400-metros-do-mar-1446825766
+
+- **T219 - Ótimo terreno medindo 250m² a 80 metros do mar**
+  - 💰 R$ 155.000 | 📐 249 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t219-otimo-terreno-medindo-250m-a-80-metros-do-mar-1446458042
+
+- **Terreno de Esquina em Região Tranquila de Imbé**
+  - 💰 R$ 154.000 | 📐 355 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-em-regiao-tranquila-de-imbe-1445648030
+
+- **T410 - Terreno medindo 300m² em região de moradores**
+  - 💰 R$ 132.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t410-terreno-medindo-300m-em-regiao-de-moradores-1443265952
+
+- **T120 - Terreno de esquina em Região de Moradores**
+  - 💰 R$ 110.000 | 📐 357 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t120-terreno-de-esquina-em-regiao-de-moradores-1442681305
+
+- **Excelente Terreno a Venda em Imbé/RS!**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-a-venda-em-imbe-rs-1439323829
+
+- **Terreno a 50 metros do Mar em Imbé-RS**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-50-metros-do-mar-em-imbe-rs-1439323539
+
+- **Terreno à venda no Balneário Presidente!**
+  - 💰 R$ 143.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-balneario-presidente-1438572417
+
+- **T139 - Ótimo terreno medindo 300 M² em região de moradores**
+  - 💰 R$ 116.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t139-otimo-terreno-medindo-300-m-em-regiao-de-moradores-1438105721
+
+- **Terreno à venda em região de moradores fixos**
+  - 💰 R$ 88.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-regiao-de-moradores-fixos-1435867586
+
+- **2 Lotes à venda juntos próximo ao mar**
+  - 💰 R$ 385.000 | 📐 600 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/2-lotes-a-venda-juntos-proximo-ao-mar-1435867177
+
+- **Terreno à venda em Mariluz**
+  - 💰 R$ 175.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-mariluz-1435845873
+
+- **Terreno à venda**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435845616
+
+- **Terreno à venda beira mar**
+  - 💰 R$ 220.000 | 📐 262 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-beira-mar-1435845528
+
+- **Terreno à venda**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435845512
+
+- **Terreno à venda de esquina em Santa Teresinha**
+  - 💰 R$ 165.000 | 📐 312 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-de-esquina-em-santa-teresinha-1435845527
+
+- **Terreno à venda**
+  - 💰 R$ 99.000 | 📐 264 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841741
+
+- **Terreno à venda**
+  - 💰 R$ 132.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841625
+
+- **Terreno à venda**
+  - 💰 R$ 1.000.000 | 📐 925 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841631
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 132.000 | 📐 258 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1435841639
+
+- **Terreno à venda**
+  - 💰 R$ 77.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841619
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 150.000 | 📐 600 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1435841577
+
+- **Terreno à venda em Santa Teresinha**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-santa-teresinha-1435841574
+
+- **Terreno à venda em Mariluz**
+  - 💰 R$ 192.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-mariluz-1435841586
+
+- **Terreno de esquina em Mariluz**
+  - 💰 R$ 192.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-em-mariluz-1435841546
+
+- **Terreno à venda**
+  - 💰 R$ 154.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841439
+
+- **Terreno à venda em ótima localização**
+  - 💰 R$ 88.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-otima-localizacao-1435841414
+
+- **Terreno à venda**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841390
+
+- **Terreno à venda**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841417
+
+- **Terreno à venda**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841374
+
+- **Terreno em Mariluz**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-mariluz-1435841368
+
+- **Terreno em região de moradores**
+  - 💰 R$ 80.000 | 📐 270 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-regiao-de-moradores-1435841382
+
+- **Terreno em Imbé**
+  - 💰 R$ 108.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-imbe-1435841371
+
+- **Terreno à venda**
+  - 💰 R$ 1.000.000 | 📐 925 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841320
+
+- **Terreno à venda em Mariluz**
+  - 💰 R$ 198.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-mariluz-1435841326
+
+- **Terreno à venda próximo ao mar**
+  - 💰 R$ 132.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-proximo-ao-mar-1435841357
+
+- **Loteamento PRESIDENTE**
+  - 💰 R$ 156.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/loteamento-presidente-1435841310
+
+- **Terreno à venda**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841322
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1435841329
+
+- **Barranca de Rio em Imbé**
+  - 💰 R$ 136.570 | 📐 257 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/barranca-de-rio-em-imbe-1435841241
+
+- **Terreno à venda no Balneário Presidente**
+  - 💰 R$ 142.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-balneario-presidente-1435841279
+
+- **Terrenos em Bairro Planejado**
+  - 💰 R$ 225.157 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-em-bairro-planejado-1435841147
+
+- **Terreno beira mar de Imbé**
+  - 💰 R$ 250.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-mar-de-imbe-1435840962
+
+- **Terreno à venda**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841077
+
+- **Terreno à venda**
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1435841023
+
+- **Terreno em Mariluz**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-mariluz-1435841024
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 205.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1435841066
+
+- **TERRENO DE ESQUINA**
+  - 💰 R$ 110.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-1435840963
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 40.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1435840966
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 154.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1435841014
+
+- **Terreno à venda em Imbé**
+  - 💰 R$ 143.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-1435841033
+
+- **Lote à venda em Imbé**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-em-imbe-1435840913
+
+- **Terreno à venda em Mariluz**
+  - 💰 R$ 176.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-mariluz-1435840799
+
+- **T131 - Ótimo terreno em região de moradores em Santa Terezinha**
+  - 💰 R$ 143.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t131-otimo-terreno-em-regiao-de-moradores-em-santa-terezinha-1430427526
+
+- **Oportunidade em Imbé! Terrenos de 360m² na Avenida Tancredo Neves**
+  - 💰 R$ 145.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-em-imbe-terrenos-de-360m-na-avenida-tancredo-neves-1426600472
+
+- **T173 - Terreno medindo 190m² localizado em região de moradores**
+  - 💰 R$ 130.000 | 📐 190 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t173-terreno-medindo-190m-localizado-em-regiao-de-moradores-1425085330
+
+- **T172 - Ótimos lotes localizados em região de moradores**
+  - 💰 R$ 110.000 | 📐 405 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t172-otimos-lotes-localizados-em-regiao-de-moradores-1425076886
+
+- **T18 - Ótimo terreno medindo 300 m² localizado em região de moradores**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t18-otimo-terreno-medindo-300-m-localizado-em-regiao-de-moradores-1424827033
+
+- **T168 - Ótimo terreno de esquina medindo 325m² em região de moradores**
+  - 💰 R$ 176.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t168-otimo-terreno-de-esquina-medindo-325m-em-regiao-de-moradores-1424560397
+
+- **T1073 - Excelente terreno medindo 390m² em ótima localização**
+  - 💰 R$ 187.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1073-excelente-terreno-medindo-390m-em-otima-localizacao-1423465948
+
+- **T239 - Excelente lote medindo 300m² no balneário Marisul**
+  - 💰 R$ 98.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t239-excelente-lote-medindo-300m-no-balneario-marisul-1422829163
+
+- **T213 - Ótimo terreno em excelente localização em Mariluz**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t213-otimo-terreno-em-excelente-localizacao-em-mariluz-1422829175
+
+- **T162 - Ótimo terreno localizado em região de moradores**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t162-otimo-terreno-localizado-em-regiao-de-moradores-1421943444
+
+- **T161 - Excelente lote em ótima localização na Av. Paraguassú**
+  - 💰 R$ 990.000 | 📐 1235 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t161-excelente-lote-em-otima-localizacao-na-av-paraguassu-1421541606
+
+- **T150 - Ótimo lote medindo 300m² localizado em região de moradores**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t150-otimo-lote-medindo-300m-localizado-em-regiao-de-moradores-1418915487
+
+- **Terreno com 300m² a 600 Metros do Mar no Balneário Presidente em Imbé**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-300m-a-600-metros-do-mar-no-balneario-presidente-em-imbe-1418707155
+
+- **Terreno a Venda no Balneário Presidente em Imbé-RS**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-balneario-presidente-em-imbe-rs-1416671930
+
+- **T160 - Ótimo terreno medindo 300m² localizado em região de moradores**
+  - 💰 R$ 66.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t160-otimo-terreno-medindo-300m-localizado-em-regiao-de-moradores-1416368441
+
+- **T288 - Ótimo terreno medindo 300m² localizado no balneário Imara**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t288-otimo-terreno-medindo-300m-localizado-no-balneario-imara-1414685012
+
+- **T224 - Excelente lote localizado no balneário Marisul**
+  - 💰 R$ 98.000 | 📐 264 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t224-excelente-lote-localizado-no-balneario-marisul-1414683381
+
+- **T269 - Ótimo terreno medindo 300m² localizado em região de moradores**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t269-otimo-terreno-medindo-300m-localizado-em-regiao-de-moradores-1414657526
+
+- **T199 - Excelente terreno localizado em região de moradores**
+  - 💰 R$ 108.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t199-excelente-terreno-localizado-em-regiao-de-moradores-1414656765
+
+- **T244 - Ótimo lote medindo 300m² localizado em excelente região**
+  - 💰 R$ 98.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t244-otimo-lote-medindo-300m-localizado-em-excelente-regiao-1414648987
+
+- **T62 - Ótimo terreno localizado em região de moradores**
+  - 💰 R$ 75.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t62-otimo-terreno-localizado-em-regiao-de-moradores-1414648896
+
+- **T31 - Ótimo terreno medindo 300m² localizado em região de moradores**
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t31-otimo-terreno-medindo-300m-localizado-em-regiao-de-moradores-1414647358
+
+- **T271 - Ótimo terreno medindo 325m² localizado em região de moradores**
+  - 💰 R$ 83.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t271-otimo-terreno-medindo-325m-localizado-em-regiao-de-moradores-1414640296
+
+- **T250 - Terreno localizado em região tranquila no balneário Santa Terez**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t250-terreno-localizado-em-regiao-tranquila-no-balneario-santa-terezinha-1414638724
+
+- **T380 - Ótimo terreno de 300m² localizado no balneário Mariluz**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t380-otimo-terreno-de-300m-localizado-no-balneario-mariluz-1414637548
+
+- **T153 - Ótimo terreno medindo 300m² localizado em região de moradores**
+  - 💰 R$ 121.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t153-otimo-terreno-medindo-300m-localizado-em-regiao-de-moradores-1413901086
+
+- **T141 - Excelente terreno de esquina localizado no Balneário Marisul**
+  - 💰 R$ 118.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t141-excelente-terreno-de-esquina-localizado-no-balneario-marisul-1412090024
+
+- **Terreno no Centro de Imbé com Ótima Localização**
+  - 💰 R$ 168.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-centro-de-imbe-com-otima-localizacao-1411040719
+
+- **T138 - Excelente terreno localizado no Balneário Presidente**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t138-excelente-terreno-localizado-no-balneario-presidente-1410442220
+
+- **Terreno à Venda em Imbé a Uma Quadra da Praia**
+  - 💰 R$ 245.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-imbe-a-uma-quadra-da-praia-1410305392
+
+- **T277 - Terreno em região de moradores no balneário Presidente**
+  - 💰 R$ 173.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t277-terreno-em-regiao-de-moradores-no-balneario-presidente-1408637677
+
+- **T127 - Terreno medindo 300m² localizado a 370 metros do mar**
+  - 💰 R$ 176.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t127-terreno-medindo-300m-localizado-a-370-metros-do-mar-1408062041
+
+- **T365 - Excelente lote localizado na Avenida principal de Imbé/RS**
+  - 💰 R$ 324.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t365-excelente-lote-localizado-na-avenida-principal-de-imbe-rs-1407794375
+
+- **T1053 - Excelente terreno de 1404m² localizado no Centro de Imbé**
+  - 💰 R$ 810.000 | 📐 1404 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1053-excelente-terreno-de-1404m-localizado-no-centro-de-imbe-1406017162
+
+- **T122 - Lindo terreno de esquina a 400 metros do mar em Imbé-RS**
+  - 💰 R$ 324.000 | 📐 540 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t122-lindo-terreno-de-esquina-a-400-metros-do-mar-em-imbe-rs-1406014475
+
+- **T1038 - Ótimo terreno localizado em região tranquila no Centro de Imbé**
+  - 💰 R$ 302.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1038-otimo-terreno-localizado-em-regiao-tranquila-no-centro-de-imbe-1406014458
+
+- **T1047 - Lindo terreno em ótima localização no Centro de Imbé**
+  - 💰 R$ 260.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1047-lindo-terreno-em-otima-localizacao-no-centro-de-imbe-1406014369
+
+- **T118 - Ótimo terreno localizado em região de moradores em Imbé**
+  - 💰 R$ 66.000 | 📐 72 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t118-otimo-terreno-localizado-em-regiao-de-moradores-em-imbe-1405315771
+
+- **Excelente Terreno na praia, já murado, em Imbé. R$ 250.000,00**
+  - 💰 R$ 250.000 | 📐 420 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-na-praia-ja-murado-em-imbe-r-250-000-00-1405080128
+
+- **Terreno 12x25 em Localização Privilegiada no Bairro Albatroz, Imbé**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-12x25-em-localizacao-privilegiada-no-bairro-albatroz-imbe-1403601559
+
+- **Terreno Escriturado em Imbé  Ótima Oportunidade para Construir ou Inve**
+  - 💰 R$ 124.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-escriturado-em-imbe-otima-oportunidade-para-construir-ou-investir-no-litoral-1401240818
+
+- **Terreno à Venda no Centro de Imbé  Localização Privilegiada em Rua Asf**
+  - 💰 R$ 290.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-imbe-localizacao-privilegiada-em-rua-asfaltada-1399581668
+
+- **T216 - Excelente lote localizado na RS 786 em Imbé**
+  - 💰 R$ 154.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t216-excelente-lote-localizado-na-rs-786-em-imbe-1399121833
+
+- **T84 - Ótimo terreno medindo 300m² em localizado em região de moradores**
+  - 💰 R$ 143.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t84-otimo-terreno-medindo-300m-em-localizado-em-regiao-de-moradores-1399120788
+
+- **T67 - Excelente lote medindo 356m² de esquina em ótima localização**
+  - 💰 R$ 194.000 | 📐 356 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t67-excelente-lote-medindo-356m-de-esquina-em-otima-localizacao-1399066297
+
+- **Terreno Amplo no Centro de Imbé  Oportunidade Imperdível**
+  - 💰 R$ 190.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-no-centro-de-imbe-oportunidade-imperdivel-1398238094
+
+- **T25 - Ótimo lote medindo 300 m² localizado em região de moradores**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t25-otimo-lote-medindo-300-m-localizado-em-regiao-de-moradores-1396459809
+
+- **Terreno com Piscina e Anexo no Centro de Imbé**
+  - 💰 R$ 198.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-piscina-e-anexo-no-centro-de-imbe-1395977811
+
+- **T08 - Ótimo lote medindo 300m² localizado em região de moradores**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t08-otimo-lote-medindo-300m-localizado-em-regiao-de-moradores-1395696632
+
+- **T72 - Ótimo terreno medindo 360m² em Imbé**
+  - 💰 R$ 146.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t72-otimo-terreno-medindo-360m-em-imbe-1395687228
+
+- **Terreno Santa Terezinha**
+  - 💰 R$ 148.400 | 📐 345 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-santa-terezinha-1394945983
+
+- **T97 - Excelente lote localizado a 90 metros do mar**
+  - 💰 R$ 125.000 | 📐 200 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t97-excelente-lote-localizado-a-90-metros-do-mar-1394643987
+
+- **T39 - Excelente lote localizado a 100 metros do mar**
+  - 💰 R$ 95.000 | 📐 163 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t39-excelente-lote-localizado-a-100-metros-do-mar-1394487605
+
+- **T05 - Excelente lote localizado a 100 metros do mar**
+  - 💰 R$ 160.000 | 📐 269 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t05-excelente-lote-localizado-a-100-metros-do-mar-1394444463
+
+- **T35 - Excelente lote localizado a 100 metros do mar**
+  - 💰 R$ 130.000 | 📐 225 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t35-excelente-lote-localizado-a-100-metros-do-mar-1394276335
+
+- **T33 - Excelente lote localizado a 100 metros do mar**
+  - 💰 R$ 170.000 | 📐 291 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t33-excelente-lote-localizado-a-100-metros-do-mar-1394267824
+
+- **T74 - Terreno medindo 375m² localizado na balneário Presidente**
+  - 💰 R$ 30.000 | 📐 375 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t74-terreno-medindo-375m-localizado-na-balneario-presidente-1394057958
+
+- **T81 - Ótimo terreno de esquina a 400 metros do mar**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t81-otimo-terreno-de-esquina-a-400-metros-do-mar-1394057446
+
+- **T82 - Ótimo terreno localizado a 150 metros do mar no balneário Presid**
+  - 💰 R$ 99.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t82-otimo-terreno-localizado-a-150-metros-do-mar-no-balneario-presidente-1394057143
+
+- **T01 - Ótimo terreno localizado em região de moradores em Imbé**
+  - 💰 R$ 119.000 | 📐 277 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t01-otimo-terreno-localizado-em-regiao-de-moradores-em-imbe-1394056780
+
+- **T104 - Excelente lote medindo 300m² em ótima localização**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t104-excelente-lote-medindo-300m-em-otima-localizacao-1394050393
+
+- **T91 - Lindo lote localizado em região de veranistas em Santa Terezinha**
+  - 💰 R$ 95.000 | 📐 150 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t91-lindo-lote-localizado-em-regiao-de-veranistas-em-santa-terezinha-1377970360
+
+- **Excelente terreno a 350m do mar.**
+  - 💰 R$ 100.000 | 📐 219 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-a-350m-do-mar-1360858199
+
+- **Terreno à Venda no Bairro Imara com Área Construível Aguardando seu Pr**
+  - 💰 R$ 110.000 | 📐 ? m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-imara-com-area-construivel-aguardando-seu-projeto-ideal-1353004362
+
+- **Terreno à venda, 300 m² por R$ 108.000,00 - Marisul - Imbé/RS**
+  - 💰 R$ 108.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-300-m-por-r-108-000-00-marisul-imbe-rs-1341195831
+
+- **T1060 - Lindo terreno de esquina localizado no Centro de Imbé**
+  - 💰 R$ 292.000 | 📐 480 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1060-lindo-terreno-de-esquina-localizado-no-centro-de-imbe-1291480304
+
+- **T235 - Lindo terreno medindo 300m² em excelente localização**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t235-lindo-terreno-medindo-300m-em-excelente-localizacao-1291467231
+
+- **T252 - Excelente terreno em ótima localização a 100 metros do mar**
+  - 💰 R$ 270.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t252-excelente-terreno-em-otima-localizacao-a-100-metros-do-mar-1288336631
+
+- **T112 - Lindo terreno em região de moradores no balneário Albatroz**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t112-lindo-terreno-em-regiao-de-moradores-no-balneario-albatroz-1285522039
+
+- **T210 - Ótimo terreno a 50 metros do mar localizado no Balneário Presid**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t210-otimo-terreno-a-50-metros-do-mar-localizado-no-balneario-presidente-1284349342
+
+- **T206 - Lindo terreno localizado no Balneário Imara**
+  - 💰 R$ 113.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t206-lindo-terreno-localizado-no-balneario-imara-1283451412
+
+- **T205 - Lindo terreno a 150 metros do mar em Imara**
+  - 💰 R$ 119.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t205-lindo-terreno-a-150-metros-do-mar-em-imara-1283450592
+
+- **T197 - Excelente terreno em ótima localização no Balneário Presidente**
+  - 💰 R$ 432.000 | 📐 459 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t197-excelente-terreno-em-otima-localizacao-no-balneario-presidente-1283136041
+
+- **T167 - Lindo terreno localizado em região de moradores no Balneário Ma**
+  - 💰 R$ 130.000 | 📐 312 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t167-lindo-terreno-localizado-em-regiao-de-moradores-no-balneario-marisul-1281921376
+
+- **T1002 - Excelente terreno de esquina localizado no Centro de Imbé/RS**
+  - 💰 R$ 500.000 | 📐 570 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1002-excelente-terreno-de-esquina-localizado-no-centro-de-imbe-rs-1279667022
+
+- **T151 - Ótimo terreno localizado a 150 metros do mar no balneário Maril**
+  - 💰 R$ 270.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t151-otimo-terreno-localizado-a-150-metros-do-mar-no-balneario-mariluz-1279665796
+
+- **T357 - Excelente lote medindo 312,5m² localizado no balneário Presiden**
+  - 💰 R$ 151.000 | 📐 312 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t357-excelente-lote-medindo-312-5m-localizado-no-balneario-presidente-1279665359
+
+- **T1001 - Ótimo terreno de esquina localizado no Centro de Imbé**
+  - 💰 R$ 259.000 | 📐 570 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1001-otimo-terreno-de-esquina-localizado-no-centro-de-imbe-1279663489
+
+- **T115 - Terreno a 400 metros do mar localizado do Balneário Presidente**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t115-terreno-a-400-metros-do-mar-localizado-do-balneario-presidente-1267307109
+
+- **T1056 - Lindo Terreno de Esquina localizado no Centro de Imbé**
+  - 💰 R$ 313.000 | 📐 420 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1056-lindo-terreno-de-esquina-localizado-no-centro-de-imbe-1265310513
+
+- **T63 - Terreno localizado em ótima localização no balneário Presidente**
+  - 💰 R$ 129.900 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t63-terreno-localizado-em-otima-localizacao-no-balneario-presidente-1247878901
+
+- **T1032 - Terreno em ótima localização no Centro de Imbé**
+  - 💰 R$ 162.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1032-terreno-em-otima-localizacao-no-centro-de-imbe-1232971644
+
+- **T181 - Ótimo terreno de esquina medindo 356,25m² no balneário Presiden**
+  - 💰 R$ 264.000 | 📐 356 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t181-otimo-terreno-de-esquina-medindo-356-25m-no-balneario-presidente-1230422069
+
+- **T1028 - Terreno localização tranquila no Centro de Imbé/RS**
+  - 💰 R$ 165.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1028-terreno-localizacao-tranquila-no-centro-de-imbe-rs-1229415521
+
+- **T1055 - Terreno de 390m² localizado em região tranquila no Centro de I**
+  - 💰 R$ 135.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1055-terreno-de-390m-localizado-em-regiao-tranquila-no-centro-de-imbe-1229200522
+
+- **T1054 - Excelente terreno de 780m² localizado no Centro de Imbé**
+  - 💰 R$ 259.000 | 📐 780 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1054-excelente-terreno-de-780m-localizado-no-centro-de-imbe-1229193911
+
+- **T407 - Lindo terreno medindo 300m² localizado no balneário Mariluz**
+  - 💰 R$ 93.500 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t407-lindo-terreno-medindo-300m-localizado-no-balneario-mariluz-1228173770
+
+- **T297 - Lindo terreno de esquina no balneário Harmonia**
+  - 💰 R$ 151.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t297-lindo-terreno-de-esquina-no-balneario-harmonia-1217317942
+
+- **T358 - Terreno em excelente localização próximo ao mar no balneário Ma**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t358-terreno-em-excelente-localizacao-proximo-ao-mar-no-balneario-mariluz-1216666891
+
+- **T85 - Terreno medindo 300m² localizado no balneário Santa Terezinha**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t85-terreno-medindo-300m-localizado-no-balneario-santa-terezinha-1204691340
+
+- **T247 - Excelente terreno localizado a 50 metros do mar no balneário Im**
+  - 💰 R$ 162.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t247-excelente-terreno-localizado-a-50-metros-do-mar-no-balneario-imara-1203772259
+
+- **T90 - Excelente terreno a 50 metros do mar no balneário Presidente**
+  - 💰 R$ 77.000 | 📐 350 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t90-excelente-terreno-a-50-metros-do-mar-no-balneario-presidente-1200258400
+
+- **T412 - Excelente terreno a 50 metros do mar em Marisul**
+  - 💰 R$ 192.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t412-excelente-terreno-a-50-metros-do-mar-em-marisul-1196333984
+
+- **T405 - Lindo terreno localizado em região de moradores em Albatroz**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t405-lindo-terreno-localizado-em-regiao-de-moradores-em-albatroz-1192737870
+
+- **T397 - Excelente terreno de 600m² com vista para o mar em Mariluz**
+  - 💰 R$ 275.000 | 📐 600 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t397-excelente-terreno-de-600m-com-vista-para-o-mar-em-mariluz-1191952943
+
+- **T95 - Lindo terreno localizado no balneário Presidente**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t95-lindo-terreno-localizado-no-balneario-presidente-1190556486
+
+- **T403 - Terreno localizado próximo ao mar no balneário Riviera**
+  - 💰 R$ 114.500 | 📐 309 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t403-terreno-localizado-proximo-ao-mar-no-balneario-riviera-1189141118
+
+- **T402 - Terreno em ótima localização no balneário Presidente**
+  - 💰 R$ 130.000 | 📐 107 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t402-terreno-em-otima-localizacao-no-balneario-presidente-1187772970
+
+- **T401 - Excelente terreno de 300m² localizado no balneário Nordeste**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t401-excelente-terreno-de-300m-localizado-no-balneario-nordeste-1186537778
+
+- **T83 - Lindo terreno de 300m² localizado no balneário Presidente**
+  - 💰 R$ 148.500 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t83-lindo-terreno-de-300m-localizado-no-balneario-presidente-1183573263
+
+- **T394 - Terreno em excelente localização no balneário Mariluz**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t394-terreno-em-excelente-localizacao-no-balneario-mariluz-1179000485
+
+- **Terreno no bairro Balneário Presidente**
+  - 💰 R$ 310.000 | 📐 669 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-balneario-presidente-978625857
+
+- **T386 - Ótimos lotes localizados a 350 metros do mar no balneário Presi**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t386-otimos-lotes-localizados-a-350-metros-do-mar-no-balneario-presidente-1168529094
+
+- **T372 - Excelente terreno para comércio localizado na avenida principal**
+  - 💰 R$ 450.000 | 📐 579 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t372-excelente-terreno-para-comercio-localizado-na-avenida-principal-1159482480
+
+- **T368 - Terreno de esquina com 825m² localizado no balneário Santa Tere**
+  - 💰 R$ 380.000 | 📐 825 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t368-terreno-de-esquina-com-825m-localizado-no-balneario-santa-terezinha-1157978947
+
+- **T366 - Terreno em ótima localização a 450 metros do mar em Santa Terez**
+  - 💰 R$ 99.000 | 📐 281 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t366-terreno-em-otima-localizacao-a-450-metros-do-mar-em-santa-terezinha-1156439218
+
+- **T361 - Ótimo terreno de 925m² localizado em avenida principal**
+  - 💰 R$ 1.400.000 | 📐 925 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t361-otimo-terreno-de-925m-localizado-em-avenida-principal-1152269249
+
+- **T356 - Terreno em avenida localizado no balneário Santa Terezinha**
+  - 💰 R$ 162.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t356-terreno-em-avenida-localizado-no-balneario-santa-terezinha-1151508414
+
+- **T351 - Lindo terreno localizado a 450 metros do mar no balneário Presi**
+  - 💰 R$ 176.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t351-lindo-terreno-localizado-a-450-metros-do-mar-no-balneario-presidente-1148693777
+
+- **T347 - Terreno com 300m² localizado no balneário Presidente**
+  - 💰 R$ 154.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t347-terreno-com-300m-localizado-no-balneario-presidente-1144459076
+
+- **T350 - Terreno localizado em região de moradores no balneário Albatroz**
+  - 💰 R$ 72.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t350-terreno-localizado-em-regiao-de-moradores-no-balneario-albatroz-1143614049
+
+- **T341 - Lindo terreno de 300m² localizado no balneário Santa Terezinha**
+  - 💰 R$ 132.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t341-lindo-terreno-de-300m-localizado-no-balneario-santa-terezinha-1135113427
+
+- **T340 - Terreno de esquina localizado em Santa Terezinha**
+  - 💰 R$ 178.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t340-terreno-de-esquina-localizado-em-santa-terezinha-1134541380
+
+- **T338 - Lindo terreno a 50 metros do mar no balneário Imara**
+  - 💰 R$ 198.000 | 📐 330 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t338-lindo-terreno-a-50-metros-do-mar-no-balneario-imara-1133491577
+
+- **T332 - Lindo terreno próximo ao mar no balneário Harmonia**
+  - 💰 R$ 176.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t332-lindo-terreno-proximo-ao-mar-no-balneario-harmonia-1126338272
+
+- **T330 - Terreno localizado em região de moradores no bairro Santa Terez**
+  - 💰 R$ 88.000 | 📐 264 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t330-terreno-localizado-em-regiao-de-moradores-no-bairro-santa-terezinha-1126281755
+
+- **T329 - Lindo terreno de 300m² localizado no balneário Mariluz**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t329-lindo-terreno-de-300m-localizado-no-balneario-mariluz-1124852411
+
+- **T326 - Lindo terreno de esquina em excelente localização**
+  - 💰 R$ 194.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t326-lindo-terreno-de-esquina-em-excelente-localizacao-1123524408
+
+- **T321 - Ótimo terreno de 300m² localizado no balneário Santa Terezinha**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t321-otimo-terreno-de-300m-localizado-no-balneario-santa-terezinha-1119001099
+
+- **T311 - Lindo terreno de 300m² no balneário Albatroz**
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t311-lindo-terreno-de-300m-no-balneario-albatroz-1111444333
+
+- **T308 - Excelente terreno de esquina a poucos metros do mar em Mariluz**
+  - 💰 R$ 275.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t308-excelente-terreno-de-esquina-a-poucos-metros-do-mar-em-mariluz-1108880016
+
+- **T298 - Excelente terreno de esquina medindo 312m² em Santa Terezinha**
+  - 💰 R$ 165.000 | 📐 312 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t298-excelente-terreno-de-esquina-medindo-312m-em-santa-terezinha-1092807709
+
+- **T283 - Terreno medindo 300m² no balneário Albatroz**
+  - 💰 R$ 98.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t283-terreno-medindo-300m-no-balneario-albatroz-1087751348
+
+- **T281 - Ótimo terreno medindo 300m² no balneário Albatroz**
+  - 💰 R$ 154.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t281-otimo-terreno-medindo-300m-no-balneario-albatroz-1087696823
+
+- **T290 - Ótimos lotes em bairro planejado de Imbé/RS**
+  - 💰 R$ 141.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t290-otimos-lotes-em-bairro-planejado-de-imbe-rs-1086745191
+
+- **T1011 - Excelente terreno medindo 390m² no Centro**
+  - 💰 R$ 165.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1011-excelente-terreno-medindo-390m-no-centro-1086332971
+
+- **T1009 - Lindo terreno medindo 390m² no Centro de Imbé**
+  - 💰 R$ 253.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1009-lindo-terreno-medindo-390m-no-centro-de-imbe-1086318959
+
+- **T1008 - Excelente terreno de 360m² localizado no Centro de Imbé/RS**
+  - 💰 R$ 220.000 | 📐 360 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1008-excelente-terreno-de-360m-localizado-no-centro-de-imbe-rs-1086297045
+
+- **T1006 - Lindo terreno de esquina no Centro de Imbé/RS**
+  - 💰 R$ 600.000 | 📐 450 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1006-lindo-terreno-de-esquina-no-centro-de-imbe-rs-1086263194
+
+- **T124 - Terreno medindo 300 m² localizado no balneário Mariluz**
+  - 💰 R$ 108.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t124-terreno-medindo-300-m-localizado-no-balneario-mariluz-1086200970
+
+- **T209 - Excelentes lotes medindo 300 m² no balneário de Santa Terezinha**
+  - 💰 R$ 98.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t209-excelentes-lotes-medindo-300-m-no-balneario-de-santa-terezinha-1086175069
+
+- **T76 - Excelente terreno medindo 300 m² no balneário Presidente**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t76-excelente-terreno-medindo-300-m-no-balneario-presidente-1085626239
+
+- **T78 - Excelente terreno localizado no balneário Santa Terezinha**
+  - 💰 R$ 132.000 | 📐 264 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t78-excelente-terreno-localizado-no-balneario-santa-terezinha-1085623802
+
+- **T187 - Excelente lote de esquina medindo 325 m² no balneário Marisul**
+  - 💰 R$ 108.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t187-excelente-lote-de-esquina-medindo-325-m-no-balneario-marisul-1085564106
+
+- **T1000 - Ótimo terreno medindo 1560m² no Centro de Imbé/RS**
+  - 💰 R$ 1.650.000 | 📐 1560 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1000-otimo-terreno-medindo-1560m-no-centro-de-imbe-rs-1085511450
+
+- **T251 - Ótimo terreno de 300 m² no balneário Albatroz**
+  - 💰 R$ 151.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t251-otimo-terreno-de-300-m-no-balneario-albatroz-1085481309
+
+- **T54 - Excelente terreno medindo 300 m² em Albatroz**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t54-excelente-terreno-medindo-300-m-em-albatroz-1085227675
+
+- **T70 - Excelente terreno de esquina localizado no Balneário Marisul**
+  - 💰 R$ 118.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t70-excelente-terreno-de-esquina-localizado-no-balneario-marisul-1085163476
+
+- **T128 - Excelente terreno localizado no balneário Albatroz**
+  - 💰 R$ 66.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t128-excelente-terreno-localizado-no-balneario-albatroz-1085115085
+
+- **T93 - Lindo terreno localizado em Avenida asfaltada**
+  - 💰 R$ 183.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t93-lindo-terreno-localizado-em-avenida-asfaltada-1084812002
+
+- **T56 - Ótimo terreno medindo 300m² localizado no balneário Albatroz**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t56-otimo-terreno-medindo-300m-localizado-no-balneario-albatroz-1084764200
+
+- **T13 - Lindo terreno pronto para construir em Santa Terezinha**
+  - 💰 R$ 103.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t13-lindo-terreno-pronto-para-construir-em-santa-terezinha-1084762614
+
+- **T125 - Lindo terreno de 300 m² situado a 50 metros do mar**
+  - 💰 R$ 83.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t125-lindo-terreno-de-300-m-situado-a-50-metros-do-mar-1084747020
+
+- **T1004 - Ótimo terreno de 390m² no centro de Imbé/RS**
+  - 💰 R$ 194.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t1004-otimo-terreno-de-390m-no-centro-de-imbe-rs-1073666208
+
+- **T256 - Lindo terreno de 300m² no balneário Santa Terezinha**
+  - 💰 R$ 88.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t256-lindo-terreno-de-300m-no-balneario-santa-terezinha-1052547143
+
+- **T208 - Ótimo terreno localizado no balneário Albatroz**
+  - 💰 R$ 103.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t208-otimo-terreno-localizado-no-balneario-albatroz-1030032198
+
+- **T110 - Excelente terreno de 300m² localizado em Mariluz**
+  - 💰 R$ 162.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t110-excelente-terreno-de-300m-localizado-em-mariluz-1029426481
+
+- **T102 - Excelente lote de esquina medindo 325 m² no balneário Marisul**
+  - 💰 R$ 91.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t102-excelente-lote-de-esquina-medindo-325-m-no-balneario-marisul-1029326744
+
+- **T48 - Belos terrenos de 300 m² em excelente região na praia**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t48-belos-terrenos-de-300-m-em-excelente-regiao-na-praia-1029304657
+
+- **T46 - Excelente lote de esquina localizado no balneário Marisul**
+  - 💰 R$ 104.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t46-excelente-lote-de-esquina-localizado-no-balneario-marisul-1029281047
+
+- **T27 - Terreno murado com 300² no balneário Nordeste**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t27-terreno-murado-com-300-no-balneario-nordeste-1028945059
+
+- **T09 - Excelente lote de esquina localizado em ótima região**
+  - 💰 R$ 204.000 | 📐 356 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t09-excelente-lote-de-esquina-localizado-em-otima-regiao-1028920127
+
+- **T10 - Excelente terreno em ótima localização no balneário Presidente**
+  - 💰 R$ 209.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t10-excelente-terreno-em-otima-localizacao-no-balneario-presidente-1028911760
+
+- **T242 - Ótimo terreno de esquina próximo ao mar no balneário Mariluz**
+  - 💰 R$ 209.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t242-otimo-terreno-de-esquina-proximo-ao-mar-no-balneario-mariluz-1028905288
+
+- **T24 - Lindo terreno de esquina medindo 450 m² em excelente localização**
+  - 💰 R$ 162.000 | 📐 450 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t24-lindo-terreno-de-esquina-medindo-450-m-em-excelente-localizacao-1028900203
+
+- **T233 - Terreno medindo 300 m² no balneário Albatroz**
+  - 💰 R$ 96.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t233-terreno-medindo-300-m-no-balneario-albatroz-1028886954
+
+- **T232 - Ótimo terreno localizado no bairro Mariluz**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t232-otimo-terreno-localizado-no-bairro-mariluz-1028885082
+
+- **T32 - Ótimo terreno medindo 300 m² no balneário Albatroz**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t32-otimo-terreno-medindo-300-m-no-balneario-albatroz-1028851423
+
+- **T229 - Lindo lote localizado em Mariluz na avenida principal de Imbé**
+  - 💰 R$ 1.210.000 | 📐 625 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t229-lindo-lote-localizado-em-mariluz-na-avenida-principal-de-imbe-1028157652
+
+- **T204 - Excelente lote medindo 400 m² no balneário Santa Terezinha**
+  - 💰 R$ 110.000 | 📐 400 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t204-excelente-lote-medindo-400-m-no-balneario-santa-terezinha-1026943670
+
+- **T201 - Ótimo terreno medindo 300 m² no balneário Albatroz**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t201-otimo-terreno-medindo-300-m-no-balneario-albatroz-1026929384
+
+- **T192 - Lindo terreno medindo 625 m² próximo ao mar**
+  - 💰 R$ 324.000 | 📐 625 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t192-lindo-terreno-medindo-625-m-proximo-ao-mar-1026124531
+
+- **T194 - Lindos lotes localizados a 150 metros do mar**
+  - 💰 R$ 432.000 | 📐 1225 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t194-lindos-lotes-localizados-a-150-metros-do-mar-1026121498
+
+- **T19 - Excelente terreno com 390 m² no Centro de Imbé**
+  - 💰 R$ 165.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t19-excelente-terreno-com-390-m-no-centro-de-imbe-1026109507
+
+- **T188 - Ótimo terreno de 300m² localizado no balneário Mariluz**
+  - 💰 R$ 116.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t188-otimo-terreno-de-300m-localizado-no-balneario-mariluz-1026104060
+
+- **T177 - Lindo terreno de esquina a 80 metros do mar**
+  - 💰 R$ 177.100 | 📐 241 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t177-lindo-terreno-de-esquina-a-80-metros-do-mar-1025783627
+
+- **T176 - Lindo terreno de esquina a 80 metros do mar**
+  - 💰 R$ 197.450 | 📐 241 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t176-lindo-terreno-de-esquina-a-80-metros-do-mar-1025774582
+
+- **T166 - Excelente lote no balneário Marisul**
+  - 💰 R$ 112.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t166-excelente-lote-no-balneario-marisul-1025225847
+
+- **T164 - Ótimo terreno situado no Centro de Imbé**
+  - 💰 R$ 154.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t164-otimo-terreno-situado-no-centro-de-imbe-1025219978
+
+- **T159 - Excelente terreno de esquina no balneário Albatroz**
+  - 💰 R$ 86.000 | 📐 325 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t159-excelente-terreno-de-esquina-no-balneario-albatroz-1025200005
+
+- **T158 - Ótimo lote medindo 264 m² em Santa Terezinha**
+  - 💰 R$ 86.000 | 📐 264 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t158-otimo-lote-medindo-264-m-em-santa-terezinha-1025197984
+
+- **T154 - Ótimo lote gramado, cercado e aterrado**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t154-otimo-lote-gramado-cercado-e-aterrado-1024735854
+
+- **T149 - Ótimo terreno localizado a 600 metros do mar em Imbé**
+  - 💰 R$ 176.000 | 📐 390 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t149-otimo-terreno-localizado-a-600-metros-do-mar-em-imbe-1024721169
+
+- **T143 - Lindos terrenos localizados com vista para o mar**
+  - 💰 R$ 220.000 | 📐 600 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t143-lindos-terrenos-localizados-com-vista-para-o-mar-1024651049
+
+- **T14 - Excelente terreno na Avenida principal**
+  - 💰 R$ 626.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t14-excelente-terreno-na-avenida-principal-1024639298
+
+- **T137 - Excelente terreno cercado com 300m² no balneário Santa Terezinh**
+  - 💰 R$ 93.500 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t137-excelente-terreno-cercado-com-300m-no-balneario-santa-terezinha-1024624845
+
+- **T136 - Lindo terreno localizado na avenida principal de Imbé**
+  - 💰 R$ 1.900.000 | 📐 729 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t136-lindo-terreno-localizado-na-avenida-principal-de-imbe-1024615150
+
+- **T130 - Lindo terreno localizado no balneário Albatroz**
+  - 💰 R$ 88.000 | 📐 300 m²
+  - 📍  — Imbé
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/t130-lindo-terreno-localizado-no-balneario-albatroz-1024587122
+
+- **Chácara / sítio à venda na Rua Manoel Antônio Mateus, São Martinho, Tu**
+  - 💰 R$ 5.500.000 | 📐 60000 m²
+  - 📍 São Martinho — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-tubarao-sao-martinho-60000m2-RS5500000/id-36962141/
+
+- **Chácara / sítio à venda na Área Rural de Tubarão, Tubarão**
+  - 💰 R$ 1.500.000 | 📐 85184 m²
+  - 📍 Área Rural de Tubarão — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-tubarao-area-rural-de-tubarao-85184m2-RS1500000/id-31821290/
+
+- **Chácara / sítio com 3 quartos à venda no São Martinho, Tubarão**
+  - 💰 R$ 5.500.000 | 📐 1200 m²
+  - 📍 São Martinho — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-tubarao-sao-martinho-60000m2-RS5500000/id-24196557/
+
+- **Casa em condomínio fechado com 2 quartos à venda na Avenida Doutor Nil**
+  - 💰 R$ 389.900 | 📐 72 m²
+  - 📍 Vila Esperança — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-2-quartos-com-garagem-sc-tubarao-vila-esperanca-RS389900/id-39063221/
+
+- **Casa com 2 quartos à venda na Rua Maestro João Martins, Humaitá de Cim**
+  - 💰 R$ 350.000 | 📐 69 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-tubarao-humaita-de-cima-RS350000/id-34611194/
+
+- **Casa com 2 quartos à venda na Rua Maria Demétrio De Araújo, São João (**
+  - 💰 R$ 259.000 | 📐 150 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-tubarao-sao-joao-margem-esquerda-218m2-RS259000/id-31485396/
+
+- **Casa Alto Padrão no Residencial Quinta do Lago – Exclusividade e Sofis**
+  - 💰 R$ 3.900.000 | 📐 330 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-tubarao-monte-castelo-RS3900000/id-34156988/
+
+- **Casa alto padrão à venda Condomínio Fechado Quinta do Lago, no bairro **
+  - 💰 R$ 2.500.000 | 📐 223 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-tubarao-monte-castelo-504m2-RS2500000/id-34575490/
+
+- **Casa com 3 quartos à venda no São Martinho, Tubarão**
+  - 💰 R$ 400.000 | 📐 ? m²
+  - 📍 São Martinho — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-tubarao-sao-martinho-RS400000/id-39515462/
+
+- **Casa com 4 quartos à venda no Oficinas, Tubarão**
+  - 💰 R$ 1.498.000 | 📐 300 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-tubarao-oficinas-RS1498000/id-38624491/
+
+- **Villa Lago di Luce – Viver com Vista, Luz e Sofisticação no Quinta do **
+  - 💰 R$ 2.490.000 | 📐 213 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-tubarao-monte-castelo-RS2490000/id-30702587/
+
+- **Casa em condomínio fechado com 3 quartos à venda na Avenida João Manoe**
+  - 💰 R$ 800.000 | 📐 160 m²
+  - 📍 Vila Esperança — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-tubarao-vila-esperanca-160m2-RS800000/id-36793916/
+
+- **Excelente casa em uma localização privilegiada. Local tranquilo e muit**
+  - 💰 R$ 420.000 | 📐 145 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-tubarao-monte-castelo-275m2-RS420000/id-38641034/
+
+- **Ipanema - Casa semimobiliada à venda no Residencial Ipanema**
+  - 💰 R$ 750.000 | 📐 146 m²
+  - 📍 Dehon — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-tubarao-dehon-146m2-RS750000/id-30643915/
+
+- **Casa com 4 quartos à venda no Oficinas, Tubarão**
+  - 💰 R$ 960.000 | 📐 364 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-tubarao-oficinas-594m2-RS960000/id-27328998/
+
+- **Chácara à venda no Bairro Rio Verde com 70 m² de área privativa - 1 va**
+  - 💰 R$ 400.000 | 📐 70 m²
+  - 📍 Rio Verde — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-1-quarto-com-garagem-rs-torres-rio-verde-3950m2-RS400000/id-24004748/
+
+- **Chácara / sítio com 2 quartos à venda na Rua Do Matadouro, São Braz, T**
+  - 💰 R$ 198.000 | 📐 100 m²
+  - 📍 São Braz — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-rs-torres-sao-braz-2394m2-RS198000/id-14196200/
+
+- **Chácara à venda, 1920 m² por R$ 760.000,00 - Campo Bonito - Torres/RS**
+  - 💰 R$ 760.000 | 📐 265 m²
+  - 📍 Campo Bonito — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-rs-torres-campo-bonito-1920m2-RS760000/id-31980244/
+
+- **Chácara / sítio com 3 quartos à venda no Estrela do Mar, Torres**
+  - 💰 R$ 650.000 | 📐 6210 m²
+  - 📍 Estrela do Mar — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-rs-torres-estrela-do-mar-6210m2-RS650000/id-29546515/
+
+- **Chácara à venda no Bairro Campo Bonito com 229 m² de área privativa - **
+  - 💰 R$ 699.997 | 📐 229 m²
+  - 📍 Campo Bonito — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-1-quarto-com-garagem-rs-torres-campo-bonito-1920m2-RS699997/id-39435308/
+
+- **Chácara / sítio com 3 quartos à venda na Rua São João Do Sul, Pirataba**
+  - 💰 R$ 530.000 | 📐 150 m²
+  - 📍 Pirataba — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-rs-torres-pirataba-5500m2-RS530000/id-16948619/
+
+- **Chácara à venda, 1980 m² por R$ 240.000,00 - Campo Bonito - Torres/RS**
+  - 💰 R$ 240.000 | 📐 200 m²
+  - 📍 Campo Bonito — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-5-quartos-rs-torres-campo-bonito-1980m2-RS240000/id-14662926/
+
+- **Chácara / sítio com 3 quartos à venda no Campo Bonito (Distrito), Torr**
+  - 💰 R$ 640.000 | 📐 6000 m²
+  - 📍 Campo Bonito (Distrito) — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-rs-torres-campo-bonito-distrito-6000m2-RS640000/id-36974785/
+
+- **Chácara à venda no Bairro Campo Bonito com 156 m² de área privativa - **
+  - 💰 R$ 449.997 | 📐 156 m²
+  - 📍 Campo Bonito — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-1-quarto-com-garagem-rs-torres-campo-bonito-8730m2-RS449997/id-24326768/
+
+- **Chácara / sítio com 5 quartos à venda na Estrada Do Mar, Faxinal, Torr**
+  - 💰 R$ 700.000 | 📐 229 m²
+  - 📍 Faxinal — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-5-quartos-com-garagem-rs-torres-faxinal-6210m2-RS700000/id-32043028/
+
+- **Chácara à venda no bairro Campo Bonito (Distrito) - Torres/RS**
+  - 💰 R$ 600.000 | 📐 6000 m²
+  - 📍 Campo Bonito (Distrito) — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-rs-torres-campo-bonito-distrito-6000m2-RS600000/id-29546602/
+
+- **Chácara / sítio à venda na Praia Grande, Torres**
+  - 💰 R$ 380.000 | 📐 51000 m²
+  - 📍 Praia Grande — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-rs-torres-praia-grande-51000m2-RS380000/id-36974749/
+
+- **Chácara / sítio com 3 quartos à venda no Campo Bonito (Distrito), Torr**
+  - 💰 R$ 950.000 | 📐 ? m²
+  - 📍 Campo Bonito (Distrito) — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-rs-torres-campo-bonito-distrito--RS950000/id-29546591/
+
+- **Chácara / sítio com 3 quartos à venda no Centenário, Torres**
+  - 💰 R$ 3.750.000 | 📐 41382 m²
+  - 📍 Centenário — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-rs-torres-centenario-41382m2-RS3750000/id-29546506/
+
+- **Chácara / sítio com 3 quartos à venda em Itapeva, Torres**
+  - 💰 R$ 1.270.000 | 📐 7584 m²
+  - 📍 Itapeva — Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-rs-torres-itapeva-7584m2-RS1270000/id-36974746/
+
+- **Chácara / sítio à venda no Estância do Meio, Arroio do Sal**
+  - 💰 R$ 600.000 | 📐 3282 m²
+  - 📍 Estância do Meio — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-rs-arroio-do-sal-estancia-do-meio-3282m2-RS600000/id-35106882/
+
+- **Chácara / sítio à venda na Zona Rural, Arroio do Sal**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍 Zona Rural — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-rs-arroio-do-sal-zona-rural-RS150000/id-31364209/
+
+- **Chácara com 3 dormitórios à venda, 2400 m² por R$ 1.000.000,00 - Arroi**
+  - 💰 R$ 1.000.000 | 📐 100 m²
+  - 📍 Centro — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-rs-arroio-do-sal-centro-2400m2-RS1000000/id-30900578/
+
+- **Chácara / sítio com 1 quarto à venda na Rua Domingos Pedrotti, 458, Qu**
+  - 💰 R$ 250.000 | 📐 1200 m²
+  - 📍 Quatro Lagos — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-1-quarto-rs-arroio-do-sal-quatro-lagos-1200m2-RS250000/id-36630551/
+
+- **Chácara / sítio com 3 quartos à venda na Estrada Do Mar, km 65, Estânc**
+  - 💰 R$ 1.500.000 | 📐 120 m²
+  - 📍 Estância do Meio — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-rs-arroio-do-sal-estancia-do-meio-40000m2-RS1500000/id-30894029/
+
+- **Chácara / sítio à venda no Centro, Arroio do Sal**
+  - 💰 R$ 4.500.000 | 📐 200000 m²
+  - 📍 Centro — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-rs-arroio-do-sal-centro-200000m2-RS4500000/id-26506637/
+
+- **Chácara com 6 dormitórios à venda, 700 m² por R$ 585.000,00 - Estancia**
+  - 💰 R$ 585.000 | 📐 300 m²
+  - 📍 Estância do Meio — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-6-quartos-com-garagem-rs-arroio-do-sal-estancia-do-meio-700m2-RS585000/id-30095389/
+
+- **Chácara / sítio com 7 quartos à venda na Estrada Do Mar - Rs 389 - Km **
+  - 💰 R$ 588.000 | 📐 700 m²
+  - 📍 Estância do Meio — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-7-quartos-com-garagem-rs-arroio-do-sal-estancia-do-meio-700m2-RS588000/id-32598792/
+
+- **Casa com 6 quartos à venda no Centro, Arroio do Sal**
+  - 💰 R$ 640.000 | 📐 178 m²
+  - 📍 Centro — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-6-quartos-com-garagem-rs-arroio-do-sal-centro-670m2-RS640000/id-32018404/
+
+- **Casa com 3 quartos à venda na Rua Jardim Botânico, --, Praia Azul, Arr**
+  - 💰 R$ 195.000 | 📐 40 m²
+  - 📍 Praia Azul — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-rs-arroio-do-sal-praia-azul-300m2-RS195000/id-19830900/
+
+- **Casa com 3 quartos à venda na Avenida Interpraias Norte, 8293, Centro,**
+  - 💰 R$ 514.990 | 📐 250 m²
+  - 📍 Centro — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-rs-arroio-do-sal-centro-600m2-RS514990/id-31802055/
+
+- **Casa com 3 quartos à venda no Centro, Arroio do Sal**
+  - 💰 R$ 450.000 | 📐 112 m²
+  - 📍 Centro — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-rs-arroio-do-sal-centro-112m2-RS450000/id-22176366/
+
+- **Casa com 4 quartos à venda na Bento Manoel Ribeiro, 496, Praia de Ânco**
+  - 💰 R$ 750.000 | 📐 300 m²
+  - 📍 Praia de Âncora — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-rs-arroio-do-sal-praia-de-ancora-300m2-RS750000/id-29580840/
+
+- **Casa no centro de arroio do sal a 350 metros do mar. Oportunidade para**
+  - 💰 R$ 380.000 | 📐 90 m²
+  - 📍 Centro — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-rs-arroio-do-sal-centro-300m2-RS380000/id-34372367/
+
+- **Casa com 2 quartos à venda no Rondinha, Arroio do Sal , 189 m2 por R$ **
+  - 💰 R$ 1.800.000 | 📐 189 m²
+  - 📍 Rondinha — Arroio do Sal
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-rs-arroio-do-sal-rondinha-189m2-RS1800000/id-38969678/
+
+- **Casa em condomínio fechado com 4 quartos à venda na Rua Do Amor Perfei**
+  - 💰 R$ 3.530.000 | 📐 336 m²
+  - 📍 Centro — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-rs-capao-da-canoa-centro-350m2-RS3530000/id-36948323/
+
+- **Casa com 2 quartos à venda na Zona Nova, Capão da Canoa**
+  - 💰 R$ 350.000 | 📐 64 m²
+  - 📍 Zona Nova — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-rs-capao-da-canoa-zona-nova-64m2-RS350000/id-37996320/
+
+- **Casa com 3 quartos à venda na Rua Do Amor Perfeito, 325, Guarani, Capã**
+  - 💰 R$ 779.000 | 📐 99 m²
+  - 📍 Guarani — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-rs-capao-da-canoa-guarani-137m2-RS779000/id-14509685/
+
+- **Casa em condomínio fechado com 3 quartos à venda na Rua Do Amor Perfei**
+  - 💰 R$ 1.425.000 | 📐 190 m²
+  - 📍 Zona Nova — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-rs-capao-da-canoa-zona-nova-328m2-RS1425000/id-31814274/
+
+- **Casa com 3 quartos à venda na Rua Dos Crisântemos, 4096, Posto 6, Capã**
+  - 💰 R$ 408.000 | 📐 81 m²
+  - 📍 Posto 6 — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-rs-capao-da-canoa-posto-6-121m2-RS408000/id-39380666/
+
+- **Casa em Condomínio 4 dormitórios à venda Zona Nova Capão da Canoa/RS**
+  - 💰 R$ 3.050.000 | 📐 214 m²
+  - 📍 Zona Nova — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-rs-capao-da-canoa-zona-nova-300m2-RS3050000/id-39556841/
+
+- **Casa com 03 Suítes à venda por R$ 3.200.000 - Condomínio Velas da Mari**
+  - 💰 R$ 3.315.000 | 📐 227 m²
+  - 📍 Centro — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-rs-capao-da-canoa-centro-300m2-RS3315000/id-16989666/
+
+- **Casa com 4 quartos à venda na Lagomar, Centro, Capão da Canoa**
+  - 💰 R$ 3.900.000 | 📐 390 m²
+  - 📍 Centro — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-rs-capao-da-canoa-centro-700m2-RS3900000/id-36246259/
+
+- **Casa com 2 quartos à venda na Rua do Jasmim, Capão Novo, Capão da Cano**
+  - 💰 R$ 348.900 | 📐 74 m²
+  - 📍 Capão Novo — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-rs-capao-da-canoa-capao-novo-86m2-RS348900/id-38824458/
+
+- **Casa em condomínio fechado à venda na Rua Ubatuba, 2009, Centro, Capão**
+  - 💰 R$ 1.250.000 | 📐 200 m²
+  - 📍 Centro — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-rs-capao-da-canoa-centro-375m2-RS1250000/id-26068463/
+
+- **Casa com 3 quartos à venda na Rua Miranhas, 14, Curumim, Capão da Cano**
+  - 💰 R$ 680.000 | 📐 300 m²
+  - 📍 Curumim — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-rs-capao-da-canoa-curumim-300m2-RS680000/id-35667612/
+
+- **Lindo sobrado finamente mobiliado e decoração em Capão da Canoa**
+  - 💰 R$ 590.000 | 📐 103 m²
+  - 📍 Zona Nova — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-rs-capao-da-canoa-zona-nova-119m2-RS590000/id-39320591/
+
+- **Casa em condomínio fechado com 2 quartos à venda na Rua Do Amor Perfei**
+  - 💰 R$ 486.000 | 📐 125 m²
+  - 📍 Zona Nova — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-2-quartos-rs-capao-da-canoa-zona-nova-80m2-RS486000/id-36911044/
+
+- **Casa Térrea, 03 suítes, lavabo, living integrado, mobília fixa, pátio **
+  - 💰 R$ 1.450.000 | 📐 150 m²
+  - 📍 Zona Nova — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-rs-capao-da-canoa-zona-nova-150m2-RS1450000/id-23459512/
+
+- **Sobrado à venda em Capão da Canoa, Zona Nova - Com Vista para o Mar**
+  - 💰 R$ 1.150.000 | 📐 156 m²
+  - 📍 Zona Nova — Capão da Canoa
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-rs-capao-da-canoa-zona-nova-20m2-RS1150000/id-22633393/
+
+- **Casa em condomínio fechado com 5 quartos à venda na Avenida Jaçanã, 95**
+  - 💰 R$ 5.959.000 | 📐 300 m²
+  - 📍 Villagio Atlântida — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-5-quartos-com-garagem-rs-xangri-la-villagio-atlantida-500m2-RS5959000/id-31730538/
+
+- **Casa com 5 quartos à venda na Rua Tipuana, 804, Atlântida, Xangri-Lá**
+  - 💰 R$ 10.880.000 | 📐 601 m²
+  - 📍 Atlântida — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-rs-xangri-la-atlantida-800m2-RS10880000/id-33945594/
+
+- **Casa em condomínio fechado com 4 quartos à venda no Centro, Xangri-Lá**
+  - 💰 R$ 4.000.000 | 📐 220 m²
+  - 📍 Centro — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-rs-xangri-la-centro-250m2-RS4000000/id-29839634/
+
+- **Casa com 5 quartos à venda na Rua Pedro Hygino Da Silveira, Centro, Xa**
+  - 💰 R$ 5.900.000 | 📐 410 m²
+  - 📍 Centro — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-rs-xangri-la-centro-410m2-RS5900000/id-39704667/
+
+- **Sobrado Novo com 5 quartos em Condomínio Fechado com 207m² privativos**
+  - 💰 R$ 3.200.000 | 📐 207 m²
+  - 📍 Atlântida — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-5-quartos-com-garagem-rs-xangri-la-atlantida-309m2-RS3200000/id-32788324/
+
+- **Casa com 4 quartos à venda na Rua Piragua, --, Atlântida, Xangri-Lá**
+  - 💰 R$ 2.990.000 | 📐 324 m²
+  - 📍 Atlântida — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-rs-xangri-la-atlantida-500m2-RS2990000/id-38373592/
+
+- **Casa em condomínio fechado com 5 quartos à venda na Alameda Malta, 150**
+  - 💰 R$ 5.250.000 | 📐 386 m²
+  - 📍 Centro — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-5-quartos-com-garagem-rs-xangri-la-centro-576m2-RS5250000/id-38554090/
+
+- **Casa em condomínio fechado com 4 quartos à venda na Rua Rio Jacuí, 133**
+  - 💰 R$ 3.990.000 | 📐 327 m²
+  - 📍 Atlântida — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-rs-xangri-la-atlantida-327m2-RS3990000/id-28186254/
+
+- **Casa 3 quartos, 1 suíte, sala de estar com lareira, piscina em terreno**
+  - 💰 R$ 1.200.000 | 📐 139 m²
+  - 📍 Arpoador — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-rs-xangri-la-arpoador-139m2-RS1200000/id-33885212/
+
+- **Casa com 3 quartos à venda na Rua Das Azaléias, 699, Noiva Do Mar, Xan**
+  - 💰 R$ 1.300.000 | 📐 130 m²
+  - 📍 Noiva Do Mar — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-rs-xangri-la-noiva-do-mar-600m2-RS1300000/id-21799920/
+
+- **Casa em condomínio fechado com 4 quartos à venda na Avenida Homero Rib**
+  - 💰 R$ 2.995.000 | 📐 274 m²
+  - 📍 Centro — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-rs-xangri-la-centro-RS2995000/id-36386966/
+
+- **Casa em condomínio fechado com 5 quartos à venda na Pedro Hygino Da Si**
+  - 💰 R$ 5.250.000 | 📐 360 m²
+  - 📍 Centro — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-5-quartos-rs-xangri-la-centro-400m2-RS5250000/id-39742608/
+
+- **Casa com 4 quartos à venda na Rua Rio Jacuí, 1331, Centro, Xangri-Lá**
+  - 💰 R$ 3.990.000 | 📐 327 m²
+  - 📍 Centro — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-rs-xangri-la-centro-327m2-RS3990000/id-34370107/
+
+- **Casa à venda, com 3 quartos/dormitórios, 2 vagas/box, no condomínio Ga**
+  - 💰 R$ 1.434.755 | 📐 105 m²
+  - 📍 Atlântida — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-rs-xangri-la-atlantida-180m2-RS1434755/id-33900384/
+
+- **Casa com 4 quartos à venda na Rs 389, Estrada Do Mar, Km 28, 5992, Nov**
+  - 💰 R$ 1.981.000 | 📐 240 m²
+  - 📍 Nova Xangri-lá — Xangri-Lá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-rs-xangri-la-nova-xangri-la-469m2-RS1981000/id-29825528/
+
+- **Casa com 5 quartos à venda na Rua Rolante, 1676, Centro, Imbé, 105 m2 **
+  - 💰 R$ 650.000 | 📐 105 m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-rs-imbe-centro-350m2-RS650000/id-29740144/
+
+- **Casa em condomínio fechado com 3 quartos à venda na Avenida Paraguaçu,**
+  - 💰 R$ 2.450.000 | 📐 270 m²
+  - 📍 Courhasa — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-rs-imbe-courhasa-270m2-RS2450000/id-29554418/
+
+- **Casa com 2 quartos à venda no Presidente (Distrito), Imbé**
+  - 💰 R$ 319.000 | 📐 70 m²
+  - 📍 Presidente (Distrito) — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-rs-imbe-presidente-distrito-70m2-RS319000/id-19700851/
+
+- **Casa Condominio para Venda 2 dormitórios, 1 vaga - Praia Imbé**
+  - 💰 R$ 360.000 | 📐 72 m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-2-quartos-com-garagem-rs-imbe-centro-98m2-RS360000/id-30276930/
+
+- **Casa em condomínio fechado com 2 quartos à venda no Centro, Imbé**
+  - 💰 R$ 550.000 | 📐 ? m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-2-quartos-com-garagem-rs-imbe-centro-RS550000/id-18610588/
+
+- **Casa com 4 quartos à venda na Júlio De Castilhos, 760, Centro, Imbé, 2**
+  - 💰 R$ 800.000 | 📐 209 m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-rs-imbe-centro-337m2-RS800000/id-35482238/
+
+- **Esta casa charmosa pode ser sua, situada em imbe-rs, condominio fechad**
+  - 💰 R$ 2.438.000 | 📐 380 m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-rs-imbe-centro-RS2438000/id-18340221/
+
+- **Casa a beira mar de Imbe na frente calçadão . Mobiliada , super bem co**
+  - 💰 R$ 795.000 | 📐 139 m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-rs-imbe-centro-195m2-RS795000/id-32558517/
+
+- **Casa em condomínio fechado com 2 quartos à venda na Não Me Toque, 167,**
+  - 💰 R$ 750.000 | 📐 121 m²
+  - 📍 Mariluz (Distrito) — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-2-quartos-com-garagem-rs-imbe-mariluz-distrito-202m2-RS750000/id-32556990/
+
+- **Casa toda reformada, praticamente nova, em ótima localização em MARILU**
+  - 💰 R$ 370.000 | 📐 102 m²
+  - 📍 Mariluz (Distrito) — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-rs-imbe-mariluz-distrito-300m2-RS370000/id-38545556/
+
+- **Casa em condomínio fechado com 4 quartos à venda na Não-Me-Toque, 100,**
+  - 💰 R$ 850.000 | 📐 356 m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-rs-imbe-centro-356m2-RS850000/id-39490518/
+
+- **G1018 - Ótimo geminado localizado em região tranquila no Centro de Imb**
+  - 💰 R$ 378.000 | 📐 92 m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-rs-imbe-centro-195m2-RS378000/id-15614437/
+
+- **Sobrado com 2 dormitórios à venda por R$ 300.000,00 - Centro - Imbé/RS**
+  - 💰 R$ 300.000 | 📐 ? m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-rs-imbe-centro-RS300000/id-20289161/
+
+- **Casa em Condomínio de Luxo com 3 Suítes no Centro de Imbé-RS: 3 Quarto**
+  - 💰 R$ 2.800.000 | 📐 ? m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-rs-imbe-centro-RS2800000/id-24706800/
+
+- **Casa em condomínio fechado com 3 quartos à venda na Avenida Paraguassú**
+  - 💰 R$ 2.890.000 | 📐 384 m²
+  - 📍 Centro — Imbé
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-rs-imbe-centro-640m2-RS2890000/id-35146053/
+
