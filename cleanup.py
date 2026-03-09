@@ -76,3 +76,9 @@ if __name__ == "__main__":
 
     print("\n✅ Limpeza concluída!")
     listar_estados()
+    # Diagnóstico — remover depois
+con = sqlite3.connect("anuncios.db")
+rows = con.execute("SELECT id, cidade, estado, fonte FROM anuncios WHERE cidade IN ('Torres','Capão da Canoa','Arroio do Sal','Xangri-lá','Imbé') LIMIT 20").fetchall()
+for r in rows:
+    print(r)
+con.close()
