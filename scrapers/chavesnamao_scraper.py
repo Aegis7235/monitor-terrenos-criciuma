@@ -30,11 +30,6 @@ _CIDADES = [
     "sc-lauro-muller", "sc-sideropolis", "sc-urussanga",
     "sc-nova-veneza", "sc-cocal-do-sul", "sc-morro-da-fumaca",
     "sc-balneario-rincao", "sc-jaguaruna", "sc-sangao", "sc-maracaja",
-    # Tubarão (estava no OLX mas faltava aqui)
-    "sc-tubarao",
-    # Litoral Norte RS (Estrada do Mar — Torres até Arroio do Sal)
-    "rs-torres", "rs-arroio-do-sal", "rs-capao-da-canoa",
-    "rs-xangri-la", "rs-imbe",
 ]
 
 CNM_URLS = [f"{BASE_CHACARAS}/{c}/" for c in _CIDADES]
