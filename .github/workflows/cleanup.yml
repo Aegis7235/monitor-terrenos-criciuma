@@ -1,0 +1,23 @@
+name: Limpeza do Banco
+
+on:
+  workflow_dispatch:
+
+jobs:
+  cleanup:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+    steps:
+      - uses: actions/checkout@v4
+      - uses: actions/setup-python@v5
+        with:
+          python-version: "3.11"
+      - run: pip install -r requirements.txt
+      - name: Executar limpeza
+        run: python cleanup.py
+      - run: |
+          git config user.email "bot@monitor-terrenos"
+          git config user.name "Monitor Bot"
+          git add -A
+          git diff-index --quiet HEAD || git commit -m "Limpeza do banco" && git push
