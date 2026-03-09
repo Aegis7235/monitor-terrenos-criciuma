@@ -21327,3 +21327,196 @@
   - 📍 Humaitá de Cima — Tubarão
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-vilaggio-das-pedras-humaita-de-cima-tubarao-sc-1480116188
 
+
+## 🆕 38 novos anúncios — 09/03/2026 16:16
+
+- **Sítio com chalé em Três Riachos (Biguaçu)**
+  - 💰 R$ 500.000 | 📐 52000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-chale-em-tres-riachos-biguacu-1484205216
+
+- **Terreno de leilão em Centro / IMARUI / SC | Venda Direta Online**
+  - 💰 R$ 985.154 | 📐 715100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-centro-imarui-sc-venda-direta-online-1484196697
+
+- **Terreno 330m² São João do Rio Vermelho**
+  - 💰 R$ 349.000 | 📐 330 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-330m-sao-joao-do-rio-vermelho-1478365044
+
+- **Terreno à venda em Palhoça/SC**
+  - 💰 R$ 265.000 | 📐 325 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-palhoca-sc-1484191190
+
+- **Terreno à venda em Palhoça/SC**
+  - 💰 R$ 275.000 | 📐 450 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-palhoca-sc-1484190494
+
+- **Sítio à venda em São Bonifácio/SC**
+  - 💰 R$ 450.000 | 📐 1600 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-sao-bonifacio-sc-1484190147
+
+- **Terreno Lote em Aririu, Palhoça/SC**
+  - 💰 R$ 370.000 | 📐 360 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-em-aririu-palhoca-sc-1484189865
+
+- **TERRENOS DE ESQUINA PERTO DA LAGOA E DO MAR**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-de-esquina-perto-da-lagoa-e-do-mar-1484180513
+
+- **Chácara em Santo Amaro imperatriz**
+  - 💰 R$ 3.200.000 | 📐 3200 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-santo-amaro-imperatriz-1340412561
+
+- **Terreno Ribeirão da Ilha**
+  - 💰 R$ 190.000 | 📐 290 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ribeirao-da-ilha-1484164223
+
+- **Terreno no centro de Jaguaruna**
+  - 💰 R$ 170.000 | 📐 376 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-jaguaruna-1325871323
+
+- **Lotes no bairro Encruzo**
+  - 💰 R$ 70.000 | 📐 360 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-no-bairro-encruzo-1143943884
+
+- **Loteamento Porto Seguro**
+  - 💰 R$ 110.000 | 📐 ? m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-porto-seguro-1338023179
+
+- **Sitio com casa e duas cabanas**
+  - 💰 R$ 980.000 | 📐 11000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-e-duas-cabanas-1484163211
+
+- **Lote aterrado próx da praia - 390m2 na Praia do Sol, Laguna - SC**
+  - 💰 R$ 190.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-aterrado-prox-da-praia-390m2-na-praia-do-sol-laguna-sc-1484162186
+
+- **Sitio com escritura publica em Águas Mornas - SC**
+  - 💰 R$ 220.000 | 📐 37000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-publica-em-aguas-mornas-sc-1484160621
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1484158172
+
+- **Sitio no Rio dos Cedros - Águas Mornas - SC**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-no-rio-dos-cedros-aguas-mornas-sc-1484157258
+
+- **Lindo Sitio  proximo de Rancho Queimado em Águas Mornas - SC**
+  - 💰 R$ 1.360.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-proximo-de-rancho-queimado-em-aguas-mornas-sc-1484156270
+
+- **? Terreno exclusivo na Pedra Branca - localização privilegiada**
+  - 💰 R$ 1.050.000 | 📐 600 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-na-pedra-branca-localizacao-privilegiada-1484150198
+
+- **Vendo ou troco terreno em pescaria brava, urbanizadora alínea**
+  - 💰 R$ 35.000 | 📐 200 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-terreno-em-pescaria-brava-urbanizadora-alinea-1484147692
+
+- **Casa de campo em Rancho Queimado**
+  - 💰 R$ 990.000 | 📐 3400 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-campo-em-rancho-queimado-1462027292
+
+- **Terreno , sítio próximo serra do corvo branco**
+  - 💰 R$ 210.000 | 📐 5000 m²
+  - 📍  — Rio Fortuna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sitio-proximo-serra-do-corvo-branco-1484143117
+
+- **Desconto para  financiamento Minha Casa Minha Vida - 7 opções de terre**
+  - 💰 R$ 165.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/desconto-para-financiamento-minha-casa-minha-vida-7-opcoes-de-terrenos-no-green-village-1484143660
+
+- **Terreno a venda no bairro Alto Arroio, Imbituba-SC.**
+  - 💰 R$ 1.376.000 | 📐 1376 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-alto-arroio-imbituba-sc-1415989503
+
+- **Terreno á venda no loteamento Bosque Imbituba -SC**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-bosque-imbituba-sc-955749484
+
+- **Terreno rural**
+  - 💰 R$ 153.000 | 📐 1021 m²
+  - 📍 Vargem Grande — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-1484131156
+
+- **Vendo terreno/esquina/Comercial em Biguaçu no tunel de acesso para Gov**
+  - 💰 R$ 1.100.000 | 📐 744 m²
+  - 📍 Areias de Cima (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-esquina-comercial-em-biguacu-no-tunel-de-acesso-para-governador-c-ramos-sc-1484125891
+
+- **Terreno 300m² - Nova Congonhas - Tubarão/SC**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-nova-congonhas-tubarao-sc-999579325
+
+- **Terreno rural**
+  - 💰 R$ 153.000 | 📐 1021 m²
+  - 📍 Vargem Grande — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-1484125374
+
+- **Terreno Amplo/382,25 m² à Venda - Bairro Monte Castelo - Tubarão/SC**
+  - 💰 R$ 350.000 | 📐 385 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-382-25-m-a-venda-bairro-monte-castelo-tubarao-sc-1414693653
+
+- **Terreno para compra - Humaitá de cima**
+  - 💰 R$ 360.000 | 📐 785 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-compra-humaita-de-cima-1144101016
+
+- **LOTEAMENTO RICARDO BRESSAN - Monte Castelo, Tubarão/SC**
+  - 💰 R$ 125.000 | 📐 252 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-ricardo-bressan-monte-castelo-tubarao-sc-1416999984
+
+- **Sítio à venda com 25.000 m² | Rio do Pouso | Tubarão/SC**
+  - 💰 R$ 350.000 | 📐 25000 m²
+  - 📍 São João (Margem Direita) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-com-25-000-m-rio-do-pouso-tubarao-sc-1467177252
+
+- **Vendo terreno na Vargem grande**
+  - 💰 R$ 200.000 | 📐 162 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-vargem-grande-1484122543
+
+- **Vendo terreno na costeira do pirajubaé**
+  - 💰 R$ 130.000 | 📐 112 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-costeira-do-pirajubae-1484121856
+
+- **Terreno Barreiros rua da faculdade Estácio**
+  - 💰 R$ 480.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-barreiros-rua-da-faculdade-estacio-1484116935
+
+- **Terreno no bairro CAMPO DUNA**
+  - 💰 R$ 420.000 | 📐 380 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-campo-duna-1484207672
+
