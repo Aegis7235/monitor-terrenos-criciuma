@@ -21141,3 +21141,156 @@
   - 📍  — Morro da Fumaça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-terra-nova-1483627099
 
+
+## 🆕 30 novos anúncios — 09/03/2026 06:26
+
+- **Terreno 303,53m² plano Pronto para construir**
+  - 💰 R$ 325.000 | 📐 303 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-303-53m-plano-pronto-para-construir-1484096089
+
+- **Excelente oportunidade centro de Paulo Lopes**
+  - 💰 R$ 300.000 | 📐 450 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-centro-de-paulo-lopes-1484094996
+
+- **Terreno de leilão em SAO DEFENDE / CRICIUMA / SC | Leilão SFI - Edital**
+  - 💰 R$ 193.967 | 📐 361 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-sao-defende-criciuma-sc-leilao-sfi-edital-unico-1484081151
+
+- **Vende Lote - Loteamento Gree Village**
+  - 💰 R$ 179.900 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-lote-loteamento-gree-village-1484078305
+
+- **Vender terreno rápido águas mornas**
+  - 💰 R$ 2.800.000 | 📐 64000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vender-terreno-rapido-aguas-mornas-1484066521
+
+- **Terreno Plano 340 m² | Rua Sem Saída | Área Verde Lateral e Fundos | V**
+  - 💰 R$ 399.000 | 📐 340 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-340-m-rua-sem-saida-area-verde-lateral-e-fundos-vivenda-dos-acores-1484062447
+
+- **Terreno de 5 hectares em Gravatal, preço especial**
+  - 💰 R$ 250.000 | 📐 50000 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-5-hectares-em-gravatal-preco-especial-1484060427
+
+- **Terreno à venda, 540 m² por R$ 295.000 - Santo Antônio de Pádua - Tuba**
+  - 💰 R$ 295.000 | 📐 540 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-540-m-por-r-295-000-santo-antonio-de-padua-tubarao-sc-1484060433
+
+- **Terreno 450m² no condomínio mais exclusivo de Tubarão**
+  - 💰 R$ 950.000 | 📐 450 m²
+  - 📍 Recife — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450m-no-condominio-mais-exclusivo-de-tubarao-1484060435
+
+- **Terreno 406m² no Loteamento Arino Bressan II**
+  - 💰 R$ 195.000 | 📐 406 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-406m-no-loteamento-arino-bressan-ii-1484060414
+
+- **Terreno amplo e com localização privilegiada para o seu projeto em Tub**
+  - 💰 R$ 1.600.000 | 📐 800 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-e-com-localizacao-privilegiada-para-o-seu-projeto-em-tubarao-1484060415
+
+- **Oportunidade: lote 367m² em região de alto crescimento**
+  - 💰 R$ 370.000 | 📐 367 m²
+  - 📍 Recife — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-lote-367m-em-regiao-de-alto-crescimento-1484060344
+
+- **Terreno na praia**
+  - 💰 R$ 75.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-1484058368
+
+- **Terreno no bela vista**
+  - 💰 R$ 160.000 | 📐 200 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bela-vista-1484057157
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 881.720 | 📐 375 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1484047272
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 1.500.000 | 📐 682 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1484047269
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 883.083 | 📐 375 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1484047211
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 882.801 | 📐 375 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1484047212
+
+- **Terreno para Venda em Florianópolis, Coloninha**
+  - 💰 R$ 600.000 | 📐 240 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-coloninha-1484046914
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 881.720 | 📐 375 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1484046913
+
+- **Terreno em são Mateus**
+  - 💰 R$ 95.000 | 📐 780 m²
+  - 📍 Encruzilhada — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sao-mateus-1484041797
+
+- **Terreno Mirante das Baias**
+  - 💰 R$ 1.300.000 | 📐 486 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-mirante-das-baias-1483653320
+
+- **Oportunidade! Terreno de 549m² na Av. Centenário**
+  - 💰 R$ 2.610.000 | 📐 550 m²
+  - 📍 Próspera — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-de-549m-na-av-centenario-1483653076
+
+- **Terreno / Lote / Condomínio à venda, 40018m²**
+  - 💰 R$ 298.000 | 📐 40000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-condominio-a-venda-40018m-1483653067
+
+- **Terreno em Condominio Fechado 794m²Corrego Grande**
+  - 💰 R$ 1.150.000 | 📐 794 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-794m-corrego-grande-1483652884
+
+- **TERRENO 650M² TRINDADE**
+  - 💰 R$ 650.000 | 📐 650 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-650m-trindade-1483652736
+
+- **TERRENO COM VIABILIDADE NA TRINDADE**
+  - 💰 R$ 12.000.000 | 📐 835 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-na-trindade-1483652305
+
+- **Terreno com viabilidade comercial 1.121,85M²**
+  - 💰 R$ 7.840.000 | 📐 400 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-comercial-1-121-85m-1483650988
+
+- **Terreno no Costão Golf - Ingleses, Florianópolis/S**
+  - 💰 R$ 850.000 | 📐 905 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-costao-golf-ingleses-florianopolis-s-1483650893
+
+- **terreno urbano**
+  - 💰 R$ 850.000 | 📐 6670 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-1483650450
+
