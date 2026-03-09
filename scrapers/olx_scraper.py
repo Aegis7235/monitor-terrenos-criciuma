@@ -55,6 +55,13 @@ OLX_URLS = [
     f"{BASE}/outras-cidades/jaguaruna",
     f"{BASE}/outras-cidades/sangao",
     f"{BASE}/outras-cidades/maracaja",
+
+    # ── Litoral Norte RS (Estrada do Mar — Torres até Arroio do Sal) ──────────
+    "https://www.olx.com.br/imoveis/terrenos/estado-rs/torres",
+    "https://www.olx.com.br/imoveis/terrenos/estado-rs/outras-cidades/arroio-do-sal",
+    "https://www.olx.com.br/imoveis/terrenos/estado-rs/capao-da-canoa",
+    "https://www.olx.com.br/imoveis/terrenos/estado-rs/outras-cidades/xangri-la",
+    "https://www.olx.com.br/imoveis/terrenos/estado-rs/outras-cidades/imbe",
 ]
 
 HEADERS = {
