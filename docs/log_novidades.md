@@ -38844,3 +38844,21 @@
   - 📍 Centro — Antônio Carlos
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-com-565-75m-em-antonio-carlos-com-escritura-1484638549
 
+
+## 🆕 3 novos anúncios — 10/03/2026 23:43
+
+- **Terreno no Condomínio Internacional de Garopaba / SC**
+  - 💰 R$ 640.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-internacional-de-garopaba-sc-1484669593
+
+- **Oportunidade Única em URUSSANGA - SC | Tipo: Terreno | Negociação: Lei**
+  - 💰 R$ 210.414 | 📐 507 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-urussanga-sc-tipo-terreno-negociacao-leilao-situacao-imov-1484665686
+
+- **Aluguel chalé no sítio final de semana**
+  - 💰 R$ 450 | 📐 30000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aluguel-chale-no-sitio-final-de-semana-1064064852
+
