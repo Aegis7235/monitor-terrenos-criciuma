@@ -49,15 +49,17 @@ def escrever_log(novos):
 def notificar_telegram(novos, area_minima_m2=5000):
     """Envia para o Telegram apenas anúncios com área >= area_minima_m2."""
     if not novos:
+        print("\n▶ Telegram: nenhum anúncio novo para enviar.")
         return
 
     filtrados = [a for a in novos if (a.get("area_m2") or 0) >= area_minima_m2]
     ignorados = len(novos) - len(filtrados)
 
     print(f"\n▶ Telegram: {len(filtrados)} anúncio(s) acima de {area_minima_m2} m² "
-          f"({ignorados} ignorados por área insuficiente ou não informada)")
+          f"| {ignorados} ignorados (área < {area_minima_m2} m² ou não informada)")
 
     if not filtrados:
+        print("  Nenhum anúncio passou pelo filtro de área — nada será enviado.")
         return
 
     enviados = 0
@@ -66,10 +68,10 @@ def notificar_telegram(novos, area_minima_m2=5000):
         if ok:
             enviados += 1
 
-    if enviados > 0:
-        enviar_resumo(enviados)
+    enviar_resumo(enviados=enviados, filtrados=len(filtrados), ignorados=ignorados)
 
-    print(f"  Telegram: {enviados}/{len(novos)} enviados")
+    print(f"  Telegram: {enviados}/{len(filtrados)} enviados com sucesso "
+          f"| {len(filtrados) - enviados} falhas")
 
 
 def main():
