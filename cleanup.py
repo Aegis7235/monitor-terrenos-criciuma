@@ -75,7 +75,9 @@ def diagnostico():
     print("=" * 60)
 
     total = con.execute("SELECT COUNT(*) FROM anuncios").fetchone()[0]
-    print(f"\n📦 Total de anúncios: {total}")
+    ativos = con.execute("SELECT COUNT(*) FROM anuncios WHERE ativo = 1").fetchone()[0]
+    inativos = con.execute("SELECT COUNT(*) FROM anuncios WHERE ativo = 0").fetchone()[0]
+    print(f"\n📦 Total: {total} | ✅ Ativos: {ativos} | ❌ Inativos: {inativos}")
 
     print("\n📊 Por estado:")
     for row in con.execute("SELECT estado, COUNT(*) FROM anuncios GROUP BY estado ORDER BY COUNT(*) DESC"):
@@ -85,22 +87,14 @@ def diagnostico():
     for row in con.execute("SELECT fonte, COUNT(*) FROM anuncios GROUP BY fonte ORDER BY COUNT(*) DESC"):
         print(f"   '{row[0] or ''}': {row[1]}")
 
-    print("\n📊 Por estado+fonte:")
-    for row in con.execute("SELECT estado, fonte, COUNT(*) FROM anuncios GROUP BY estado, fonte ORDER BY estado, fonte"):
-        print(f"   estado='{row[0] or ''}' fonte='{row[1] or ''}': {row[2]}")
-
-    print("\n🔍 Busca por cidades do RS:")
-    for cidade in ["Torres", "Capão da Canoa", "Arroio do Sal", "Xangri", "Imbé"]:
-        rows = con.execute(
-            "SELECT id, cidade, estado, fonte FROM anuncios WHERE cidade LIKE ?",
-            (f"%{cidade}%",)
-        ).fetchall()
-        if rows:
-            print(f"   '{cidade}': {len(rows)} anúncios")
-            for r in rows[:3]:
-                print(f"      id={r[0]} cidade='{r[1]}' estado='{r[2]}' fonte='{r[3]}'")
-        else:
-            print(f"   '{cidade}': nenhum")
+    print("\n📊 Todas as cidades (ordem por quantidade):")
+    for row in con.execute("""
+        SELECT cidade, estado, fonte, COUNT(*) as total
+        FROM anuncios
+        GROUP BY cidade, estado, fonte
+        ORDER BY total DESC
+    """):
+        print(f"   {row[0] or '(vazio)'} ({row[1] or '?'}) [{row[2]}]: {row[3]}")
 
     print("\n" + "=" * 60)
     con.close()
@@ -111,17 +105,13 @@ if __name__ == "__main__":
 
     # ── Edite abaixo conforme necessário ──────────────────────────────────────
 
-    deletar_por_cidade_like("Torres")
-    deletar_por_cidade_like("Capão da Canoa")
-    deletar_por_cidade_like("Arroio do Sal")
-    deletar_por_cidade_like("Xangri")
-    deletar_por_cidade_like("Imbé")
+    diagnostico()
 
     # deletar_por_estado("RS")
+    # deletar_por_cidade("Torres")
+    # deletar_por_cidade_like("Torres")
     # deletar_por_fonte("OLX")
-    # diagnostico()
 
     # ─────────────────────────────────────────────────────────────────────────
 
-    print("\n✅ Limpeza concluída!")
-    listar_estados()
+    print("\n✅ Concluído!")
