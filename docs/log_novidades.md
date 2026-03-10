@@ -38738,3 +38738,66 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-1452509357
 
+
+## 🆕 12 novos anúncios — 10/03/2026 21:26
+
+- **Terreno à venda no Jardim Anchieta, 492,10m² em área nobre do Bairro**
+  - 💰 R$ 1.100.000 | 📐 492 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-jardim-anchieta-492-10m-em-area-nobre-do-bairro-1484626746
+
+- **Terreno 7mt x 11mt**
+  - 💰 R$ 200.000 | 📐 11 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-7mt-x-11mt-1484625300
+
+- **Chácara completa em Águas Mornas - SC**
+  - 💰 R$ 500.000 | 📐 880 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-completa-em-aguas-mornas-sc-1484611046
+
+- **Oportunidade em Laguna - Terreno 15x15 com Escritura**
+  - 💰 R$ 55.000 | 📐 225 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-laguna-terreno-15x15-com-escritura-1484608019
+
+- **Terreno de 360 m² à venda em Biguaçu**
+  - 💰 R$ 247.377 | 📐 360 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360-m-a-venda-em-biguacu-1484603206
+
+- **Excelente terreno em São Jõao Batista, bairro Timbezinho, a 2,5km do c**
+  - 💰 R$ 100.000 | 📐 244 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-em-sao-joao-batista-bairro-timbezinho-a-2-5km-do-centro-1484602980
+
+- **Belíssimo sítio em Anitápolis**
+  - 💰 R$ 180.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belissimo-sitio-em-anitapolis-1484571797
+
+- **Linda chácara pronta para morar em Rancho Queimado - SC**
+  - 💰 R$ 750.000 | 📐 200 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-chacara-pronta-para-morar-em-rancho-queimado-sc-1484596549
+
+- **Imóvel para venda com 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1484595726
+
+- **Chácara à venda no Bairro Rosa do Mar com 2354 m² de área privativa**
+  - 💰 R$ 160.000 | 📐 2354 m²
+  - 📍 Balneário Rosa do Mar — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-1-quarto-sc-passo-de-torres-balneario-rosa-do-mar-2354m2-RS160000/id-40255416/
+
+- **Apartamento para Venda em Siderópolis, Centro, 3 dormitórios, 1 suíte,**
+  - 💰 R$ 648.000 | 📐 91 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-3-quartos-com-garagem-sc-sideropolis-centro-103m2-RS648000/id-40309219/
+
+- **Terreno à venda no Caravaggio, Nova Veneza**
+  - 💰 R$ 165.000 | 📐 450 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-450m2-RS165000/id-40309170/
+
