@@ -38137,3 +38137,71 @@
   - 📍 Camacho — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-camacho-156m2-RS140000/id-39434703/
 
+
+## 🆕 13 novos anúncios — 10/03/2026 17:41
+
+- **Linda casa no Condominio Golden Village - Pronta para Morar e recém co**
+  - 💰 R$ 2.400.000 | 📐 244 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-criciuma-primeira-linha-588m2-RS2400000/id-35996557/
+
+- **Casa com 3 quartos à venda na Ana Maria, Criciúma**
+  - 💰 R$ 389.000 | 📐 191 m²
+  - 📍 Ana Maria — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-criciuma-ana-maria-191m2-RS389000/id-39434904/
+
+- **Casa para Venda em Siderópolis, Vila São Jorge, 2 dormitórios, 1 banhe**
+  - 💰 R$ 340.000 | 📐 60 m²
+  - 📍 Vila São Jorge — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sideropolis-vila-sao-jorge-RS340000/id-40308760/
+
+- **Casa com 3 quartos à venda no Centro, Siderópolis**
+  - 💰 R$ 600.000 | 📐 139 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sideropolis-centro-139m2-RS600000/id-40308741/
+
+- **Casa para Venda em Urussanga, Figueira, 3 dormitórios, 1 banheiro, 1 v**
+  - 💰 R$ 650.000 | 📐 255 m²
+  - 📍 Figueira — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-urussanga-figueira-255m2-RS650000/id-40308797/
+
+- **Terreno à venda no De Villa, Urussanga**
+  - 💰 R$ 120.000 | 📐 450 m²
+  - 📍 De Villa — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-urussanga-de-villa-450m2-RS120000/id-40309056/
+
+- **Casa para Venda em Nova Veneza, Caravaggio, 3 dormitórios, 2 suítes, 3**
+  - 💰 R$ 2.600.000 | 📐 304 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-nova-veneza-caravaggio-1215m2-RS2600000/id-40308987/
+
+- **Casa para Venda em Nova Veneza, Caravaggio, 3 dormitórios, 2 suítes, 4**
+  - 💰 R$ 1.500.000 | 📐 189 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-nova-veneza-caravaggio-374m2-RS1500000/id-40309152/
+
+- **Casa para Venda em Nova Veneza, Caravaggio, 3 dormitórios, 1 suíte, 2 **
+  - 💰 R$ 1.490.000 | 📐 213 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-nova-veneza-caravaggio-750m2-RS1490000/id-40308986/
+
+- **Terreno para Venda em Nova Veneza, Nossa Senhora de Caravaggio**
+  - 💰 R$ 149.047 | 📐 363 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-363m2-RS149047/id-40308828/
+
+- **Casa em condomínio fechado com 3 quartos à venda na Lagoa Dos Esteves,**
+  - 💰 R$ 1.400.000 | 📐 205 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-205m2-RS1400000/id-40081034/
+
+- **Casa para Venda em Balneário Rincão, Zona Sul, 4 dormitórios, 4 suítes**
+  - 💰 R$ 2.800.000 | 📐 294 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-balneario-rincao-zona-sul-294m2-RS2800000/id-33296396/
+
+- **Casa com 4 quartos à venda na Rua Caxias Do Sul, 100, Balneário Esplan**
+  - 💰 R$ 870.000 | 📐 200 m²
+  - 📍 Balneário Esplanada — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-jaguaruna-balneario-esplanada-600m2-RS870000/id-34193093/
+
