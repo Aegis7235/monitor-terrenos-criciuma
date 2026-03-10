@@ -17,6 +17,8 @@ jobs:
       - name: Executar monitor
         env:
           SCRAPERAPI_KEY: ${{ secrets.SCRAPERAPI_KEY }}
+          TELEGRAM_BOT_TOKEN: ${{ secrets.TELEGRAM_BOT_TOKEN }}
+          TELEGRAM_CHAT_ID: ${{ secrets.TELEGRAM_CHAT_ID }}
         run: python main.py
       - run: |
           git config user.email "bot@monitor-terrenos"
