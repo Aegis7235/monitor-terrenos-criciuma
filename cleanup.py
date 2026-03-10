@@ -115,6 +115,8 @@ CIDADES_RS = [
     "Passo do Sobrado", "Paverama", "Presidente Lucena", "Putinga", "Rio Pardo",
     "Riozinho", "Roca Sales", "Santa Clara do Sul", "São Sebastião do Caí",
     "Sinimbu", "Tapes", "Taquari", "Venâncio Aires", "Vera Cruz",
+    # Esquecidas
+    "Santa Maria do Herval", "Morro Reuter", "Terra de Areia",
 ]
 
 
