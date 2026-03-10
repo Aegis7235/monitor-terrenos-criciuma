@@ -38801,3 +38801,46 @@
   - 📍 Caravaggio — Nova Veneza
   - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-450m2-RS165000/id-40309170/
 
+
+## 🆕 8 novos anúncios — 10/03/2026 22:05
+
+- **Lote Garopaba Internacional**
+  - 💰 R$ 752.500 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-garopaba-internacional-1484646860
+
+- **Lote Garopaba Internacional**
+  - 💰 R$ 667.900 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-garopaba-internacional-1484645934
+
+- **Terreno duplo no cemitério Jardim da paz**
+  - 💰 R$ 6.500 | 📐 ? m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-duplo-no-cemiterio-jardim-da-paz-1484639948
+
+- **Oportunidade Única em URUSSANGA - SC | Tipo: Terreno | Negociação: Lei**
+  - 💰 R$ 210.414 | 📐 507 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-urussanga-sc-tipo-terreno-negociacao-leilao-situacao-imov-1484640626
+
+- **Oportunidade Única em CRICIUMA - SC | Tipo: Terreno | Negociação: Leil**
+  - 💰 R$ 176.102 | 📐 360 m²
+  - 📍 Vila Floresta II — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-criciuma-sc-tipo-terreno-negociacao-leilao-situacao-imove-1484640551
+
+- **Oportunidade Única em LAURO MULLER - SC | Tipo: Terreno | Negociação: **
+  - 💰 R$ 179.018 | 📐 595 m²
+  - 📍  — Lauro Müller
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-lauro-muller-sc-tipo-terreno-negociacao-leilao-situacao-i-1484639870
+
+- **Terreno com vista panorâmica**
+  - 💰 R$ 300.000 | 📐 370 m²
+  - 📍 São Miguel (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-panoramica-1484639206
+
+- **Lotes Com 565,75m² em Antônio Carlos, COM ESCRITURA.**
+  - 💰 R$ 210.000 | 📐 565 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-com-565-75m-em-antonio-carlos-com-escritura-1484638549
+
