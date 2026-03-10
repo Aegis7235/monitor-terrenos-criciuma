@@ -100,13 +100,45 @@ def diagnostico():
     con.close()
 
 
+CIDADES_RS = [
+    # Vale do Paranhana / Encosta da Serra / Litoral Norte / Vale do Rio Pardo
+    "Maquiné", "Osório", "Santa Cruz do Sul", "São José do Hortêncio", "Três Coroas",
+    # Litoral / Planície Costeira
+    "Balneário Pinhal", "Caraá", "Cidreira", "Curumim", "Mampituba",
+    "Morrinhos do Sul", "Mostardas", "Palmares do Sul", "Sentinela do Sul",
+    "Tavares", "Tramandaí", "Três Forquilhas",
+    # Interior
+    "Arvorezinha", "Barão", "Barra do Ribeiro", "Bom Princípio", "Bom Retiro do Sul",
+    "Brochier", "Cachoeira do Sul", "Camaquã", "Colinas", "Dom Feliciano",
+    "Encruzilhada do Sul", "Estrela", "Feliz", "General Câmara", "Harmonia",
+    "Igrejinha", "Lajeado", "Linha Nova", "Mariana Pimentel", "Marques de Souza",
+    "Passo do Sobrado", "Paverama", "Presidente Lucena", "Putinga", "Rio Pardo",
+    "Riozinho", "Roca Sales", "Santa Clara do Sul", "São Sebastião do Caí",
+    "Sinimbu", "Tapes", "Taquari", "Venâncio Aires", "Vera Cruz",
+]
+
+
+def deletar_cidades_rs():
+    con = sqlite3.connect(DB)
+    total = 0
+    for cidade in CIDADES_RS:
+        cur = con.execute("DELETE FROM anuncios WHERE cidade = ?", (cidade,))
+        if cur.rowcount > 0:
+            print(f"🗑️  {cidade}: {cur.rowcount} removidos")
+            total += cur.rowcount
+    con.commit()
+    con.close()
+    print(f"\n✅ Total removido: {total} anúncios do RS")
+
+
 if __name__ == "__main__":
     print("=== Cleanup — Monitor de Terrenos ===\n")
 
     # ── Edite abaixo conforme necessário ──────────────────────────────────────
 
-    diagnostico()
+    deletar_cidades_rs()
 
+    # diagnostico()
     # deletar_por_estado("RS")
     # deletar_por_cidade("Torres")
     # deletar_por_cidade_like("Torres")
@@ -115,3 +147,4 @@ if __name__ == "__main__":
     # ─────────────────────────────────────────────────────────────────────────
 
     print("\n✅ Concluído!")
+    listar_estados()
