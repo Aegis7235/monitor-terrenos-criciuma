@@ -38928,3 +38928,11 @@
 
 ## ✅ Sem novidades — 11/03/2026 06:08
 
+
+## 🆕 1 novos anúncios — 11/03/2026 11:13
+
+- **Oportunidade Única em MORRO DA FUMACA - SC | Tipo: Terreno | Negociaçã**
+  - 💰 R$ 187.000 | 📐 390 m²
+  - 📍 Maccari — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-morro-da-fumaca-maccari-50m2-RS187000/id-40325543/
+
