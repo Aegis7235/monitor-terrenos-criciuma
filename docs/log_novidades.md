@@ -39562,3 +39562,191 @@
   - 📍  — Balneário Arroio do Silva
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-1484817904
 
+
+## 🆕 37 novos anúncios — 11/03/2026 22:12
+
+- **SÍTIO GUARDA DO CUBATÃO**
+  - 💰 R$ 740.000 | 📐 2700 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-guarda-do-cubatao-1484919538
+
+- **Chácara / Ribeirão da Ilha / 3179m² / em Florianópolis**
+  - 💰 R$ 2.650.000 | 📐 3179 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-ribeirao-da-ilha-3179m-em-florianopolis-1480376626
+
+- **Terreno Praia do Rosa com escritura**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-do-rosa-com-escritura-1484967607
+
+- **Sítio equipado com 10.000 m² para venda em Imaruí - SC**
+  - 💰 R$ 700.000 | 📐 150 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-equipado-com-10-000-m-para-venda-em-imarui-sc-1484967256
+
+- **Sítio / Chácara para Venda em Paulo Lopes, Morro do Freitas**
+  - 💰 R$ 599.900 | 📐 10000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-chacara-para-venda-em-paulo-lopes-morro-do-freitas-1465443899
+
+- **Chácara à venda, Centro - Águas Mornas/SC**
+  - 💰 R$ 230.000 | 📐 30000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-centro-aguas-mornas-sc-1411395697
+
+- **Vendo chalé charmoso**
+  - 💰 R$ 250.000 | 📐 ? m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-chale-charmoso-1467897651
+
+- **Terreno em ponta das canas**
+  - 💰 R$ 420.000 | 📐 189 m²
+  - 📍 Ponta das Canas — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ponta-das-canas-1484941167
+
+- **Loteamento na Praia do Sol - Escriturado, Completo  e com Estação de T**
+  - 💰 R$ 130.000 | 📐 360 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-na-praia-do-sol-escriturado-completo-e-com-estacao-de-tratamento-1421881241
+
+- **Lindo terreno Antônio Carlos**
+  - 💰 R$ 130.000 | 📐 500 m²
+  - 📍 Bela Vista — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-antonio-carlos-1484939025
+
+- **Sítio à venda no bairro SANTA FILOMENA - São Pedro de Alcântara/SC**
+  - 💰 R$ 2.500.000 | 📐 102650 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-santa-filomena-sao-pedro-de-alcantara-sc-1316578820
+
+- **Terreno Comercial em Tijucas, Loteamento Costa Esmeralda, Esquina com **
+  - 💰 R$ 650.000 | 📐 594 m²
+  - 📍 Santa Luzia — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-tijucas-loteamento-costa-esmeralda-esquina-com-594m2-1484937870
+
+- **Sítio à venda em Santo Amaro da Imperatriz/SC**
+  - 💰 R$ 700.000 | 📐 190 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-santo-amaro-da-imperatriz-sc-1481465014
+
+- **Terreno Palhoça Esquina Geral Parque bela vista 1 km da br 101**
+  - 💰 R$ 350.000 | 📐 295 m²
+  - 📍 Madri — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-palhoca-esquina-geral-parque-bela-vista-1-km-da-br-101-1401596136
+
+- **Sitio com Cachoeira no quintal**
+  - 💰 R$ 1.600.000 | 📐 61000 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-cachoeira-no-quintal-1478754446
+
+- **Chácara à Venda em Águas Mornas - Santa Catarina**
+  - 💰 R$ 394.000 | 📐 1500 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-em-aguas-mornas-santa-catarina-1433394177
+
+- **Belíssimo Terreno em Sambaqui 364m²**
+  - 💰 R$ 650.000 | 📐 364 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belissimo-terreno-em-sambaqui-364m-1484918703
+
+- **Condomínio Residencial Santa Barbara - Antônio Carlos**
+  - 💰 R$ 165.000 | 📐 694 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-residencial-santa-barbara-antonio-carlos-1167969470
+
+- **EXCELENTE TERRENO GAROPABA SC**
+  - 💰 R$ 450.000 | 📐 368 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-garopaba-sc-1484917053
+
+- **Vendo terreno em Ratones**
+  - 💰 R$ 290.000 | 📐 360 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-ratones-1484915896
+
+- **Chácara Pagará Grande**
+  - 💰 R$ 530.000 | 📐 4000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-pagara-grande-1484912991
+
+- **Terreno em condomínio fechado, na Praia dos Ingleses.**
+  - 💰 R$ 658.000 | 📐 508 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-na-praia-dos-ingleses-1484904455
+
+- **Terreno a venda, 200m², Loteamento Parque Residencial Bela Vista, Bela**
+  - 💰 R$ 257.900 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-200m-loteamento-parque-residencial-bela-vista-bela-vista-palhoca-s-1484890977
+
+- **Terreno areias paulo lopes**
+  - 💰 R$ 280.000 | 📐 624 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-paulo-lopes-1484863748
+
+- **Vende-se**
+  - 💰 R$ 850.000 | 📐 300 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-1484860963
+
+- **Terreno em São José-SC, no bairro Ipiranga**
+  - 💰 R$ 140.000 | 📐 100 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sao-jose-sc-no-bairro-ipiranga-1484856729
+
+- **Terreno a venda no sertão do campo ( palhoça)**
+  - 💰 R$ 125.000 | 📐 280 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-sertao-do-campo-palhoca-1484812716
+
+- **Terreno a venda no Pinheirinho!**
+  - 💰 R$ 670.000 | 📐 4586 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-pinheirinho-1482795597
+
+- **Terreno á venda com 300m² no bairro Jardim Ultramar em Balneário Gaivo**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-jardim-ultramar-em-balneario-gaivota-sc-1484980151
+
+- **Terreno a Venda no Condomínio Rosa Internacional**
+  - 💰 R$ 670.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-rosa-internacional-1484977618
+
+- **Lote escriturado com 305 m² no Bairro Coloninha em Araranguá**
+  - 💰 R$ 85.000 | 📐 305 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-escriturado-com-305-m-no-bairro-coloninha-em-ararangua-1484974267
+
+- **Terreno para Venda em Balneário Gaivota, Lagoinha**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-lagoinha-1484954586
+
+- **Terreno ( Em loteamento) à Venda, 144m² - Bairro São Defende em Criciú**
+  - 💰 R$ 36.341 | 📐 144 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-144m-bairro-sao-defende-em-criciuma-1484915246
+
+- **TERRENO NO LOTEAMENTO JARDIM FLÓRIDA**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-florida-1467994367
+
+- **TERRENO À VENDA**
+  - 💰 R$ 130.000 | 📐 452 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-1423609734
+
+- **Sitio a menos de 1 km do Supermercado!**
+  - 💰 R$ 1.500.000 | 📐 110 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-menos-de-1-km-do-supermercado-1423409905
+
+- **Oportunidade Única em URUSSANGA - SC | Tipo: Terreno | Negociação: Lei**
+  - 💰 R$ 210.414 | 📐 507 m²
+  - 📍 De Villa — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-urussanga-de-villa-50m2-RS210414/id-40361168/
+
