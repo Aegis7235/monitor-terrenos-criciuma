@@ -39529,3 +39529,36 @@
   - 📍 Centro — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-jaguaruna-centro-6m2-RS400000/id-39397475/
 
+
+## 🆕 6 novos anúncios — 11/03/2026 17:46
+
+- **TERRRENO EM GAROPABA - BAIRRO LIMPA - AGUA, ILUMINAÇÃO, ASFALTO, ENERG**
+  - 💰 R$ 240.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrreno-em-garopaba-bairro-limpa-agua-iluminacao-asfalto-energia-ligada-1407791642
+
+- **Sítio para turismo e moradia em Alfredo Wagner**
+  - 💰 R$ 600.000 | 📐 50000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-turismo-e-moradia-em-alfredo-wagner-1484863743
+
+- **? INVESTIMENTO ESTRATÉGICO COM RETORNO EXCEPCIONAL EM ALFREDO WAGNER! **
+  - 💰 R$ 900.000 | 📐 98000000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/investimento-estrategico-com-retorno-excepcional-em-alfredo-wagner-1484863029
+
+- **Oportunidade Única em Alfredo Wagner/SC: Natureza, Localização e Poten**
+  - 💰 R$ 2.200.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-alfredo-wagner-sc-natureza-localizacao-e-potencial-de-lucro-1484832394
+
+- **Sitio na montanha em Alfredo Wagner**
+  - 💰 R$ 350.000 | 📐 30000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-na-montanha-em-alfredo-wagner-1484827213
+
+- **Terreno escriturado**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-1484817904
+
