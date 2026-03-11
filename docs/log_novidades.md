@@ -38862,3 +38862,66 @@
   - 📍  — Nova Trento
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aluguel-chale-no-sitio-final-de-semana-1064064852
 
+
+## 🆕 12 novos anúncios — 11/03/2026 01:11
+
+- **Terreno 49.500 m2 Tijucas sc, frente para Sc 410 e fundo Extrema rio T**
+  - 💰 R$ 20.000.000 | 📐 49500 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-49-500-m2-tijucas-sc-frente-para-sc-410-e-fundo-extrema-rio-tijucas-1484689995
+
+- **Imóvel para venda com 131 metros quadrados com 1 quarto em Forquilhas **
+  - 💰 R$ 285.000 | 📐 131 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-131-metros-quadrados-com-1-quarto-em-forquilhas-sao-jose-sc-1484690760
+
+- **OPORTUNIDADE TERRENO REAL PARK NORTE DA ILHA codigo: 286426**
+  - 💰 R$ 620.000 | 📐 526 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-real-park-norte-da-ilha-codigo-286426-1484682788
+
+- **Lindo Sítio em 3 Riachos - Biguaçu. A poucos minutos do centro de Bigu**
+  - 💰 R$ 325.000 | 📐 20000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-em-3-riachos-biguacu-a-poucos-minutos-do-centro-de-biguacu-e-com-facil-aces-1484682548
+
+- **Venda**
+  - 💰 R$ 120.000 | 📐 250 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-1484679070
+
+- **Sítio/ cabanha/ haras em rancho queimado**
+  - 💰 R$ 1.600.000 | 📐 330000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-cabanha-haras-em-rancho-queimado-1462318606
+
+- **Terreno a venda em Forquilhas, São José**
+  - 💰 R$ 240.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-forquilhas-sao-jose-1484670555
+
+- **Lote / Terreno em Jardim Atlântico - Florianópolis**
+  - 💰 R$ 450.000 | 📐 325 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-jardim-atlantico-florianopolis-1484658094
+
+- **Terreno Campeche Viabilidade**
+  - 💰 R$ 3.200.000 | 📐 960 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-viabilidade-1484656265
+
+- **Terreno em condomínio Golf Club Santa Rita Residencial Rancho Queimado**
+  - 💰 R$ 300.000 | 📐 1301 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-golf-club-santa-rita-residencial-rancho-queimado-1484656151
+
+- **Lote à venda na Ecovilla Santa Rosa de Lima - Vista incrível!**
+  - 💰 R$ 99.600 | 📐 ? m²
+  - 📍  — Santa Rosa de Lima
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-na-ecovilla-santa-rosa-de-lima-vista-incrivel-1415375143
+
+- **Casa com 4 quartos à venda em Santa Cruz, Forquilhinha**
+  - 💰 R$ 325.000 | 📐 318 m²
+  - 📍 Santa Cruz — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-sc-forquilhinha-santa-cruz-RS325000/id-40320111/
+
