@@ -39958,3 +39958,36 @@
   - 📍  — Urussanga
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-menos-de-1-km-do-supermercado-1454041883
 
+
+## 🆕 6 novos anúncios — 12/03/2026 11:17
+
+- **Terreno / Lote / Condomínio à venda, 40018m²**
+  - 💰 R$ 298.000 | 📐 40000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-condominio-a-venda-40018m-1485078882
+
+- **terreno urbano**
+  - 💰 R$ 850.000 | 📐 6670 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-1485078377
+
+- **Terreno plano com 451,50m2 com matrícula perto da lagoa**
+  - 💰 R$ 375.000 | 📐 452 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-com-451-50m2-com-matricula-perto-da-lagoa-1485069495
+
+- **Terreno escriturado com 8 hectares no bairro Sanga Grande Alta**
+  - 💰 R$ 620.000 | 📐 80000 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-com-8-hectares-no-bairro-sanga-grande-alta-1485068022
+
+- **? Vendo propriedade exclusiva em Urubici - 1.600 metros de altitude | **
+  - 💰 R$ 1.150.000 | 📐 20000 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-propriedade-exclusiva-em-urubici-1-600-metros-de-altitude-rota-da-neve-1477895208
+
+- **Casa com 2 quartos à venda na Rua Ararangua Sc, Cidade Alta, Araranguá**
+  - 💰 R$ 495.000 | 📐 124 m²
+  - 📍 Cidade Alta — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-cidade-alta-124m2-RS495000/id-18979214/
+
