@@ -41736,3 +41736,151 @@
   - 📍 Lagoa Dos Esteves — Balneário Rincão
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-600m2-RS1450000/id-18317846/
 
+
+## 🆕 29 novos anúncios — 13/03/2026 22:11
+
+- **Lote Garopaba Internacional**
+  - 💰 R$ 636.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-garopaba-internacional-1485603509
+
+- **Lote Garopaba Internacional**
+  - 💰 R$ 668.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-garopaba-internacional-1485603426
+
+- **Lote Garopaba Internacional**
+  - 💰 R$ 739.900 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-garopaba-internacional-1485603278
+
+- **Terreno 445m² - Pedra Branca - mrt**
+  - 💰 R$ 745.000 | 📐 445 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-445m-pedra-branca-mrt-1485600919
+
+- **Terreno 760m² - Bosque das Mansões - PLC**
+  - 💰 R$ 2.997.000 | 📐 760 m²
+  - 📍 Bosque das Mansões — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-760m-bosque-das-mansoes-plc-1485598129
+
+- **Terreno 2ha bairro Egito Antônio Carlos**
+  - 💰 R$ 250.000 | 📐 2000 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2ha-bairro-egito-antonio-carlos-1485593767
+
+- **Terreno 760m² - Bosque das Mansões - EST**
+  - 💰 R$ 2.997.000 | 📐 760 m²
+  - 📍 Bosque das Mansões — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-760m-bosque-das-mansoes-est-1485588895
+
+- **Terreno 760m² - Bosque das Mansões - JMS**
+  - 💰 R$ 2.997.000 | 📐 760 m²
+  - 📍 Bosque das Mansões — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-760m-bosque-das-mansoes-jms-1485587058
+
+- **VENDO TERRENO BRISAS-DELTAVILLE BIGUAÇU**
+  - 💰 R$ 265.000 | 📐 178 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-brisas-deltaville-biguacu-1485585820
+
+- **TERRENO - PEDRA BRANCA**
+  - 💰 R$ 809.000 | 📐 535 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pedra-branca-1485584623
+
+- **Terreno Biguaçu**
+  - 💰 R$ 210.000 | 📐 491 m²
+  - 📍  — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-biguacu-1485582767
+
+- **Vendo terreno na Praia em Palhoça - Leia o anúncio...**
+  - 💰 R$ 195.000 | 📐 360 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-em-palhoca-leia-o-anuncio-1485578508
+
+- **Vista Panorâmica Garopaba**
+  - 💰 R$ 215.000 | 📐 3000 m²
+  - 📍 Praia João Rosa — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vista-panoramica-garopaba-1429431048
+
+- **Vendo lindo sítio em Antônio Carlos praticamente na praça!**
+  - 💰 R$ 1.200.000 | 📐 ? m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lindo-sitio-em-antonio-carlos-praticamente-na-praca-1468261469
+
+- **Terreno á Venda Três Barras- Palhoça**
+  - 💰 R$ 70.000 | 📐 1000 m²
+  - 📍 Três Barras — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-tres-barras-palhoca-1485562441
+
+- **Fazenda a venda em Paulo Lopes SC com 28 hectares, ideal para um Haras**
+  - 💰 R$ 3.300.000 | 📐 28782 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-a-venda-em-paulo-lopes-sc-com-28-hectares-ideal-para-um-haras-1441486190
+
+- **Sítio em Alfredo Wagner**
+  - 💰 R$ 250.000 | 📐 1000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-1485556392
+
+- **TERRENO ÀS MARGENS DA BR282, ÁGUAS MORNAS-SC**
+  - 💰 R$ 850.000 | 📐 12 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-s-margens-da-br282-aguas-mornas-sc-1485546112
+
+- **CHÁCARA PARA MORADIA OU EVENTOS EM ÁGUAS MORNAS-SC**
+  - 💰 R$ 900.000 | 📐 10793 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-para-moradia-ou-eventos-em-aguas-mornas-sc-1485546122
+
+- **Terreno para sítio**
+  - 💰 R$ 120.000 | 📐 ? m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-1485546026
+
+- **Sítio em Águas Mornas com lagoa privativa, 3 Casas e Potencial para po**
+  - 💰 R$ 1.990.000 | 📐 300 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-com-lagoa-privativa-3-casas-e-potencial-para-pousada-1485543578
+
+- **Terreno em balneário lagoinha Vendo ou troco por carro**
+  - 💰 R$ 40.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-lagoinha-vendo-ou-troco-por-carro-1485542903
+
+- **TERRENO ERMO PROXIMO 4 MIN BR 101**
+  - 💰 R$ 85.000 | 📐 288 m²
+  - 📍  — Ermo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ermo-proximo-4-min-br-101-1485538697
+
+- **Chácara em Colonia Santa Luzia**
+  - 💰 R$ 3.900.000 | 📐 342 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-colonia-santa-luzia-1485538516
+
+- **TERRENO EM CONDOMÍNIO À VENDA - 294m² - BELA VISTA - PALHOÇA**
+  - 💰 R$ 260.000 | 📐 294 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-venda-294m-bela-vista-palhoca-1485538141
+
+- **Terreno para INVESTIMENTO com escritura**
+  - 💰 R$ 110.000 | 📐 350 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-com-escritura-1485529888
+
+- **TERRENO DE ESQUINA AV. DAS TORRES EM SÃO JOSÉ - 562,92 m² - ÓTIMA LOCA**
+  - 💰 R$ 700.000 | 📐 563 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-av-das-torres-em-sao-jose-562-92-m-otima-localizacao-1485528526
+
+- **Imóvel para aluguel possui 170 metros quadrados com 1 quarto em Kobras**
+  - 💰 R$ 8.000 | 📐 170 m²
+  - 📍 Kobrasol — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-aluguel-possui-170-metros-quadrados-com-1-quarto-em-kobrasol-sao-jose-sc-1485284747
+
+- **Sítio com 6 Hectares em Nova Trento**
+  - 💰 R$ 1.200.000 | 📐 60000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-6-hectares-em-nova-trento-1481093553
+
