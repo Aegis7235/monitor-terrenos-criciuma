@@ -40932,3 +40932,91 @@
   - 📍 Jardim Elizabeth — Cocal do Sul
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-jardim-elizabeth-RS390000/id-35805609/
 
+
+## 🆕 17 novos anúncios — 13/03/2026 05:51
+
+- **Terreno em Condomínio em Araçatuba, Imbituba/SC**
+  - 💰 R$ 820.000 | 📐 855 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-em-aracatuba-imbituba-sc-1485385523
+
+- **Terreno em Condomínio em Araçatuba, Imbituba/SC**
+  - 💰 R$ 650.000 | 📐 950 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-em-aracatuba-imbituba-sc-1485385462
+
+- **Terreno à venda no bairro Araçatuba - Imbituba/SC**
+  - 💰 R$ 749.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-aracatuba-imbituba-sc-1485385360
+
+- **Terreno para Venda em Morrinhos Garopaba-SC**
+  - 💰 R$ 1.890.000 | 📐 1517 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-morrinhos-garopaba-sc-1485384981
+
+- **Oportunidade única! Terreno disponível para compra no Centro de Içara.**
+  - 💰 R$ 5.000.000 | 📐 3197 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-disponivel-para-compra-no-centro-de-icara-1485384667
+
+- **O Privilégio de Acordar com o Mar aos seus Pés! Terreno Beira-Mar em A**
+  - 💰 R$ 450.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/o-privilegio-de-acordar-com-o-mar-aos-seus-pes-terreno-beira-mar-em-areias-claras-1485375162
+
+- **Viva no Paraíso! Terreno de 350m² no Lagoa Cortada  O Loteamento mais **
+  - 💰 R$ 350.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/viva-no-paraiso-terreno-de-350m-no-lagoa-cortada-o-loteamento-mais-charmoso-da-gaivota-1485375033
+
+- **TERRENO AREIAS CLARAS**
+  - 💰 R$ 328.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-claras-1485375055
+
+- **Terreno de 300m² na Lagoa Cortada  Alto Padrão e Valorização Garantida**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300m-na-lagoa-cortada-alto-padrao-e-valorizacao-garantida-1485374918
+
+- **Vendo Lote a 2Km's do trevo principal de capivari de baixo**
+  - 💰 R$ 45.000 | 📐 324 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-a-2km-s-do-trevo-principal-de-capivari-de-baixo-1485364562
+
+- **Terreno à venda em Mina Brasil, Criciúma**
+  - 💰 R$ 9.000 | 📐 1808 m²
+  - 📍 Mina Brasil — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-mina-brasil-criciuma-1485354848
+
+- **Terreno de leilão em Centro / IMARUI / SC | Venda Direta Online**
+  - 💰 R$ 985.154 | 📐 715100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-centro-imarui-sc-venda-direta-online-1485347127
+
+- **Sítio em Alfredo Wagner 2.6 hectares**
+  - 💰 R$ 250.000 | 📐 22600 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-2-6-hectares-1485328427
+
+- **Terreno comercial criciuma em frente ao giassi santa barbara e milium**
+  - 💰 R$ 1.800.000 | 📐 600 m²
+  - 📍 Santa Bárbara — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-criciuma-em-frente-ao-giassi-santa-barbara-e-milium-1446854044
+
+- **Oportunidade! Terreno com Escritura! Lombas, Içara/SC**
+  - 💰 R$ 155.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-com-escritura-lombas-icara-sc-1485338725
+
+- **Terreno de esquina à venda, 300 m² por R$ 65.000 - Xangrilá dos Mares **
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-300-m-por-r-65-000-xangrila-dos-mares-passo-de-torres-sc-1453884452
+
+- **Terreno à venda, 375 m² por R$ 250.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 250.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-250-000-00-bellatorres-passo-de-torres-sc-1385809532
+
