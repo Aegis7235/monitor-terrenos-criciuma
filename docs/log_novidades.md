@@ -42498,3 +42498,41 @@
   - 📍 Pachecos — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-pachecos-palhoca-sc-1485487879
 
+
+## 🆕 7 novos anúncios — 14/03/2026 22:02
+
+- **Preço Reduzido - Terreno Bem Localizado em Santa Rosa do Sul**
+  - 💰 R$ 49.900 | 📐 525 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/preco-reduzido-terreno-bem-localizado-em-santa-rosa-do-sul-1485803930
+
+- **Terreno para Investimento ou Sitio. Preço abaixo do Mercado.**
+  - 💰 R$ 185.000 | 📐 26984 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-ou-sitio-preco-abaixo-do-mercado-1485761149
+
+- **Terreno em Ibiraquera, excelente localização**
+  - 💰 R$ 550.000 | 📐 784 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ibiraquera-excelente-localizacao-1485821592
+
+- **Terreno de Esquina Condomínio Náutico Hookipa**
+  - 💰 R$ 475.000 | 📐 510 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-condominio-nautico-hookipa-1467294246
+
+- **Terreno Floresta 1 - Criciúma**
+  - 💰 R$ 139.000 | 📐 ? m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-floresta-1-criciuma-1485778561
+
+- **Terreno à venda - 18.882m² - Rodovia Governador Jorge Lacerda  Criciúm**
+  - 💰 R$ 1.000.000 | 📐 18885 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-18-882m-rodovia-governador-jorge-lacerda-criciuma-bairro-sangao-1431873177
+
+- **Sítio com 13.210m2 Localizado em Rio Albina, Siderópolis-SC Escritura **
+  - 💰 R$ 300.000 | 📐 13210 m²
+  - 📍 Zona Rural — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-sideropolis-zona-rural-RS300000/id-40506924/
+
