@@ -41884,3 +41884,41 @@
   - 📍  — Nova Trento
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-6-hectares-em-nova-trento-1481093553
 
+
+## 🆕 7 novos anúncios — 14/03/2026 05:44
+
+- **Terreno Rural Sítio em Nova Veneza 70.000m² ACEITA PARCELAMENTO DIRETO**
+  - 💰 R$ 1.700.000 | 📐 70000 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-sitio-em-nova-veneza-70-000m-aceita-parcelamento-direto-bom-para-plantio-1427368223
+
+- **TERRENO RESIDENCIAL em IMBITUBA - SC, Rosa**
+  - 💰 R$ 380.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-imbituba-sc-rosa-1485659187
+
+- **Terreno à beira d'água em Imbituba-SC: construa sua casa dos sonhos em**
+  - 💰 R$ 1.900.000 | 📐 4773 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-beira-d-agua-em-imbituba-sc-construa-sua-casa-dos-sonhos-em-meio-a-natureza-exu-1485657414
+
+- **Terreno à Venda no Centro de Balneário Gaivota/SC**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-balneario-gaivota-sc-1485652541
+
+- **Terreno de esquina condomínio Cristal Park**
+  - 💰 R$ 700.000 | 📐 655 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-condominio-cristal-park-1485617186
+
+- **Terrenos em Tijucas/SC bairro timbé**
+  - 💰 R$ 150.000 | 📐 8300 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-tijucas-sc-bairro-timbe-1485605958
+
+- **TERRENO DE 14 MIL m2**
+  - 💰 R$ 1.400.000 | 📐 14000 m²
+  - 📍 Coloninha Zilli — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-14-mil-m2-1485635642
+
