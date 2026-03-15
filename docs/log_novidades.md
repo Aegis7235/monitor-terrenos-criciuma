@@ -42560,3 +42560,11 @@
   - 📍  — Imaruí
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-cabana-em-imarui-1485910982
 
+
+## 🆕 1 novos anúncios — 15/03/2026 21:58
+
+- **Vende-se área de terra com 4.889 m², Bairro Primeira Linha em Criciúma**
+  - 💰 R$ 420.000 | 📐 4889 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-criciuma-primeira-linha-RS420000/id-40523208/
+
