@@ -42536,3 +42536,16 @@
   - 📍 Zona Rural — Siderópolis
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-sideropolis-zona-rural-RS300000/id-40506924/
 
+
+## 🆕 2 novos anúncios — 15/03/2026 06:21
+
+- **Torro terreno de 1000m² só R$ 45.000,00 pego troca**
+  - 💰 R$ 45.000 | 📐 1000 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/torro-terreno-de-1000m-so-r-45-000-00-pego-troca-1485834378
+
+- **Terreno em Jaguaruna em Balneário Paraíso**
+  - 💰 R$ 40.000 | 📐 350 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jaguaruna-em-balneario-paraiso-1485832069
+
