@@ -42552,3 +42552,11 @@
 
 ## ✅ Sem novidades — 15/03/2026 10:09
 
+
+## 🆕 1 novos anúncios — 15/03/2026 16:04
+
+- **Vendo Cabana em Imaruí**
+  - 💰 R$ 77.000 | 📐 500 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-cabana-em-imarui-1485910982
+
