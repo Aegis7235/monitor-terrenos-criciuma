@@ -42571,3 +42571,126 @@
 
 ## ✅ Sem novidades — 16/03/2026 08:01
 
+
+## 🆕 24 novos anúncios — 16/03/2026 11:46
+
+- **Barbada - 2.000 m² na Beira da Rodovia com 60m de frente - 180m da Lag**
+  - 💰 R$ 360.000 | 📐 2000 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-2-000-m-na-beira-da-rodovia-com-60m-de-frente-180m-da-lagoa-e-1-5km-do-mar-1486000455
+
+- **Vendo Sitio perto do santuario Madre Paulina**
+  - 💰 R$ 280.000 | 📐 30000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-perto-do-santuario-madre-paulina-1485936513
+
+- **Lote em Avenida Santa Catarina - Centro - Imbituba/SC**
+  - 💰 R$ 799.150 | 📐 380 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-avenida-santa-catarina-centro-imbituba-sc-1485975044
+
+- **Sítio em estrada Geral do MACACU - Costa Macacu - Garopaba/SC**
+  - 💰 R$ 2.199.410 | 📐 20000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-estrada-geral-do-macacu-costa-macacu-garopaba-sc-1485974135
+
+- **Sítio em Fazenda Rio das Garça - Fazenda Rio das Garça - Imaruí/SC**
+  - 💰 R$ 789.340 | 📐 60 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-fazenda-rio-das-garca-fazenda-rio-das-garca-imarui-sc-1485973060
+
+- **Lote em Rodovia SC-447 - Morro dos Conventos - Araranguá/SC**
+  - 💰 R$ 599.730 | 📐 1750 m²
+  - 📍 Lagoa da Serra — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rodovia-sc-447-morro-dos-conventos-ararangua-sc-1485971344
+
+- **Lote em Rua Horiental - Nova Brasilia - Imbituba/SC**
+  - 💰 R$ 849.420 | 📐 7300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-horiental-nova-brasilia-imbituba-sc-1485970965
+
+- **Lote em null Rua Antônio Bittencourt Capanema, 858 - Itapeva - Imaruí/**
+  - 💰 R$ 2.499.160 | 📐 60000 m²
+  - 📍 Centro — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-null-rua-antonio-bittencourt-capanema-858-itapeva-imarui-sc-1485970153
+
+- **Lote em Campo Duna - Campo D'una - Garopaba/SC**
+  - 💰 R$ 369.820 | 📐 624 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-campo-duna-campo-d-una-garopaba-sc-1485969662
+
+- **Lote em Campo Duna - Campo D'una - Garopaba/SC**
+  - 💰 R$ 279.780 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-campo-duna-campo-d-una-garopaba-sc-1485968308
+
+- **Lote em Servidão Pública - Nova Fazenda - Laguna/SC**
+  - 💰 R$ 214.710 | 📐 360 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-servidao-publica-nova-fazenda-laguna-sc-1485967733
+
+- **Sítio em Geral do Sambaqui - Sambaqui - Imbituba/SC**
+  - 💰 R$ 449.810 | 📐 28000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-geral-do-sambaqui-sambaqui-imbituba-sc-1485967389
+
+- **Lote em - Arroio do Rosa - Imbituba/SC**
+  - 💰 R$ 5.224.040 | 📐 15000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-arroio-do-rosa-imbituba-sc-1485966186
+
+- **Lote em Rua da pousada da vida sol e mar - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 750.000 | 📐 514 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-da-pousada-da-vida-sol-e-mar-praia-do-rosa-imbituba-sc-1485965293
+
+- **Terreno 225 m2**
+  - 💰 R$ 80.000 | 📐 225 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-225-m2-1485947726
+
+- **Terreno Comercial com 370m2 no Bairro Próspera! Próximo à Centenário.**
+  - 💰 R$ 549.000 | 📐 370 m²
+  - 📍 Próspera — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-com-370m2-no-bairro-prospera-proximo-a-centenario-1485943341
+
+- **Terreno em Condomínio no Reserva Royal**
+  - 💰 R$ 385.000 | 📐 364 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-no-reserva-royal-1486051766
+
+- **Terreno em Condomínio no Reserva Royal**
+  - 💰 R$ 450.000 | 📐 360 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-no-reserva-royal-1486051778
+
+- **Venda-Terreno-Imbituba-Nova Brasilia**
+  - 💰 R$ 179.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-nova-brasilia-1486040403
+
+- **Terreno 2 hectares, escriturado.**
+  - 💰 R$ 195.000 | 📐 20000 m²
+  - 📍  — Orleans
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-hectares-escriturado-1486037789
+
+- **Terreno sítio ou casa**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sitio-ou-casa-1486037624
+
+- **Imóvel para venda com 300 metros quadrados em Camacho - Jaguaruna - SC**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-300-metros-quadrados-em-camacho-jaguaruna-sc-1485943179
+
+- **Terreno Condomínio Fechado**
+  - 💰 R$ 425.000 | 📐 253 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-fechado-1486051887
+
+- **Terreno em Condomínio no Reserva Royal**
+  - 💰 R$ 690.000 | 📐 362 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-no-reserva-royal-1486051811
+
