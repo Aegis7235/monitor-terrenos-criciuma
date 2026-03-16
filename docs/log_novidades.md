@@ -42722,3 +42722,56 @@
   - 📍  — Imaruí
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-a-venda-em-imarui-sc-com-vista-pro-lago-1486100290
 
+
+## 🆕 10 novos anúncios — 16/03/2026 23:03
+
+- **Fazenda em Alfredo Wagner- 113 ha -Serra Catarinense**
+  - 💰 R$ 7.300.000 | 📐 1130000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-em-alfredo-wagner-113-ha-serra-catarinense-1485960700
+
+- **Terreno á venda com 750m² no bairro Lagoa Cortada (Furnas) em Balneári**
+  - 💰 R$ 145.000 | 📐 750 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-750m-no-bairro-lagoa-cortada-furnas-em-balneario-gaivota-sc-1486278019
+
+- **Terrenos parcelados**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-1486222410
+
+- **Terreno á venda com 300m² no bairro Village Dunas em Balneário Gaivota**
+  - 💰 R$ 210.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-no-bairro-village-dunas-em-balneario-gaivota-sc-1480796895
+
+- **TERRENO EM IMBITUBA - BAIRRO ARAÇATUBA**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-bairro-aracatuba-1486289426
+
+- **Loteamento, Bella Vista**
+  - 💰 R$ 181.746 | 📐 150 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-bella-vista-1486275351
+
+- **Terreno à Venda no bairro: Areias de Palhocinha**
+  - 💰 R$ 430.000 | 📐 403 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-areias-de-palhocinha-1486275321
+
+- **Arca para o tempo chegado**
+  - 💰 R$ 450 | 📐 8600 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/arca-para-o-tempo-chegado-1486249596
+
+- **Sítio para Venda em Paulo Lopes, Penha**
+  - 💰 R$ 1.600.000 | 📐 440000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-paulo-lopes-penha-1486247011
+
+- **Loteamento Morro dos Conventos.**
+  - 💰 R$ 304.010 | 📐 432 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-morro-dos-conventos-1486223237
+
