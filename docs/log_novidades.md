@@ -42694,3 +42694,31 @@
   - 📍  — Tijucas
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-no-reserva-royal-1486051811
 
+
+## 🆕 5 novos anúncios — 16/03/2026 18:20
+
+- **Terreno na primeira quadra do mar, pronto para construir.**
+  - 💰 R$ 200.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-primeira-quadra-do-mar-pronto-para-construir-1486145804
+
+- **Chácara mobiliada com 3 suítes a apenas 6 km do Centro de Tijucas/SC**
+  - 💰 R$ 750.000 | 📐 250 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-mobiliada-com-3-suites-a-apenas-6-km-do-centro-de-tijucas-sc-1486151627
+
+- **Terreno 324m2 pra vender rápido**
+  - 💰 R$ 35.000 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-324m2-pra-vender-rapido-1484060077
+
+- **Terreno em Garopaba, entre a Lagoa e o Mar**
+  - 💰 R$ 490.000 | 📐 422 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-entre-a-lagoa-e-o-mar-920898063
+
+- **Lotes a venda em Imaruí SC com vista pro lago**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-a-venda-em-imarui-sc-com-vista-pro-lago-1486100290
+
