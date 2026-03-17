@@ -44069,3 +44069,111 @@
   - 📍 Jardim das Palmeiras — Cocal do Sul
   - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-2-quartos-com-garagem-sc-cocal-do-sul-jardim-das-palmeiras-68m2-RS373000/id-40309202/
 
+
+## 🆕 21 novos anúncios — 17/03/2026 23:02
+
+- **Refúgio dos Sonhos: Terreno com Açude em Condomínio Fechado, Frente No**
+  - 💰 R$ 79.900 | 📐 2100 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/refugio-dos-sonhos-terreno-com-acude-em-condominio-fechado-frente-norte-e-acesso-a-lagoa-1486575596
+
+- **Terreno de 380m² à Venda no Loteamento São Sebastião  Santa Rosa do Su**
+  - 💰 R$ 110.000 | 📐 381 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-380m-a-venda-no-loteamento-sao-sebastiao-santa-rosa-do-sul-1486575578
+
+- **Terreno de Esquina, 483m², São Pedro/Sombrio!**
+  - 💰 R$ 192.000 | 📐 483 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-483m-sao-pedro-sombrio-1486575491
+
+- **Terreno para Sítio no bairro Oliveira**
+  - 💰 R$ 650.000 | 📐 10650 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-no-bairro-oliveira-1486568601
+
+- **Terreno de esquina no Loteamento Reserva do Lago.**
+  - 💰 R$ 450.000 | 📐 463 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-loteamento-reserva-do-lago-1486550231
+
+- **Terreno à Venda em Garopaba - Bairro Areias de Palhocinha**
+  - 💰 R$ 430.000 | 📐 403 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-bairro-areias-de-palhocinha-1486534745
+
+- **Terreno no Sertão da Estiva**
+  - 💰 R$ 80.000 | 📐 715 m²
+  - 📍  — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-sertao-da-estiva-1474156948
+
+- **Terreno Esquina Monte Castelo**
+  - 💰 R$ 190.000 | 📐 406 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-monte-castelo-1486596818
+
+- **Oportunidade - Terreno Escriturado, Vila São Cristóvão, Santa Rosa do **
+  - 💰 R$ 60.000 | 📐 278 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-escriturado-vila-sao-cristovao-santa-rosa-do-sul-1486579982
+
+- **Terreno em Garopaba, localizado no bairro Campo D'una, A 250 metros at**
+  - 💰 R$ 255.000 | 📐 324 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-localizado-no-bairro-campo-d-una-a-250-metros-ate-a-sc-434-1216088212
+
+- **Terreno em Imbituba, no bairro Campo D'una, a 100 metros até a SC 434,**
+  - 💰 R$ 370.000 | 📐 816 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-no-bairro-campo-d-una-a-100-metros-ate-a-sc-434-200-metros-ate-o-k-1264381650
+
+- **Terreno Ideal em Areias Claras: Invista Já!**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ideal-em-areias-claras-invista-ja-1486579218
+
+- **Seu Terreno em Areias Claras por Ótimo Preço!**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-terreno-em-areias-claras-por-otimo-preco-1486577321
+
+- **Terreno 300m² por Preço de Ocasião Lote no Campo com Estrutura de Cida**
+  - 💰 R$ 35.000 | 📐 300 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-por-preco-de-ocasiao-lote-no-campo-com-estrutura-de-cidade-1486577242
+
+- **Terreno Escriturado com 336m² no Parque Rosita  Ótima Localização e Va**
+  - 💰 R$ 59.000 | 📐 336 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-com-336m-no-parque-rosita-otima-localizacao-e-valor-acessivel-1486577258
+
+- **Oportunidade no Parque Rosita  Terreno 351m² Próximo à BR-101 e Centro**
+  - 💰 R$ 79.000 | 📐 351 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-no-parque-rosita-terreno-351m-proximo-a-br-101-e-centro-1486577221
+
+- **Terreno de Esquina Escriturado com 260m² no Parque Rosita  Frente Sul **
+  - 💰 R$ 69.000 | 📐 260 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-escriturado-com-260m-no-parque-rosita-frente-sul-e-localizacao-imbati-1486577202
+
+- **Terreno 330m² a 600m da Praia em Balneário Gaivota  Oportunidade Única**
+  - 💰 R$ 169.600 | 📐 330 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-330m-a-600m-da-praia-em-balneario-gaivota-oportunidade-unica-1486577200
+
+- **Terreno com 300m² por valor super acessível! Frente oeste, 12x25m, pla**
+  - 💰 R$ 59.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-300m-por-valor-super-acessivel-frente-oeste-12x25m-plano-pronto-para-cons-1486576827
+
+- **Super Oportunidade! Terreno de 297m² na Lagoa de Fora  Apenas 90m da R**
+  - 💰 R$ 100.000 | 📐 297 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/super-oportunidade-terreno-de-297m-na-lagoa-de-fora-apenas-90m-da-rodovia-jose-tiskoski-1486576819
+
+- **Seu Refúgio em Balneário Gaivota!**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-refugio-em-balneario-gaivota-1486575730
+
