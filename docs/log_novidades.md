@@ -43633,3 +43633,231 @@
   - 📍 Camacho — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-camacho-64m2-RS245000/id-35400242/
 
+
+## 🆕 45 novos anúncios — 17/03/2026 11:43
+
+- **Em condomínio fechado, conheça seu terreno rural à venda, Moura, Canel**
+  - 💰 R$ 260.000 | 📐 10 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/em-condominio-fechado-conheca-seu-terreno-rural-a-venda-moura-canelinha-sc-1486389861
+
+- **Terreno no bairro Longaroni - Garopaba**
+  - 💰 R$ 1.285.000 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-longaroni-garopaba-1486365831
+
+- **Terreno bairro Longaroni - Garopaba**
+  - 💰 R$ 1.285.000 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-longaroni-garopaba-1486365700
+
+- **Terreno amplo e plano no bairro Ressacada - Excelente oportunidade!**
+  - 💰 R$ 350.000 | 📐 1150 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-e-plano-no-bairro-ressacada-excelente-oportunidade-1486365652
+
+- **Sítio para Venda em Imaruí, Rio D una, 2 dormitórios, 1 banheiro, 2 va**
+  - 💰 R$ 350.000 | 📐 1400 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-imarui-rio-d-una-2-dormitorios-1-banheiro-2-vagas-1486391763
+
+- **Excelentes Terrenos de Frente**
+  - 💰 R$ 550.000 | 📐 480 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelentes-terrenos-de-frente-1439980712
+
+- **Casa em Condomínio para Venda em Criciúma, Primeira Linha, 3 dormitóri**
+  - 💰 R$ 2.600.000 | 📐 232 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-criciuma-primeira-linha-675m2-RS2600000/id-32288993/
+
+- **Casa com 2 quartos à venda no Argentina, Criciúma**
+  - 💰 R$ 500.000 | 📐 120 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-criciuma-argentina-450m2-RS500000/id-40207307/
+
+- **Casa nova no Condominio Villagio Verde em Criciúma - Condominio que ma**
+  - 💰 R$ 2.600.000 | 📐 348 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-criciuma-argentina-348m2-RS2600000/id-35887638/
+
+- **Vende-se 02 casas bem localizada no Bairro São Luiz em Criciúma SC**
+  - 💰 R$ 1.100.000 | 📐 300 m²
+  - 📍 São Luiz — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-sc-criciuma-sao-luiz-RS1100000/id-37275266/
+
+- **Casa com 4 quartos à venda no São João, Criciúma**
+  - 💰 R$ 850.000 | 📐 144 m²
+  - 📍 São João — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-criciuma-sao-joao-978m2-RS850000/id-36462881/
+
+- **Casa para Venda em Içara, Cristo Rei, 3 dormitórios, 1 suíte, 2 banhei**
+  - 💰 R$ 1.100.000 | 📐 200 m²
+  - 📍 Cristo Rei — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-icara-cristo-rei-367m2-RS1100000/id-32289005/
+
+- **Casa alvenaria com edícula, bairro Aurora em Içara- Santa Catarina**
+  - 💰 R$ 500.000 | 📐 110 m²
+  - 📍 Aurora — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-icara-aurora-RS500000/id-39067536/
+
+- **Casa com 2 quartos à venda no Jardim Silvana, Içara**
+  - 💰 R$ 295.000 | 📐 100 m²
+  - 📍 Jardim Silvana — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-jardim-silvana-378m2-RS295000/id-38252095/
+
+- **Casa com 2 quartos à venda na Residencial  Vila Real, 9, Santa Bárbara**
+  - 💰 R$ 260.000 | 📐 160 m²
+  - 📍 Santa Bárbara — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-ararangua-santa-barbara-160m2-RS260000/id-39481845/
+
+- **Casa com 3 quartos à venda na Avenida Getúlio Vargas, Urussanguinha, A**
+  - 💰 R$ 610.000 | 📐 95 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-urussanguinha-300m2-RS610000/id-39430378/
+
+- **Casa Alvenaria, Alto padrão, bairro Urussanguinha em Araranguá/SC.**
+  - 💰 R$ 1.300.000 | 📐 270 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-urussanguinha-RS1300000/id-35803855/
+
+- **Casa com 3 quartos à venda na Rua Agenor Joaquim Mattos, Caverazinho, **
+  - 💰 R$ 1.600.000 | 📐 225 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-caverazinho-RS1600000/id-37917786/
+
+- **Casa com 3 quartos à venda na Rua Vereador Paulo Hilzendeger, 77, Nova**
+  - 💰 R$ 870.000 | 📐 104 m²
+  - 📍 Nova Divinéia — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-ararangua-nova-divineia-321m2-RS870000/id-30115373/
+
+- **Casa à venda no Centro, Sombrio**
+  - 💰 R$ 450.000 | 📐 414 m²
+  - 📍 Centro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-sombrio-centro-414m2-RS450000/id-26928892/
+
+- **Casa para Venda em Sombrio, Nova Brasília, 4 dormitórios, 2 banheiros,**
+  - 💰 R$ 480.000 | 📐 360 m²
+  - 📍 Nova Brasília — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-sombrio-nova-brasilia-360m2-RS480000/id-25602998/
+
+- **Casa para Venda em Sombrio, São Luiz, 4 dormitórios, 1 banheiro**
+  - 💰 R$ 650.000 | 📐 300 m²
+  - 📍 São Luiz — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-sc-sombrio-sao-luiz-300m2-RS650000/id-25603021/
+
+- **Casa para Venda em Sombrio, Nova Brasília, 3 dormitórios, 1 banheiro, **
+  - 💰 R$ 480.000 | 📐 360 m²
+  - 📍 Nova Brasília — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-nova-brasilia-360m2-RS480000/id-25603058/
+
+- **Casa para Venda em Sombrio, Nova Brasília, 3 dormitórios, 1 suíte, 4 b**
+  - 💰 R$ 1.350.000 | 📐 390 m²
+  - 📍 Nova Brasília — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-sombrio-nova-brasilia-390m2-RS1350000/id-25603078/
+
+- **Casa para Venda em Sombrio, São Francisco, 2 dormitórios, 1 banheiro, **
+  - 💰 R$ 425.000 | 📐 406 m²
+  - 📍 São Francisco — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-sao-francisco-406m2-RS425000/id-31337242/
+
+- **Casa para Venda em Sombrio, Guarita, 3 dormitórios, 1 banheiro, 1 vaga**
+  - 💰 R$ 350.000 | 📐 711 m²
+  - 📍 Nova Guarita — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-nova-guarita-711m2-RS350000/id-25603124/
+
+- **Casa com 3 dormitórios à venda, 170 m² por R$ 1.800.000 - Costa do Rio**
+  - 💰 R$ 1.800.000 | 📐 170 m²
+  - 📍 Costa do Rio Mampituba — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-passo-de-torres-costa-do-rio-mampituba-400m2-RS1800000/id-27126144/
+
+- **Casa com 3 quartos à venda na Rua João Rodrigues Da Silva, 902, Centro**
+  - 💰 R$ 1.400.000 | 📐 180 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-centro-180m2-RS1400000/id-37386772/
+
+- **Casa com 3 quartos à venda na Rua Dos Caracóis, --, Bela Torres, Passo**
+  - 💰 R$ 850.990 | 📐 149 m²
+  - 📍 Bela Torres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-bela-torres-149m2-RS850990/id-29365078/
+
+- **Casa em condomínio fechado com 3 quartos à venda na Prefeito João Luiz**
+  - 💰 R$ 900.000 | 📐 208 m²
+  - 📍 Novo Passo — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-passo-de-torres-novo-passo-420m2-RS900000/id-33659081/
+
+- **Casa com 3 quartos à venda na Rua Dos Caracóis, 564, Bela Torres, Pass**
+  - 💰 R$ 830.000 | 📐 128 m²
+  - 📍 Bela Torres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-bela-torres-350m2-RS830000/id-13841484/
+
+- **Casa com 2 quartos à venda no Village Dunas Norte, Balneário Gaivota**
+  - 💰 R$ 450.000 | 📐 84 m²
+  - 📍 Village Dunas Norte — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-village-dunas-norte-84m2-RS450000/id-40165575/
+
+- **Casa com 3 quartos à venda na Rua 06, Praia da Gaivota, Balneário Gaiv**
+  - 💰 R$ 450.000 | 📐 80 m²
+  - 📍 Praia da Gaivota — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-balneario-gaivota-praia-da-gaivota-RS450000/id-31288411/
+
+- **Casa com 2 dormitórios à venda, 72 m² por R$ 340.000,00 - Village Duna**
+  - 💰 R$ 340.000 | 📐 72 m²
+  - 📍 Village Dunas I — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-village-dunas-i-150m2-RS340000/id-30623437/
+
+- **Sobrado para Venda em Balneário Gaivota, Centro, 2 dormitórios, 2 banh**
+  - 💰 R$ 429.900 | 📐 ? m²
+  - 📍 Centro — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-centro-RS429900/id-25515844/
+
+- **Casa com 3 dormitórios à venda, 180 m² por R$ 540.000,00 - Itapuã - Ba**
+  - 💰 R$ 540.000 | 📐 180 m²
+  - 📍 itapuã — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-itapua-288m2-RS540000/id-36586867/
+
+- **Terreno à venda no Caravaggio, Nova Veneza**
+  - 💰 R$ 135.000 | 📐 364 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-364m2-RS135000/id-40308825/
+
+- **Casa em Condomínio para Venda em Balneário Rincão, Lagoa dos Esteves, **
+  - 💰 R$ 1.600.000 | 📐 160 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-388m2-RS1600000/id-32289167/
+
+- **Casa com 3 quartos à venda no Centro, Balneário Rincão**
+  - 💰 R$ 300.000 | 📐 86 m²
+  - 📍 Centro — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-rincao-centro-310m2-RS300000/id-40297112/
+
+- **Casa em Condomínio para Venda em Balneário Rincão, Vila Suiça, 3 dormi**
+  - 💰 R$ 1.930.000 | 📐 150 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-387m2-RS1930000/id-40308766/
+
+- **Casa com 3 quartos à venda na Zona Sul, Balneário Rincão**
+  - 💰 R$ 425.000 | 📐 120 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-rincao-zona-sul-120m2-RS425000/id-40308892/
+
+- **Casa de Praia a venda Zona Sul Balneário Rincão 2 quartos 2 vagas de g**
+  - 💰 R$ 400.000 | 📐 94 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-rincao-zona-sul-94m2-RS400000/id-38560996/
+
+- **Casa para Venda em Balneário Rincão, Lagoa dos Esteves, 2 dormitórios,**
+  - 💰 R$ 1.280.000 | 📐 109 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-109m2-RS1280000/id-33950949/
+
+- **Casa com 3 quartos à venda no Camacho, Jaguaruna**
+  - 💰 R$ 300.000 | 📐 ? m²
+  - 📍 Camacho — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-camacho-RS300000/id-39434926/
+
+- **Casa com 3 quartos à venda no Centro, Jaguaruna**
+  - 💰 R$ 320.000 | 📐 360 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-jaguaruna-centro-RS320000/id-39434912/
+
