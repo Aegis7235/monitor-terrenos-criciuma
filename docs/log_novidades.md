@@ -44773,3 +44773,536 @@
   - 📍 Bom Viver — Biguaçu
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1486523040
 
+
+## 🆕 106 novos anúncios — 18/03/2026 18:24
+
+- **Terreno em Condomínio Fechado nos Ingleses - 466m², Próximo à Praia!**
+  - 💰 R$ 990.000 | 📐 466 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-nos-ingleses-466m-proximo-a-praia-1486874463
+
+- **Terreno para Venda no bairro Barra do Aririú, Palhoça / SC.**
+  - 💰 R$ 630.000 | 📐 717 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-bairro-barra-do-aririu-palhoca-sc-1486871949
+
+- **Terreno com 450m² no Bairro Colônia Santana em São José, SC**
+  - 💰 R$ 239.000 | 📐 450 m²
+  - 📍 Colônia Santana — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-450m-no-bairro-colonia-santana-em-sao-jose-sc-1486871546
+
+- **Terreno Residencial e Comercial à venda com 200m² de área privativa no**
+  - 💰 R$ 450.000 | 📐 200 m²
+  - 📍 Bela Vista — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-e-comercial-a-venda-com-200m-de-area-privativa-no-bairro-bela-vista-e-1486871306
+
+- **Imóvel para venda tem 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1486870141
+
+- **Vendo terreno no morro Eletrosul**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍 Pantanal — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-morro-eletrosul-1486868591
+
+- **Conecte-se à Natureza: Sítio com Vista para o Mar**
+  - 💰 R$ 8.960 | 📐 6003 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/conecte-se-a-natureza-sitio-com-vista-para-o-mar-1486860143
+
+- **SITIO PARA ALUGUEL PARA FESTA E EVENTOS**
+  - 💰 R$ 450 | 📐 2000 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-aluguel-para-festa-e-eventos-1486861017
+
+- **VENDO SITIO COM 02 CASAS EM ALVENARIA EM SOROCABA DE FORA BIGUACU SC**
+  - 💰 R$ 877.000 | 📐 20000 m²
+  - 📍 Encruzilhada — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-02-casas-em-alvenaria-em-sorocaba-de-fora-biguacu-sc-1486842095
+
+- **Terreno em Condomínio Fechado nos Ingleses - 466m², Próximo à Praia!**
+  - 💰 R$ 990.000 | 📐 466 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-nos-ingleses-466m-proximo-a-praia-1486850727
+
+- **Exelente para construir kitnets. !**
+  - 💰 R$ 160.000 | 📐 540 m²
+  - 📍 Boa Vista — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/exelente-para-construir-kitnets-1486827312
+
+- **WE - EXCELENTE LOTE PLANO COM 235² NO LOTEAMENTO NOVO HORIZONTE**
+  - 💰 R$ 240.000 | 📐 235 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/we-excelente-lote-plano-com-235-no-loteamento-novo-horizonte-1486828470
+
+- **WE - LOTEA VENDA COM 220M² NO LOTEAMENTO TERRA FIRME**
+  - 💰 R$ 135.000 | 📐 220 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/we-lotea-venda-com-220m-no-loteamento-terra-firme-1486825941
+
+- **Terreno a 100 m da Praia Mole com vista p/ a Lagoa**
+  - 💰 R$ 2.560.000 | 📐 2834 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-100-m-da-praia-mole-com-vista-p-a-lagoa-1486816483
+
+- **Terreno a venda, 380m², Nova Palhoça - Palhoça - SC**
+  - 💰 R$ 544.900 | 📐 380 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-380m-nova-palhoca-palhoca-sc-1486816435
+
+- **Chacara com agua e luz no local em São Pedro de Alcântara - SC**
+  - 💰 R$ 230.000 | 📐 3000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-agua-e-luz-no-local-em-sao-pedro-de-alcantara-sc-1486816448
+
+- **Terreno a venda, 200m², Loteamento Parque Residencial Bela Vista, Bela**
+  - 💰 R$ 258.900 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-200m-loteamento-parque-residencial-bela-vista-bela-vista-palhoca-s-1486816424
+
+- **Terreno a venda, 225m² Bela Vista - Palhoça - SC**
+  - 💰 R$ 289.900 | 📐 225 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-225m-bela-vista-palhoca-sc-1486816312
+
+- **Terreno com 65.739,70 m² no Ribeirão da Ilha**
+  - 💰 R$ 8.000.000 | 📐 65740 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-65-739-70-m-no-ribeirao-da-ilha-1486815797
+
+- **Imovel proximos das águas Termais.**
+  - 💰 R$ 950.000 | 📐 28700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-proximos-das-aguas-termais-1486814424
+
+- **Terreno na SULMAR**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-sulmar-1486813651
+
+- **Terreno em Condomínio na Serra Catarinense com 1063m² em Invernadinha **
+  - 💰 R$ 330.000 | 📐 1063 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-na-serra-catarinense-com-1063m-em-invernadinha-rancho-queimado-1486811295
+
+- **Condominio Floreville!**
+  - 💰 R$ 450.000 | 📐 500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-floreville-1486808260
+
+- **LOTES**
+  - 💰 R$ 235.000 | 📐 200 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-762869282
+
+- **Sítio Jordão**
+  - 💰 R$ 1.200.000 | 📐 2333 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-jordao-1486804677
+
+- **Parque das Villas**
+  - 💰 R$ 380.000 | 📐 451 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parque-das-villas-1486804672
+
+- **Terreno Nova Governador**
+  - 💰 R$ 175.000 | 📐 390 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nova-governador-1486804678
+
+- **Terreno Ganchos do Meio**
+  - 💰 R$ 3.000.000 | 📐 1770 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ganchos-do-meio-1486804615
+
+- **Terreno Jordão**
+  - 💰 R$ 9.000.000 | 📐 150000 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jordao-1486804634
+
+- **Terreno Canto dos Ganchos**
+  - 💰 R$ 2.700.000 | 📐 4 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-canto-dos-ganchos-1486804594
+
+- **Terreno para Sítio a venda - 1360 metros**
+  - 💰 R$ 350.000 | 📐 1360 m²
+  - 📍 Centro — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-a-venda-1360-metros-1486804841
+
+- **Terreno Quinta dos Guimarães**
+  - 💰 R$ 850.000 | 📐 2000 m²
+  - 📍 Sul do Rio — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-quinta-dos-guimaraes-1486804573
+
+- **Parque das Villas**
+  - 💰 R$ 240.000 | 📐 375 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parque-das-villas-1486804583
+
+- **Terreno Fazenda da Armação**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-fazenda-da-armacao-1486804575
+
+- **Terreno Praia Lagoinha Do norte**
+  - 💰 R$ 2.947.000 | 📐 1000 m²
+  - 📍 Ponta das Canas — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-lagoinha-do-norte-1486804576
+
+- **Lote Parque das Vilas**
+  - 💰 R$ 220.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-parque-das-vilas-1486804572
+
+- **Terreno em Areias do Meio**
+  - 💰 R$ 500.000 | 📐 1500 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-areias-do-meio-1486804540
+
+- **Terreno Areias de Cima**
+  - 💰 R$ 998.000 | 📐 100 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-de-cima-1486804544
+
+- **Lote Parque das Vilas**
+  - 💰 R$ 230.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-parque-das-vilas-1486804483
+
+- **Stítio Jordão**
+  - 💰 R$ 1.300.000 | 📐 140 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/stitio-jordao-1486804478
+
+- **Loteamento Canelinha**
+  - 💰 R$ 30.000.000 | 📐 88275 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-canelinha-1486804476
+
+- **Parque das Villas - Terreno Comercial**
+  - 💰 R$ 500.000 | 📐 515 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parque-das-villas-terreno-comercial-1486804439
+
+- **Terreno Caeira do Norte**
+  - 💰 R$ 1.300.000 | 📐 65703 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-caeira-do-norte-1486804432
+
+- **Terreno Areias de Baixo**
+  - 💰 R$ 600.000 | 📐 799 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-de-baixo-1486804423
+
+- **Terreno Berreiros São José**
+  - 💰 R$ 840.000 | 📐 393 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-berreiros-sao-jose-1486804405
+
+- **Lote Parque das Vilas**
+  - 💰 R$ 320.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-parque-das-vilas-1486804417
+
+- **Terreno Praia da Camboa**
+  - 💰 R$ 1.250.000 | 📐 480 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-da-camboa-1486804068
+
+- **Terreno 2 Antônio Carlos**
+  - 💰 R$ 171.500 | 📐 468 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-antonio-carlos-1486804105
+
+- **Sítio Jordão**
+  - 💰 R$ 3.190.000 | 📐 172 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-jordao-1486804108
+
+- **Terreno Canelinha**
+  - 💰 R$ 480.000 | 📐 3057 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-canelinha-1486804094
+
+- **Lote Parque das Vilas**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-parque-das-vilas-1486804106
+
+- **Parque das Villas - Comercial**
+  - 💰 R$ 240.000 | 📐 375 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parque-das-villas-comercial-1486804083
+
+- **Terreno Nova Governador**
+  - 💰 R$ 215.000 | 📐 390 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nova-governador-1486804050
+
+- **Terreno Bosque das Colinas**
+  - 💰 R$ 265.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bosque-das-colinas-1486804069
+
+- **Sitio com vista panoromica em Águas Mornas - SC**
+  - 💰 R$ 700.000 | 📐 38000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-vista-panoromica-em-aguas-mornas-sc-1486804002
+
+- **Prque das Vilas**
+  - 💰 R$ 450.000 | 📐 550 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/prque-das-vilas-1486804026
+
+- **Terreno Areias do Meio**
+  - 💰 R$ 640.000 | 📐 2000 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-do-meio-1486804036
+
+- **Terreno Jordão**
+  - 💰 R$ 900.000 | 📐 10200 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jordao-1486803999
+
+- **Terreno Vista Mar Caeira do Norte**
+  - 💰 R$ 480.000 | 📐 362 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vista-mar-caeira-do-norte-1486803985
+
+- **Terreno Praia da Camboa**
+  - 💰 R$ 458.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-da-camboa-1486803965
+
+- **Terreno Camboa**
+  - 💰 R$ 4.500.000 | 📐 1494 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-camboa-1486803951
+
+- **Chácara em Areias de Baixo**
+  - 💰 R$ 400.000 | 📐 65 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-areias-de-baixo-1486803954
+
+- **Terreno Nova Governador**
+  - 💰 R$ 212.000 | 📐 390 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nova-governador-1486803945
+
+- **Galpão Itapema**
+  - 💰 R$ 2.500.000 | 📐 254 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/galpao-itapema-1486803934
+
+- **Terreno Nova Governador**
+  - 💰 R$ 250.000 | 📐 390 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nova-governador-1486803883
+
+- **Terreno Areias de Baixo**
+  - 💰 R$ 350.000 | 📐 339 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-de-baixo-1486803840
+
+- **Terreno Nova Governador**
+  - 💰 R$ 190.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nova-governador-1486803841
+
+- **Lotes Nova Governador Celso Ramos -Parcelado**
+  - 💰 R$ 17.864 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-nova-governador-celso-ramos-parcelado-1058177901
+
+- **Terreno na Praia do Forte**
+  - 💰 R$ 18.000.000 | 📐 115 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-do-forte-1486803131
+
+- **Terreno Antônio Carlos**
+  - 💰 R$ 270.000 | 📐 742 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-antonio-carlos-1486803165
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 380.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1486802144
+
+- **Sitios em São Pedro de Alcântara - SC**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitios-em-sao-pedro-de-alcantara-sc-1486800090
+
+- **Terreno 300m² na Praia do Pontal**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-na-praia-do-pontal-1486799625
+
+- **Terrenos comercial em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 4.000.000 | 📐 8615 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-comercial-em-santo-amaro-da-imperatriz-sc-1486798780
+
+- **Terreno a venda, 239m², Loteamento Parque Residencial Bela Vista, Bela**
+  - 💰 R$ 305.900 | 📐 239 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-239m-loteamento-parque-residencial-bela-vista-bela-vista-palhoca-s-1486797810
+
+- **Chacara completa em Rancho Queimado.**
+  - 💰 R$ 650.000 | 📐 109 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-completa-em-rancho-queimado-1486797156
+
+- **Lindo terreno em Santo Amaro**
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-em-santo-amaro-1466124813
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO NA PRAIA!  LOTE LOCALIZADO NA AV. P**
+  - 💰 R$ 84.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-na-praia-lote-localizado-na-av-porto-alegre-acesso-1486791867
+
+- **Terrenos parcelados na Praia Lagoinhas norte em Arroio do silva -SC**
+  - 💰 R$ 8.000 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-na-praia-lagoinhas-norte-em-arroio-do-silva-sc-1486791444
+
+- **Chácara Lages Sc**
+  - 💰 R$ 600.000 | 📐 25000 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-lages-sc-1486791376
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO NA PRAIA!**
+  - 💰 R$ 52.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-na-praia-1486791296
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO NA PRAIA!**
+  - 💰 R$ 58.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-na-praia-1486790966
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO NA PRAIA!  LOTE LOCALIZADO NA AV. P**
+  - 💰 R$ 86.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-na-praia-lote-localizado-na-av-porto-alegre-acesso-1486787546
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO NA PRAIA!**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-na-praia-1486787069
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO NA PRAIA!**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-na-praia-1486786660
+
+- **? OPORTUNIDADE NO CONDOMÍNIO BRISAS - TERRENO 150m² ?**
+  - 💰 R$ 185.000 | 📐 150 m²
+  - 📍 Praia João Rosa — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-no-condominio-brisas-terreno-150m-1486786236
+
+- **TERRENO EM ÓTIMA LOCALIZAÇÃO NA PRAIA!**
+  - 💰 R$ 66.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-otima-localizacao-na-praia-1486785189
+
+- **TERRENO FRENTE MAR EM ÓTIMA LOCALIZAÇÃO NA PRAIA!**
+  - 💰 R$ 76.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-em-otima-localizacao-na-praia-1486784881
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO NA PRAIA APENAS 550M DA PRAIA!**
+  - 💰 R$ 64.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-na-praia-apenas-550m-da-praia-1486784136
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO APENAS 550M DA PRAIA!**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-apenas-550m-da-praia-1486783937
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO NA PRAIA!**
+  - 💰 R$ 48.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-na-praia-1486783776
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO NA PRAIA APENAS 700M DA PRAIA!**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-na-praia-apenas-700m-da-praia-1486783462
+
+- **Sitio na invernadinha em Rancho Queimado - SC!**
+  - 💰 R$ 2.000.000 | 📐 63000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-na-invernadinha-em-rancho-queimado-sc-1486780276
+
+- **ÓTIMA OPORTUNIDADE DE INVESTIMENTO APENAS 400M DA PRAIA! LOTE LOCALIZA**
+  - 💰 R$ 68.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-investimento-apenas-400m-da-praia-lote-localizado-a-100m-da-av-sta-1486780273
+
+- **Sitio proximo de Rancho Queimado!**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-de-rancho-queimado-1486779217
+
+- **OPORTUNIDADE DE INVESTIMENTO! LOTE ESCRITURADO NA PRAIA!**
+  - 💰 R$ 48.000 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-lote-escriturado-na-praia-1486778620
+
+- **Sitio em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 380.000 | 📐 6000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-santo-amaro-da-imperatriz-sc-1486771868
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1486770712
+
+- **Belo sitio proximo de Rancho Queimado!**
+  - 💰 R$ 1.200.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-proximo-de-rancho-queimado-1486769993
+
+- **Terreno Centro Palhoça 360m 12x30 aceito carro**
+  - 💰 R$ 399.000 | 📐 360 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-centro-palhoca-360m-12x30-aceito-carro-1444902591
+
+- **TERRENO CONDOMÍNIO CAMINHO DO REI - GAROPABA**
+  - 💰 R$ 550.000 | 📐 1234 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-caminho-do-rei-garopaba-1486766533
+
+- **Terreno para venda tem 1500 metros quadrados em Sertão do Maruim - São**
+  - 💰 R$ 1.800.660 | 📐 1500 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-tem-1500-metros-quadrados-em-sertao-do-maruim-sao-jose-sc-1486756951
+
+- **Terreno a venda bairro Agronômica Florianópolis SC.**
+  - 💰 R$ 450.000 | 📐 379 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-agronomica-florianopolis-sc-1486754369
+
+- **TERRENO DE ESQUINA FRENTE MAR EM ÓTIMA LOCALIZAÇÃO NA PRAIA!**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-frente-mar-em-otima-localizacao-na-praia-1486785858
+
+- **Chácara diferenciada, tem açude e tem 4mil m2 - Balneário Gaivota - Ri**
+  - 💰 R$ 230.000 | 📐 4021 m²
+  - 📍 Rio Novo — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-balneario-gaivota-rio-novo-4021m2-RS230000/id-40592393/
+
+- **OPORTUNIDADE IMPERDÍVEL – APENAS R$ 195.000!    Casa no Jardim Ultrama**
+  - 💰 R$ 195.000 | 📐 100 m²
+  - 📍 Jardim Ultramar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-jardim-ultramar-600m2-RS195000/id-36579439/
+
