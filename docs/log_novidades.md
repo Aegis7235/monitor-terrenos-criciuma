@@ -44177,3 +44177,131 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-refugio-em-balneario-gaivota-1486575730
 
+
+## 🆕 25 novos anúncios — 18/03/2026 06:52
+
+- **Terreno em Condomínio fechado a venda Bela Vista Exclusive Residence**
+  - 💰 R$ 1.650.000 | 📐 870 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-a-venda-bela-vista-exclusive-residence-1486715853
+
+- **Terreno Condomínio Águas do Atlântico Balneário Rincão - SC**
+  - 💰 R$ 420.000 | 📐 480 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-aguas-do-atlantico-balneario-rincao-sc-1486715715
+
+- **Terreno em condomínio fechado Residencial Montebello**
+  - 💰 R$ 449.000 | 📐 590 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-residencial-montebello-1486715725
+
+- **Terreno a venda no Condomínio das Palmeiras em Içara com 800 m2**
+  - 💰 R$ 953.000 | 📐 800 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-das-palmeiras-em-icara-com-800-m2-1486715273
+
+- **TERRENO PRAIA ROSA DO MAR**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-rosa-do-mar-1486607632
+
+- **AMPLO TERRENO PARA LOTEAMENTO EM LAGUNA**
+  - 💰 R$ 450.000 | 📐 42108000 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-para-loteamento-em-laguna-1486696917
+
+- **Terreno a venda em Condominio Fechado Criciuma**
+  - 💰 R$ 265.000 | 📐 449 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-criciuma-1486693477
+
+- **TERRENO 6,7 HECTÁRES**
+  - 💰 R$ 2.500.000 | 📐 67 m²
+  - 📍 São Cristóvão — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-6-7-hectares-1486679665
+
+- **Chácara 2.000 m² A 2 min. do Centro - Alfredo Wagner codigo: 288850**
+  - 💰 R$ 450.000 | 📐 2000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-2-000-m-a-2-min-do-centro-alfredo-wagner-codigo-288850-1486674232
+
+- **Terreno de leilão em Centro / IMARUI / SC | Venda Direta Online**
+  - 💰 R$ 985.154 | 📐 715100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-centro-imarui-sc-venda-direta-online-1486658466
+
+- **Terreno à venda, 360 m² por R$ 1.150.000,00 - Praia da Barra - Garopab**
+  - 💰 R$ 1.150.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-1-150-000-00-praia-da-barra-garopaba-sc-1486645485
+
+- **Lote próximo ao centro de Alfredo Wagner**
+  - 💰 R$ 140.000 | 📐 450 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-proximo-ao-centro-de-alfredo-wagner-1486653017
+
+- **Chácara dos Sonhos com Lagoa e Nascente Natural! ?**
+  - 💰 R$ 430.000 | 📐 23000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-dos-sonhos-com-lagoa-e-nascente-natural-1486646990
+
+- **ÓTIMO TERRENO EM JAGUARUNA**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-em-jaguaruna-1486630935
+
+- **OPORTUNIDADE  4715M²**
+  - 💰 R$ 210.000 | 📐 4715 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-4715m-1453275777
+
+- **Terreno a venda Loteamento Tramontin em Urussanga Últimos Lotes Dispon**
+  - 💰 R$ 190.000 | 📐 360 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-tramontin-em-urussanga-ultimos-lotes-disponiveis-1486716344
+
+- **Terreno a venda em Condominio Fechado Residencial Solar dos Ipês**
+  - 💰 R$ 449.000 | 📐 650 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-residencial-solar-dos-ipes-1486716388
+
+- **Acqua Village Condomínio fechado no Balneario Rincão**
+  - 💰 R$ 380.000 | 📐 432 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/acqua-village-condominio-fechado-no-balneario-rincao-1486716357
+
+- **Lote Empresarial à Venda no Parque Empresarial  Margem da BR-101 | Tub**
+  - 💰 R$ 2.000.000 | 📐 2502 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-empresarial-a-venda-no-parque-empresarial-margem-da-br-101-tubarao-sc-1486716265
+
+- **Blue Lagoon condomínio fechado na Lagoa dos Esteves - Balneário Rincão**
+  - 💰 R$ 575.000 | 📐 556 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/blue-lagoon-condominio-fechado-na-lagoa-dos-esteves-balneario-rincao-sc-1486716014
+
+- **Terreno à venda por R$ 356.401 - Flores de Sal - Tijucas/SC**
+  - 💰 R$ 356.402 | 📐 260 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-por-r-356-401-flores-de-sal-tijucas-sc-1486718690
+
+- **Terreno à venda, 17154 m² por R$ 2.300.000,00 - Santa Isabel - Forquil**
+  - 💰 R$ 2.300.000 | 📐 17154 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-17154-m-por-r-2-300-000-00-santa-isabel-forquilhinha-sc-1486718133
+
+- **Terreno a venda em condomínio fechado em Criciúma Villagio Verde**
+  - 💰 R$ 545.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-em-criciuma-villagio-verde-1486716948
+
+- **Terreno Condominio Esmeralda Premium 800 metros quadrados em - Criciúm**
+  - 💰 R$ 854.000 | 📐 800 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-esmeralda-premium-800-metros-quadrados-em-criciuma-sc-1486716769
+
+- **Terreno a venda Condomínio Terraville**
+  - 💰 R$ 480.000 | 📐 567 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-condominio-terraville-1486716399
+
