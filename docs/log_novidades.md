@@ -46185,3 +46185,131 @@
   - 📍  — Sombrio
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sombrio-no-bairro-morretinho-1487075122
 
+
+## 🆕 25 novos anúncios — 19/03/2026 18:13
+
+- **Sítio Anitápolis SC**
+  - 💰 R$ 2.500.000 | 📐 85000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-anitapolis-sc-1487180220
+
+- **Sítio em Alfredo Wagner - Rio Lessa**
+  - 💰 R$ 1.950.000 | 📐 160000 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-rio-lessa-1487155964
+
+- **? Terreno rural para sítio ou chácara em Içara**
+  - 💰 R$ 150.000 | 📐 4000 m²
+  - 📍 Santa Bárbara — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-para-sitio-ou-chacara-em-icara-1487178666
+
+- **Belo Sitio em Santo Amaro da Imperatriz!**
+  - 💰 R$ 980.000 | 📐 11000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-santo-amaro-da-imperatriz-1487177166
+
+- **Sitio em Águas Mornas - SC**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-sc-1487175678
+
+- **Sitio em Águas Mornas - SC**
+  - 💰 R$ 220.000 | 📐 37000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-sc-1487175361
+
+- **Imovel na geral do Aririú em Palhoça - SC**
+  - 💰 R$ 8.000.000 | 📐 3400 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-na-geral-do-aririu-em-palhoca-sc-1487174686
+
+- **Lotes em Araranguá com parcelas em torno de 550 reais**
+  - 💰 R$ 6.636 | 📐 300 m²
+  - 📍 Polícia Rodoviária — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-em-ararangua-com-parcelas-em-torno-de-550-reais-1487172829
+
+- **Sitio completo!**
+  - 💰 R$ 2.800.000 | 📐 70000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-completo-1487170337
+
+- **Terreno em Bela Vista - Palhoça**
+  - 💰 R$ 170.000 | 📐 100 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-bela-vista-palhoca-1487169547
+
+- **Terreno Exclusivo em Condomínio Fechado  Projeto Aprovado**
+  - 💰 R$ 750.000 | 📐 489 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-em-condominio-fechado-projeto-aprovado-1487157183
+
+- **Terreno com casa construída no Jardim Atlantico, 971M2, próximo ao NOV**
+  - 💰 R$ 2.600.000 | 📐 971 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-construida-no-jardim-atlantico-971m2-proximo-ao-novo-estreito-1487150901
+
+- **Terreno com 300m² a venda em Barreiros, São José/SC!**
+  - 💰 R$ 480.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-300m-a-venda-em-barreiros-sao-jose-sc-1487138603
+
+- **Terreno com 451,27 m² na Pedra Branca, Palhoça**
+  - 💰 R$ 790.000 | 📐 451 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-451-27-m-na-pedra-branca-palhoca-1487135934
+
+- **Terreno em Condomínio para Venda em Florianópolis, Vargem Grande**
+  - 💰 R$ 485.000 | 📐 476 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-para-venda-em-florianopolis-vargem-grande-1487129275
+
+- **Terreno - Enseada de Brito**
+  - 💰 R$ 800.000 | 📐 876 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-enseada-de-brito-1480258062
+
+- **Oportunidade Imperdível Lote**
+  - 💰 R$ 195.000 | 📐 147 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-imperdivel-lote-1487112256
+
+- **Terreno em localização diferenciada, no Rio Tavares**
+  - 💰 R$ 465.000 | 📐 480 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-localizacao-diferenciada-no-rio-tavares-1487110727
+
+- **Terrenos na Pedra branca com 960m2 de esquina**
+  - 💰 R$ 1.450.000 | 📐 986 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-na-pedra-branca-com-960m2-de-esquina-418517077
+
+- **OPORTUNIDADE abaixo do valor: Terreno Condomínio Águas do Atlântico co**
+  - 💰 R$ 365.000 | 📐 420 m²
+  - 📍 Centro — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-abaixo-do-valor-terreno-condominio-aguas-do-atlantico-com-fundos-lago-rincao-1487085154
+
+- **TERRENO/CASA PARA COMÉRCIO**
+  - 💰 R$ 2.200.000 | 📐 450 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-casa-para-comercio-1486597844
+
+- **Terreno no Rio Caveiras - Biguaçu**
+  - 💰 R$ 1.350.000 | 📐 720 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-caveiras-biguacu-1487077873
+
+- **Terreno à venda em Sombrio no bairro Morretinho**
+  - 💰 R$ 280.000 | 📐 459 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sombrio-no-bairro-morretinho-1487075279
+
+- **Chácara com 3 dormitórios à venda, 3440 m²  - Morro dos Conventos - Ar**
+  - 💰 R$ 750.000 | 📐 200 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-ararangua-morro-dos-conventos-3440m2-RS750000/id-40635628/
+
+- **Chácara / sítio à venda na Riverside, Zona Rural, Passo de Torres**
+  - 💰 R$ 1.890.000 | 📐 7524 m²
+  - 📍 Zona Rural — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-passo-de-torres-zona-rural-20m2-RS1890000/id-40632599/
+
