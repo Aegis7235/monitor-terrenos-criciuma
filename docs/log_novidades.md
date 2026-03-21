@@ -48732,3 +48732,106 @@
   - 📍 Forquilhinha — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-jose-r-301-4-m-1487686223
 
+
+## 🆕 20 novos anúncios — 21/03/2026 22:00
+
+- **vendo lindo terreno em condominio fechado**
+  - 💰 R$ 350.000 | 📐 1500 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lindo-terreno-em-condominio-fechado-1487853632
+
+- **Lote em Geral Praia do Rosa - Araçatuba - Imbituba/SC**
+  - 💰 R$ 535.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-geral-praia-do-rosa-aracatuba-imbituba-sc-1487851292
+
+- **Lote em Rua Salomão De Souza - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 650.000 | 📐 850 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-salomao-de-souza-praia-do-rosa-imbituba-sc-1487851075
+
+- **Lote em Rua Do Pico Da Tribo - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 850.000 | 📐 818 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-do-pico-da-tribo-praia-do-rosa-imbituba-sc-1487850805
+
+- **Chácara em Rua Jeremias José do Nascimento - Mirim - Imbituba/SC**
+  - 💰 R$ 490.000 | 📐 120 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-rua-jeremias-jose-do-nascimento-mirim-imbituba-sc-1487850480
+
+- **Sítio São Bento  Um Refúgio Natural com Estrutura Completa e Vocação p**
+  - 💰 R$ 660.000 | 📐 180 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-sao-bento-um-refugio-natural-com-estrutura-completa-e-vocacao-para-grandes-projetos-1487849285
+
+- **TERRENO  COM RIACHO PRÓXIMO  AO CENTRO  Nova Trento/SC**
+  - 💰 R$ 190.000 | 📐 1500 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-riacho-proximo-ao-centro-nova-trento-sc-1470561655
+
+- **SÍTIO  A VENDA  em MAJOR GERCINO SC**
+  - 💰 R$ 380.000 | 📐 1000 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-major-gercino-sc-1470557138
+
+- **Terreno 472m2 - Frente João Gualberto**
+  - 💰 R$ 835.000 | 📐 472 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-472m2-frente-joao-gualberto-1487843789
+
+- **Imóvel para venda tem 24000 metros quadrados em Boa Vista - Rancho Que**
+  - 💰 R$ 295.000 | 📐 24000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-24000-metros-quadrados-em-boa-vista-rancho-queimado-sc-1487836831
+
+- **Vendo terreno**
+  - 💰 R$ 90.000 | 📐 ? m²
+  - 📍  — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1487826803
+
+- **Chácara com 13 mil m2 em condomínio rural, em Paulo Lopes/Garopaba**
+  - 💰 R$ 870.000 | 📐 100 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-13-mil-m2-em-condominio-rural-em-paulo-lopes-garopaba-1487810713
+
+- **Terreno à Venda em Laguna - Próximo ao Mar!**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-laguna-proximo-ao-mar-1487809080
+
+- **TERRENO DE 600M² LOCALIZADO NO BAIRRO BARREIROS EM SÃO JOSÉ/SC**
+  - 💰 R$ 850.000 | 📐 599 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-600m-localizado-no-bairro-barreiros-em-sao-jose-sc-1487799525
+
+- **Terrenos a venda na Bella Torres SC**
+  - 💰 R$ 595.000 | 📐 1080 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-na-bella-torres-sc-1487794409
+
+- **Terreno bom viver**
+  - 💰 R$ 80.000 | 📐 66 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bom-viver-1487793434
+
+- **Excelente oportunidade de adquirir um terreno 800 metros da praia**
+  - 💰 R$ 780.000 | 📐 367 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-de-adquirir-um-terreno-800-metros-da-praia-1487774121
+
+- **Vendo terreno de esquina em Içara - próximo ao santuário**
+  - 💰 R$ 185.000 | 📐 ? m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-de-esquina-em-icara-proximo-ao-santuario-1487770303
+
+- **Casa para Venda em Santa Rosa do Sul, São Sebastião, 2 dormitórios, 1 **
+  - 💰 R$ 290.000 | 📐 48 m²
+  - 📍 São Sebastião — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-santa-rosa-do-sul-sao-sebastiao-354m2-RS290000/id-40711579/
+
+- **Casa para Venda em Santa Rosa do Sul, São Sebastião, 2 dormitórios, 1 **
+  - 💰 R$ 330.000 | 📐 55 m²
+  - 📍 São Sebastião — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-santa-rosa-do-sul-sao-sebastiao-364m2-RS330000/id-40711581/
+
