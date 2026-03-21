@@ -48624,3 +48624,111 @@
 
 ## ✅ Sem novidades — 21/03/2026 10:06
 
+
+## 🆕 21 novos anúncios — 21/03/2026 16:02
+
+- **Lote para aluguel, Serraria - São José/SC**
+  - 💰 R$ 4.500 | 📐 1520 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-para-aluguel-serraria-sao-jose-sc-1487767019
+
+- **Área com 3.900m² em Jurerê - Florianópolis/SC**
+  - 💰 R$ 990.000 | 📐 3900 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-com-3-900m-em-jurere-florianopolis-sc-1436676233
+
+- **Terreno na Beira da Lagoa, Ponta da Barra, Laguna/SC.**
+  - 💰 R$ 600.000 | 📐 800 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-beira-da-lagoa-ponta-da-barra-laguna-sc-1487752466
+
+- **GUARDA TABULEIRO-387m2 formidável Lote de esquina! Ideal p/2 sobrados**
+  - 💰 R$ 229.000 | 📐 387 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/guarda-tabuleiro-387m2-formidavel-lote-de-esquina-ideal-p-2-sobrados-1487737340
+
+- **Terreno em tijucas**
+  - 💰 R$ 240.000 | 📐 500 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-tijucas-1487740373
+
+- **Vendo Lote de esquina, 380m quadrados no Parque Novo Rincão.**
+  - 💰 R$ 130.000 | 📐 380 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-de-esquina-380m-quadrados-no-parque-novo-rincao-1487739880
+
+- **Vendo terreno em Tubarão**
+  - 💰 R$ 199.900 | 📐 800000 m²
+  - 📍 São Cristóvão — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-tubarao-1487739029
+
+- **Terreno de 1 hectare com Galvão por R$ 280.000,00**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1-hectare-com-galvao-por-r-280-000-00-1487738639
+
+- **Lote ou Sobrado Campeche com Escritura Publica e Alvará**
+  - 💰 R$ 1.199.911 | 📐 ? m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-ou-sobrado-campeche-com-escritura-publica-e-alvara-1474728063
+
+- **Terreno Loteamento Novo Horizonte - Forquilhas - São José**
+  - 💰 R$ 250.000 | 📐 252 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-novo-horizonte-forquilhas-sao-jose-1487723662
+
+- **Vendo terreno no rio vermelho**
+  - 💰 R$ 180.000 | 📐 ? m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-rio-vermelho-1487722609
+
+- **Terreno Loteamento Novo Horizonte - Forquilhas - São José**
+  - 💰 R$ 230.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-novo-horizonte-forquilhas-sao-jose-1487722488
+
+- **VendoTerreno no bairro serraria em São José/SC.**
+  - 💰 R$ 348.000 | 📐 360 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendoterreno-no-bairro-serraria-em-sao-jose-sc-1327499815
+
+- **Vendo terrenos em Governador Celso Ramos-SC - 360 m2 de área.**
+  - 💰 R$ 159.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terrenos-em-governador-celso-ramos-sc-360-m2-de-area-1392998075
+
+- **Terreno em forquilhas**
+  - 💰 R$ 70.000 | 📐 1200 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-forquilhas-1487706305
+
+- **Terreno à venda, 1035 m² - Campeche - Florianópolis/SC**
+  - 💰 R$ 3.200.000 | 📐 97 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1035-m-campeche-florianopolis-sc-1487699919
+
+- **OPORTUNIDADE IMPERDÍVEL  TERRENO COMERCIAL com 900m² no Deltaville Bus**
+  - 💰 R$ 890.000 | 📐 900 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-imperdivel-terreno-comercial-com-900m-no-deltaville-business-biguacu-1487695194
+
+- **Terreno com ESCRITURA PÚBLICA - Campeche**
+  - 💰 R$ 1.350.000 | 📐 555 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-campeche-1487694780
+
+- **Terreno - CAMPECHE**
+  - 💰 R$ 430.000 | 📐 400 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-1487694620
+
+- **Terreno no Condomínio Acqua - Deltaville | Fundo Muro**
+  - 💰 R$ 290.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-acqua-deltaville-fundo-muro-1487689387
+
+- **Terreno à Venda em São José - R$ 301,4 m²**
+  - 💰 R$ 2.500 | 📐 301 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-jose-r-301-4-m-1487686223
+
