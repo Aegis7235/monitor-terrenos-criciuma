@@ -48974,3 +48974,281 @@
   - 📍  — Laguna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-1487966404
 
+
+## 🆕 55 novos anúncios — 22/03/2026 22:04
+
+- **TROCO/VENDO] Terreno 396m² c/ Alicerce e Edícula -  (Pachecos)**
+  - 💰 R$ 280.000 | 📐 396 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/troco-vendo-terreno-396m-c-alicerce-e-edicula--pachecos-1488027666
+
+- **Terreno ótimo investimento**
+  - 💰 R$ 60.000 | 📐 280 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-otimo-investimento-1488026712
+
+- **Chácara a venda Santo Amaro da Imperatriz**
+  - 💰 R$ 550.000 | 📐 3000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-santo-amaro-da-imperatriz-1488023301
+
+- **Ótimo lote ao lado da praia da praia do Tomé,  Barra do aririú Palhoça**
+  - 💰 R$ 280.000 | 📐 367 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-lote-ao-lado-da-praia-da-praia-do-tome-barra-do-aririu-palhoca-1488022929
+
+- **Terreno Lagoinha Norte - Arroio do Silva SC**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lagoinha-norte-arroio-do-silva-sc-1488021010
+
+- **Terreno para Sítio  em Águas mornas Lourdes sc**
+  - 💰 R$ 90.000 | 📐 390 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-em-aguas-mornas-lourdes-sc-1488020633
+
+- **Vendo sítio Angelina com cachoeira**
+  - 💰 R$ 350.000 | 📐 90000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-angelina-com-cachoeira-1488006639
+
+- **Terreno à venda - a partir de 338 m² | Local tranquilo e com linda vis**
+  - 💰 R$ 160.000 | 📐 1015 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-a-partir-de-338-m-local-tranquilo-e-com-linda-vista-1488017240
+
+- **Vendo terreno de barbada no Aririu Formiga.**
+  - 💰 R$ 150.000 | 📐 260 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-de-barbada-no-aririu-formiga-1488015867
+
+- **Sitio a venda Cachoeira, Praia Grande - SC**
+  - 💰 R$ 450.000 | 📐 10138 m²
+  - 📍 Cachoeira de Fátima — Praia Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-cachoeira-praia-grande-sc-1488014171
+
+- **Terreno a Venda Criciúma**
+  - 💰 R$ 150.000 | 📐 435 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-criciuma-1488011670
+
+- **Terreno Biguaçu px BR**
+  - 💰 R$ 350.000 | 📐 2033 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-biguacu-px-br-1488008498
+
+- **Terreno de 837 m² no bairro Fundos, Biguaçu/SC.**
+  - 💰 R$ 450.000 | 📐 837 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-837-m-no-bairro-fundos-biguacu-sc-1487992065
+
+- **Venda ou permuta terreno tijucas sc**
+  - 💰 R$ 550.000 | 📐 450 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-ou-permuta-terreno-tijucas-sc-1487991351
+
+- **Vendo terreno 100.00 em Tijuquinhas Biguaçu próximo ao mercado livre !**
+  - 💰 R$ 100.000 | 📐 36 m²
+  - 📍 Cachoeiras (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-100-00-em-tijuquinhas-biguacu-proximo-ao-mercado-livre-1487981433
+
+- **Imóvel para venda tem 20000 metros quadrados em Distrito de Taquaras -**
+  - 💰 R$ 195.000 | 📐 20000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-20000-metros-quadrados-em-distrito-de-taquaras-rancho-queimado-s-1487980674
+
+- **Área 5.800m² perto do mar | Ideal p/ chalés ou sítio | Praia de Fora -**
+  - 💰 R$ 1.500.000 | 📐 5819 m²
+  - 📍 Praia de Fora — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-5-800m-perto-do-mar-ideal-p-chales-ou-sitio-praia-de-fora-palhoca-1487977312
+
+- **Venda de terreno**
+  - 💰 R$ 2.600.000 | 📐 900 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-terreno-1487971173
+
+- **SÍTIO EM ANGELINA.**
+  - 💰 R$ 450.000 | 📐 100000000 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-angelina-1487955287
+
+- **Terreno Rural (20.000m²) à Venda - Alto Garcia, Angelina (SC)**
+  - 💰 R$ 495.000 | 📐 20000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-20-000m-a-venda-alto-garcia-angelina-sc-1487970589
+
+- **Área Exclusiva - 82.123m² à venda | Recanto da Ominha**
+  - 💰 R$ 1.500.000 | 📐 82123 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-exclusiva-82-123m-a-venda-recanto-da-ominha-1487958750
+
+- **Vendo terreno**
+  - 💰 R$ 420.000 | 📐 360 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1487954682
+
+- **VENDO TERRENO EM AREIAS**
+  - 💰 R$ 285.000 | 📐 360 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-areias-1487947395
+
+- **Terreno de Esquina**
+  - 💰 R$ 250.000 | 📐 440 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-1435559162
+
+- **Terreno à venda, no Bairro Bela Vista, Palhoça-SC, com , sendo , com**
+  - 💰 R$ 375.000 | 📐 611 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-bela-vista-palhoca-sc-com-sendo-com-1487935647
+
+- **Vendo terrenos**
+  - 💰 R$ 150.000 | 📐 420 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terrenos-1468253282
+
+- **TERRENO COMERCIAL lot. G. do Tabuleiro  G. Cubatão**
+  - 💰 R$ 326.000 | 📐 552 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-lot-g-do-tabuleiro-g-cubatao-1315391911
+
+- **Terreno à venda em Lagoa da Conceição, Florianópolis | SC**
+  - 💰 R$ 999.000 | 📐 303 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-lagoa-da-conceicao-florianopolis-sc-1433394117
+
+- **Sítio à venda no bairro Aratingauba - Imaruí/SC**
+  - 💰 R$ 700.000 | 📐 200000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-aratingauba-imarui-sc-1323374270
+
+- **Fazenda à venda, 300000 m² por R$ 2.300.000,00 - Aratingauba - Imaruí/**
+  - 💰 R$ 2.300.000 | 📐 300000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-a-venda-300000-m-por-r-2-300-000-00-aratingauba-imarui-sc-1441573220
+
+- **Área rural 16 hectares  Laranjal, Imaruí/SC  com escritura pública**
+  - 💰 R$ 1.090.000 | 📐 16000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-16-hectares-laranjal-imarui-sc-com-escritura-publica-1455398771
+
+- **Terreno à venda em Imaruí-SC, bairro Rio D'una, com 250.000m² de área!**
+  - 💰 R$ 1.300.000 | 📐 250000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imarui-sc-bairro-rio-d-una-com-250-000m-de-area-oportunidade-unica-1392195680
+
+- **SÍTIO - GRANDE OPORTUNIDADE!!!**
+  - 💰 R$ 1.499.000 | 📐 62000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-grande-oportunidade-1472097743
+
+- **Sítio à venda, 100000 m² por R$ 750.000,00 - Interior - Imaruí/SC**
+  - 💰 R$ 750.000 | 📐 200 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-100000-m-por-r-750-000-00-interior-imarui-sc-1290362947
+
+- **Sítio com 589000m² com rio e uma grande Cachoeira**
+  - 💰 R$ 2.500.000 | 📐 589000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-589000m-com-rio-e-uma-grande-cachoeira-1221525340
+
+- **Terreno à venda, 52000 m² por R$ 500.000,00 - Ribeirão de Imaruí - Ima**
+  - 💰 R$ 500.000 | 📐 52000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-52000-m-por-r-500-000-00-ribeirao-de-imarui-imarui-sc-1443583643
+
+- **Fazenda à venda, 218000 m² por R$ 990.000,00 - Taquaraçutuba - Imaruí/**
+  - 💰 R$ 990.000 | 📐 218000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-a-venda-218000-m-por-r-990-000-00-taquaracutuba-imarui-sc-1333698883
+
+- **terreno frente br e fundos mar em tijucas**
+  - 💰 R$ 133.000.000 | 📐 2660000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-br-e-fundos-mar-em-tijucas-1470290791
+
+- **Belíssimo Sítio de 149.421.00m2 - Região do Sambaqui, Imaruí - SC**
+  - 💰 R$ 760.000 | 📐 149421 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belissimo-sitio-de-149-421-00m2-regiao-do-sambaqui-imarui-sc-1382731809
+
+- **Fazenda com 1 dormitório à venda, 200000 m² por R$ 650.000,00 - Aratin**
+  - 💰 R$ 650.000 | 📐 200 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-com-1-dormitorio-a-venda-200000-m-por-r-650-000-00-aratingauba-imarui-sc-1274201801
+
+- **Sítio em Ribeirão de Cangueri, Imaruí/SC**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-ribeirao-de-cangueri-imarui-sc-1456972739
+
+- **Sítio Encantador à Venda em Imaruí | 1.364 m² | Casa Ampla e Desocupad**
+  - 💰 R$ 322.000 | 📐 100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-encantador-a-venda-em-imarui-1-364-m-casa-ampla-e-desocupada-1458855544
+
+- **Fazenda à venda, 1234170 m² por R$ 30.850.000,00 - Paulo Lopes - Paulo**
+  - 💰 R$ 30.850.000 | 📐 1234170 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-a-venda-1234170-m-por-r-30-850-000-00-paulo-lopes-paulo-lopes-sc-1451134322
+
+- **Fazenda à venda, 150000 m² por R$ 650.000,00 - Interior - Imaruí/SC**
+  - 💰 R$ 650.000 | 📐 150000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-a-venda-150000-m-por-r-650-000-00-interior-imarui-sc-1294726437
+
+- **Fazenda de 7 Hectares - Fazenda São Paulo, Imaruí/SC**
+  - 💰 R$ 980.000 | 📐 50 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-de-7-hectares-fazenda-sao-paulo-imarui-sc-1441161961
+
+- **Sítio de 10 Hectares com linda vista para a Lagoa. Imaruí - SC**
+  - 💰 R$ 580.000 | 📐 100000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-10-hectares-com-linda-vista-para-a-lagoa-imarui-sc-1447898419
+
+- **Sítio para Venda em Paulo Lopes, Bom Retiro, 2 dormitórios, 1 banheiro**
+  - 💰 R$ 650.000 | 📐 70 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-paulo-lopes-bom-retiro-2-dormitorios-1-banheiro-1-vaga-1391903446
+
+- **Sítio à venda, 218000 m² por R$ 990.000,00 - Imaruí - Imaruí/SC**
+  - 💰 R$ 990.000 | 📐 218000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-218000-m-por-r-990-000-00-imarui-imarui-sc-1333720617
+
+- **Sítio à venda, 150000 m² por R$ 650.000,00 - Taquaraçutuba - Imaruí/SC**
+  - 💰 R$ 650.000 | 📐 150000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-150000-m-por-r-650-000-00-taquaracutuba-imarui-sc-1333700454
+
+- **Sítio / Chácara para Venda em Paulo Lopes, 2 dormitórios, 1 banheiro**
+  - 💰 R$ 320.000 | 📐 60 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-chacara-para-venda-em-paulo-lopes-2-dormitorios-1-banheiro-1430100789
+
+- **Fazenda para Venda em Imaruí, Aratingauba**
+  - 💰 R$ 1.500.000 | 📐 490000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-para-venda-em-imarui-aratingauba-1401579381
+
+- **Excelente oportunidade de investimento em um terreno de 5018**
+  - 💰 R$ 320.000 | 📐 5018 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-de-investimento-em-um-terreno-de-5018-1418790605
+
+- **Fazenda à venda, 170000 m² por R$ 950.000,00 - Taquaraçutuba - Imaruí/**
+  - 💰 R$ 950.000 | 📐 170000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-a-venda-170000-m-por-r-950-000-00-taquaracutuba-imarui-sc-1333182380
+
+- **Sítio Exclusivo à Venda em Imaruí/SC Natureza, sossego absoluto e exce**
+  - 💰 R$ 890.000 | 📐 60000 m²
+  - 📍 Rio D'Una — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-exclusivo-a-venda-em-imarui-sc-natureza-sossego-absoluto-e-excelente-oportunidade-d-1415506192
+
+- **Chácara a venda em Canelinha**
+  - 💰 R$ 200.000 | 📐 ? m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-em-canelinha-1454737275
+
