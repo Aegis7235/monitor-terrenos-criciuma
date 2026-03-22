@@ -48931,3 +48931,46 @@
 
 ## ✅ Sem novidades — 22/03/2026 10:07
 
+
+## 🆕 8 novos anúncios — 22/03/2026 15:59
+
+- **? Terreno de esquina no centro de Urussanga - Alto potencial construti**
+  - 💰 R$ 400.000 | 📐 750 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-centro-de-urussanga-alto-potencial-construtivo-1487947375
+
+- **Terreno Frente BR**
+  - 💰 R$ 8.000.000 | 📐 30969 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-br-1487942806
+
+- **Terreno Laranjal a Venda**
+  - 💰 R$ 50.000 | 📐 ? m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-laranjal-a-venda-1487937980
+
+- **Terreno com Vista para os Soldados Sebold, -água e eletricidade-**
+  - 💰 R$ 2.500.000 | 📐 ? m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-os-soldados-sebold-agua-e-eletricidade-1487927136
+
+- **Terreno com Vista para os Soldados Sebold**
+  - 💰 R$ 2.500.000 | 📐 ? m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-os-soldados-sebold-1487926649
+
+- **Terreno em balneário gaivota bairro tropical**
+  - 💰 R$ 55.000 | 📐 ? m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-gaivota-bairro-tropical-1487917790
+
+- **Terreno 500m2 AHU em frente ao McDonalds**
+  - 💰 R$ 3.900 | 📐 500 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-500m2-ahu-em-frente-ao-mcdonalds-1487334404
+
+- **Terreno em imbituba**
+  - 💰 R$ 90.000 | 📐 220 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-1487966404
+
