@@ -48835,3 +48835,96 @@
   - 📍 São Sebastião — Santa Rosa do Sul
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-santa-rosa-do-sul-sao-sebastiao-364m2-RS330000/id-40711581/
 
+
+## 🆕 18 novos anúncios — 22/03/2026 06:17
+
+- **SÍTIO À VENDA EM RANCHO QUEIMADO/SC**
+  - 💰 R$ 550.000 | 📐 60 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-venda-em-rancho-queimado-sc-1487906700
+
+- **Exclusivo Loteamento com Apenas 8 Lotes | Alto Padrão a 6km da Praia d**
+  - 💰 R$ 470.160 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/exclusivo-loteamento-com-apenas-8-lotes-alto-padrao-a-6km-da-praia-de-garopaba-1487904016
+
+- **CHÁCARA 2.000m² A 2 MIN DO CENTRO - ALFREDO WAGNER POR R$ 450.000**
+  - 💰 R$ 450.000 | 📐 200 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-2-000m-a-2-min-do-centro-alfredo-wagner-por-r-450-000-1487900367
+
+- **Chácara com 13 mil m2 em condomínio rural, em Paulo Lopes/Garopaba**
+  - 💰 R$ 870.000 | 📐 100 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-13-mil-m2-em-condominio-rural-em-paulo-lopes-garopaba-1487898691
+
+- **TERRENO COM 46.000 m² COM LINDA VISTA E DUAS NASCENTES... OPORTUNIDADE**
+  - 💰 R$ 140.000 | 📐 46000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-46-000-m-com-linda-vista-e-duas-nascentes-oportunidade-para-investidores-1487890911
+
+- **Vendo lote/ terreno de 360 m² plano no bairro Ipiranga- Sao Jose- Pron**
+  - 💰 R$ 288.000 | 📐 360 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-terreno-de-360-m-plano-no-bairro-ipiranga-sao-jose-pronto-para-construir-1487890046
+
+- **Terreno à venda, 418 m² por R$ 450.000,00 - Barra do Aririú - Palhoça/**
+  - 💰 R$ 450.000 | 📐 418 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-418-m-por-r-450-000-00-barra-do-aririu-palhoca-sc-765269922
+
+- **Terreno 398m² ao lado da BR-101, ideal para galpão**
+  - 💰 R$ 600.000 | 📐 398 m²
+  - 📍 Revoredo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-398m-ao-lado-da-br-101-ideal-para-galpao-1487888154
+
+- **Terreno em Balneário São Miguel - Biguaçu**
+  - 💰 R$ 280.000 | 📐 382 m²
+  - 📍 São Miguel (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-sao-miguel-biguacu-1487879476
+
+- **? Oportunidade! Terreno grande em Imaruí - 1.900m² por R$100 mil**
+  - 💰 R$ 100.000 | 📐 1949 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-grande-em-imarui-1-900m-por-r-100-mil-1487878032
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 1.500.000 | 📐 722 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1487871280
+
+- **Terreno para Venda em Florianópolis, Pântano do Sul**
+  - 💰 R$ 1.500.000 | 📐 480 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1487871212
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 1.500.000 | 📐 722 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1487871041
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 1.700.000 | 📐 722 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1487871042
+
+- **Terreno para Venda em Florianópolis, Ratones**
+  - 💰 R$ 2.500.000 | 📐 5280 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1487871033
+
+- **Terreno para Venda em Florianópolis, Coloninha**
+  - 💰 R$ 600.000 | 📐 240 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-coloninha-1487871018
+
+- **Chácara 520mts terreno com fundamento para casa de dois pisos**
+  - 💰 R$ 170.000 | 📐 520 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-520mts-terreno-com-fundamento-para-casa-de-dois-pisos-1487867673
+
+- **Terreno na lagoa**
+  - 💰 R$ 180.000 | 📐 429 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-lagoa-1487865736
+
