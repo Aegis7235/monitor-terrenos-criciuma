@@ -49252,3 +49252,71 @@
   - 📍  — Canelinha
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-em-canelinha-1454737275
 
+
+## 🆕 13 novos anúncios — 23/03/2026 07:03
+
+- **Terreno à venda, 450 m² por R$ 955.000,00 - Campeche - Florianópolis/S**
+  - 💰 R$ 955.000 | 📐 450 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-955-000-00-campeche-florianopolis-sc-1488103153
+
+- **Sitio - 2 dormitórios - localizado em Tijucas / Bairro Oliveira REF: D**
+  - 💰 R$ 573.000 | 📐 36 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-2-dormitorios-localizado-em-tijucas-bairro-oliveira-ref-dw620491-1488102633
+
+- **Terreno - localizado em Tijucas / Universitário REF: DW620492**
+  - 💰 R$ 900.000 | 📐 566 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-em-tijucas-universitario-ref-dw620492-1488102560
+
+- **Rancho Queimado: Condomínio com Infraestrutura Completa e Instância de**
+  - 💰 R$ 300.000 | 📐 1301 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/rancho-queimado-condominio-com-infraestrutura-completa-e-instancia-de-agua-mineral-santa-1488083227
+
+- **TERRENO À VENDA EM BIGUAÇU  LOTEAMENTO ALTOS DO JARDIM codigo: 290229**
+  - 💰 R$ 270.000 | 📐 375 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-em-biguacu-loteamento-altos-do-jardim-codigo-290229-1488083228
+
+- **Chácara - Dona Lucinda**
+  - 💰 R$ 1.000.000 | 📐 99 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-dona-lucinda-1488082270
+
+- **Terreno em Praia para Venda em Florianópolis, Daniela**
+  - 💰 R$ 860.000 | 📐 360 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-praia-para-venda-em-florianopolis-daniela-1488080010
+
+- **OPORTUNIDADE UNICA! TERRENO PLANO 300M² - PERTO DO MAR - BALN. ARROIO **
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-plano-300m-perto-do-mar-baln-arroio-silva-1488057629
+
+- **Vendo terreno obra inacabada**
+  - 💰 R$ 500.000 | 📐 1200 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-obra-inacabada-1488048539
+
+- **Vendo terreno praia sonho 800 metros mar**
+  - 💰 R$ 300.000 | 📐 350 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-praia-sonho-800-metros-mar-1488042833
+
+- **O Melhor Terreno Deltaville Montenegro Marine 360m2**
+  - 💰 R$ 420.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/o-melhor-terreno-deltaville-montenegro-marine-360m2-1488037200
+
+- **Terreno Centro de Águas Mornas**
+  - 💰 R$ 350.000 | 📐 346 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-centro-de-aguas-mornas-1488034063
+
+- **Casa com 2 quartos à venda na Rua Ida Lino Rosso, 395, Vila Nova, Içar**
+  - 💰 R$ 690.000 | 📐 200 m²
+  - 📍 Vila Nova — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-vila-nova-390m2-RS690000/id-33919393/
+
