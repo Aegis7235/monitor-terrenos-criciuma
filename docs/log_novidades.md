@@ -50878,3 +50878,101 @@
   - 📍 Pinheira — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-na-pinheira-1488430607
 
+
+## 🆕 19 novos anúncios — 24/03/2026 21:52
+
+- **Terreno 151m² em Condomínio - Beira Rio**
+  - 💰 R$ 230.000 | 📐 151 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-151m-em-condominio-beira-rio-1488611408
+
+- **Terreno no Blue Clube - Beira Rio**
+  - 💰 R$ 230.000 | 📐 151 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-blue-clube-beira-rio-1488611310
+
+- **Terreno**
+  - 💰 R$ 30.000 | 📐 645 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1488605022
+
+- **Terreno (Em rua) à Venda, 4935m² - Bairro Milanese em Criciúma**
+  - 💰 R$ 750.000 | 📐 4935 m²
+  - 📍 Milanese — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-rua-a-venda-4935m-bairro-milanese-em-criciuma-1488598849
+
+- **Sítio com 3 quartos à Venda, 400 m² em Criciúma/SC**
+  - 💰 R$ 2.800.000 | 📐 400 m²
+  - 📍 Capão Bonito — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-3-quartos-a-venda-400-m-em-criciuma-sc-1488598807
+
+- **Terreno ( Em loteamento) à Venda, 390m² - Bairro LINHA TIGRE em Cocal **
+  - 💰 R$ 205.000 | 📐 390 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-390m-bairro-linha-tigre-em-cocal-do-sul-1488598303
+
+- **Terreno para construir prédio de 6 andares no loteamento Real Parque- **
+  - 💰 R$ 480.000 | 📐 459 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-construir-predio-de-6-andares-no-loteamento-real-parque-florianopolis-sc-1488586622
+
+- **Terreno com Escritura Pública para venda medindo 1.276,67m2 no bairro **
+  - 💰 R$ 1.800.000 | 📐 1276 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-para-venda-medindo-1-276-67m2-no-bairro-village-em-imbituba-1488579473
+
+- **Vendo ou permuto sitio( imarui)**
+  - 💰 R$ 599.000 | 📐 30000 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-permuto-sitio-imarui-1445528959
+
+- **Oportunidade!!Terreno ao lado da Br 101. A poucos minutos da Guarda do**
+  - 💰 R$ 63.000 | 📐 440 m²
+  - 📍 Três Barras — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-ao-lado-da-br-101-a-poucos-minutos-da-guarda-do-embau-investimento-1488580166
+
+- **TERRENO NA ENCRUZILHADA**
+  - 💰 R$ 190.000 | 📐 350 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-encruzilhada-1488576356
+
+- **Terreno de Esquina à Venda - Alto Arroio | Imbituba-SC**
+  - 💰 R$ 639.000 | 📐 730 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-alto-arroio-imbituba-sc-1488573864
+
+- **BROGNOLI VENDE - TERRENO COM 450M2 - JURERÊ INTERNACIONAL**
+  - 💰 R$ 3.300.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-terreno-com-450m2-jurere-internacional-1488572126
+
+- **Terreno Guaiuba**
+  - 💰 R$ 150.000 | 📐 384 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-guaiuba-1488571621
+
+- **Balneário Esplanada. Fora da área da baleia frança**
+  - 💰 R$ 130.000 | 📐 375 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/balneario-esplanada-fora-da-area-da-baleia-franca-1488560820
+
+- **Imóvel para venda com 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1488543902
+
+- **OPORTUNIDADE TERRENO EM BIGUAÇU**
+  - 💰 R$ 360.000 | 📐 300000 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-biguacu-1488543467
+
+- **Terreno a Venda bairro Araçatuba - Imbituba -SC**
+  - 💰 R$ 189.000 | 📐 315 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-aracatuba-imbituba-sc-1488534940
+
+- **Terreno a 330mt do mar no loteamento Areias Claras**
+  - 💰 R$ 120.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-330mt-do-mar-no-loteamento-areias-claras-1488526988
+
