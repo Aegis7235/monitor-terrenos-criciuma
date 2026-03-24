@@ -50547,3 +50547,106 @@
   - 📍 Zona Sul — Balneário Rincão
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-sc-balneario-rincao-zona-sul-480m2-RS2800000/id-32289105/
 
+
+## 🆕 20 novos anúncios — 24/03/2026 10:09
+
+- **Aeropark - Lotes em área Empresarial e Aeronáutico**
+  - 💰 R$ 862.200 | 📐 719 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aeropark-lotes-em-area-empresarial-e-aeronautico-1488427827
+
+- **Terreno residencial em condomínio fechado**
+  - 💰 R$ 180.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-condominio-fechado-1488416337
+
+- **Casa com 3 quartos à venda na Rua Tocantins, 254, Argentina, Criciúma**
+  - 💰 R$ 475.000 | 📐 120 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-criciuma-argentina-684m2-RS475000/id-39125058/
+
+- **CASA À VENDA – CONDOMÍNIO VIVENDAS DO PARQUE  Rua Interlagos, Bairro R**
+  - 💰 R$ 350.000 | 📐 73 m²
+  - 📍 Recanto Verde — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-criciuma-recanto-verde-74m2-RS350000/id-40717452/
+
+- **Casa a venda no Bairro Jaqueline – Içara/SC Apenas 2 minutinhos do Cen**
+  - 💰 R$ 720.000 | 📐 225 m²
+  - 📍 Jaqueline — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-jaqueline-RS720000/id-38532066/
+
+- **Oportunidade Única em ICARA - SC | Tipo: Casa | Negociação: Venda Dire**
+  - 💰 R$ 119.590 | 📐 130 m²
+  - 📍 Cristo Rei — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-icara-cristo-rei-53m2-RS119590/id-37733399/
+
+- **Casa com 2 quartos à venda na Rua Abel Colle, 343, Cristo Rei, Içara**
+  - 💰 R$ 119.590 | 📐 53 m²
+  - 📍 Cristo Rei — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-cristo-rei-130m2-RS119590/id-40621858/
+
+- **2 dormitórios toda murada, aceita financiamento no bairro Demboski em **
+  - 💰 R$ 500.000 | 📐 140 m²
+  - 📍 Demboski — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-demboski-401m2-RS500000/id-40308732/
+
+- **Oportunidade Única em ARARANGUA - SC | Tipo: Casa | Negociação: Leilão**
+  - 💰 R$ 230.000 | 📐 313 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-caverazinho-40m2-RS230000/id-40175120/
+
+- **Casa com 3 quartos à venda na Rua Albino Pereira de Souza, 107, Urussa**
+  - 💰 R$ 367.093 | 📐 123 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-urussanguinha-432m2-RS367093/id-40703580/
+
+- **Casa à venda, 620 m² por R$ 1.200.000,00 - Cidade Alta - Araranguá/SC**
+  - 💰 R$ 1.200.000 | 📐 620 m²
+  - 📍 Cidade Alta — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-cidade-alta-200m2-RS1200000/id-37260461/
+
+- **Casa com 2 quartos à venda no Coloninha, Araranguá , 132 m2 por R$ 370**
+  - 💰 R$ 370.000 | 📐 132 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-coloninha-RS370000/id-37917816/
+
+- **Casa para Venda em Sombrio, São José, 2 dormitórios, 1 banheiro, 1 vag**
+  - 💰 R$ 350.000 | 📐 ? m²
+  - 📍 São José — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-sao-jose-RS350000/id-39374781/
+
+- **Casa para Venda em Sombrio, Parque das Avenidas, 2 dormitórios, 1 banh**
+  - 💰 R$ 500.000 | 📐 360 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-parque-das-avenidas-360m2-RS500000/id-40310960/
+
+- **Casa à venda na Praia Lagoinha, Balneário Gaivota**
+  - 💰 R$ 320.000 | 📐 ? m²
+  - 📍 Praia Lagoinha — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-balneario-gaivota-praia-lagoinha-RS320000/id-37279633/
+
+- **Casa com 3 dormitórios à venda, 150 m²  - Lagoa Cortada - Balneário Ga**
+  - 💰 R$ 770.000 | 📐 150 m²
+  - 📍 Lagoa Cortada — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-lagoa-cortada-300m2-RS770000/id-40635826/
+
+- **Casa com 3 quartos à venda na Zona Sul, Balneário Rincão**
+  - 💰 R$ 550.000 | 📐 98 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-rincao-zona-sul-288m2-RS550000/id-39615600/
+
+- **a venda no Centro do Balneário Rincão, 4 dormitórios, 2 suítes, 1 vaga**
+  - 💰 R$ 799.000 | 📐 140 m²
+  - 📍 Centro — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-balneario-rincao-centro-140m2-RS799000/id-40308738/
+
+- **Casa com 3 quartos à venda no Balneário Arroio Corrente, Jaguaruna**
+  - 💰 R$ 620.000 | 📐 157 m²
+  - 📍 Balneário Arroio Corrente — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-jaguaruna-balneario-arroio-corrente-264m2-RS620000/id-40641460/
+
+- **Casa térrea de 2 quartos,pátio e 2 vagas em Jaguaruna bairro Camacho e**
+  - 💰 R$ 267.000 | 📐 67 m²
+  - 📍 Camacho — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-camacho-70m2-RS267000/id-40630674/
+
