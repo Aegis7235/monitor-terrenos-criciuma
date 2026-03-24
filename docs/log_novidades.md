@@ -50650,3 +50650,231 @@
   - 📍 Camacho — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-camacho-70m2-RS267000/id-40630674/
 
+
+## 🆕 45 novos anúncios — 24/03/2026 16:20
+
+- **Terreno em Ponte do Imaruim - Palhoça**
+  - 💰 R$ 2.350 | 📐 171 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ponte-do-imaruim-palhoca-1488521798
+
+- **? SÍTIO À VENDA - OPORTUNIDADE IMPERDÍVEL! ?**
+  - 💰 R$ 250.000 | 📐 5 m²
+  - 📍  — Timbé do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-venda-oportunidade-imperdivel-1488520634
+
+- **ANITÁPOLIS/SC - Terreno para sítio 2hectares com açude e nascente**
+  - 💰 R$ 150.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-para-sitio-2hectares-com-acude-e-nascente-1488520508
+
+- **vende se**
+  - 💰 R$ 120.000 | 📐 250 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-1488513942
+
+- **Vendo terreno em São José**
+  - 💰 R$ 700.000 | 📐 367 m²
+  - 📍 Flor de Nápolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-sao-jose-1488513542
+
+- **Terreno com Casa de Alvenaria à Venda - Vila Moema - Tubarão/SC**
+  - 💰 R$ 1.200.000 | 📐 405 m²
+  - 📍 Aeroporto — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-de-alvenaria-a-venda-vila-moema-tubarao-sc-1418829114
+
+- **Terreno localizado no bairro Humaitá de Cima**
+  - 💰 R$ 350.000 | 📐 390 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-no-bairro-humaita-de-cima-1220698397
+
+- **TERRENO À VENDA - PESCARIA BRAVA/SC**
+  - 💰 R$ 750.000 | 📐 2281 m²
+  - 📍  — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-pescaria-brava-sc-1421199928
+
+- **Casa com 240 m² em Terreno Amplo de 1.846,11 m² - Caruru, Tubarão/SC**
+  - 💰 R$ 890.000 | 📐 1846 m²
+  - 📍 Caruru — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-com-240-m-em-terreno-amplo-de-1-846-11-m-caruru-tubarao-sc-1437060724
+
+- **Terreno à venda - Bairro São João (Margem Esquerda) | Tubarão/SC**
+  - 💰 R$ 980.000 | 📐 1224000 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-sao-joao-margem-esquerda-tubarao-sc-1470867098
+
+- **Terreno à venda com edícula + projeto aprovado nos ingleses**
+  - 💰 R$ 650.000 | 📐 489 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-edicula-projeto-aprovado-nos-ingleses-1488483086
+
+- **Lote comercial em Içara / SC**
+  - 💰 R$ 870.000 | 📐 420 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-comercial-em-icara-sc-1488478820
+
+- **Vendo sítio com casa**
+  - 💰 R$ 500.000 | 📐 5000 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-casa-1488468906
+
+- **Condomínio feito de Kit Nets Container**
+  - 💰 R$ 179.900 | 📐 ? m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-feito-de-kit-nets-container-1488472870
+
+- **Terreno localizado no bairro Village, Imbituba-SC**
+  - 💰 R$ 477.000 | 📐 350 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-no-bairro-village-imbituba-sc-1438212993
+
+- **Terreno em Imbituba localizado no Loteamento Lagoa Park**
+  - 💰 R$ 360.000 | 📐 493 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-localizado-no-loteamento-lagoa-park-1333294777
+
+- **Terreno á venda em Imbituba, localizado no bairro Araçatuba, situado a**
+  - 💰 R$ 320.000 | 📐 737 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-localizado-no-bairro-aracatuba-situado-a-350-metros-ate-a-sc-1264372031
+
+- **Brognoli Vende -Sitio com 4 casas de alto padrão no norte da ilha de F**
+  - 💰 R$ 7.300.000 | 📐 1772 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-sitio-com-4-casas-de-alto-padrao-no-norte-da-ilha-de-florianopolis-1488467847
+
+- **Terreno 360 m2 no Jardim Eldorado**
+  - 💰 R$ 399.000 | 📐 360 m²
+  - 📍 Jardim Eldorado — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360-m2-no-jardim-eldorado-1471429538
+
+- **TERRENO COM MATRÍCULA EM FLORIANÓPOLIS CANASVIEIRAS NO NOVO LOTEAMENTO**
+  - 💰 R$ 498.000 | 📐 360 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-matricula-em-florianopolis-canasvieiras-no-novo-loteamento-alameda-cezanne-1488464676
+
+- **Terreno com Fundo para o lago no Reserva da Pedra - Palhoça/SC**
+  - 💰 R$ 1.000.000 | 📐 312 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-fundo-para-o-lago-no-reserva-da-pedra-palhoca-sc-1488457396
+
+- **Rua Aroeira Bairro Santos Dumont terreno vendo**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Roçado — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/rua-aroeira-bairro-santos-dumont-terreno-vendo-1488454682
+
+- **Terreno de 7 mil m2, vista mar, 400 metros da praia, poucos metros da **
+  - 💰 R$ 900.000 | 📐 7000 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-7-mil-m2-vista-mar-400-metros-da-praia-poucos-metros-da-marina-1488453371
+
+- **Vendo terreno no sertão dos Medeiros, gravatal**
+  - 💰 R$ 70.000 | 📐 710 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-sertao-dos-medeiros-gravatal-1488334030
+
+- **TERRENO NA PASSAGEM DO MACIAMBU**
+  - 💰 R$ 190.000 | 📐 360 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-passagem-do-maciambu-1488449974
+
+- **vendo terreno**
+  - 💰 R$ 180.000 | 📐 ? m²
+  - 📍 Brejarú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1488443578
+
+- **Lindo Terreno 1000m2 Rancho Queimado com Vista!**
+  - 💰 R$ 320.000 | 📐 1000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-1000m2-rancho-queimado-com-vista-1488442010
+
+- **Venda de sítio**
+  - 💰 R$ 260.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-sitio-1488384173
+
+- **ANITÁPOLIS/SC - Chácara a 500m da SC-108**
+  - 💰 R$ 350.000 | 📐 10000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-chacara-a-500m-da-sc-108-1436081673
+
+- **ANITÁPOLIS/SC - Terreno com 12hectares em frente a SC -108**
+  - 💰 R$ 700.000 | 📐 120000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-com-12hectares-em-frente-a-sc-108-1436083628
+
+- **ANITÁPOLIS/SC - Belíssimo sítio pronto para ser feliz**
+  - 💰 R$ 600.000 | 📐 150000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-belissimo-sitio-pronto-para-ser-feliz-1436084372
+
+- **ANITÁPOLIS/SC - Belíssimo Sítio de 15hectares com casa e área verde co**
+  - 💰 R$ 1.220.000 | 📐 1500000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-belissimo-sitio-de-15hectares-com-casa-e-area-verde-com-vista-espetacular-1384314273
+
+- **Belíssimo sítio com 3hectares a venda  - Morada dos canyons**
+  - 💰 R$ 380.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belissimo-sitio-com-3hectares-a-venda-morada-dos-canyons-1453812030
+
+- **ANITÁPOLIS/SC - Lindo terreno com 6 hectares**
+  - 💰 R$ 500.000 | 📐 60000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-terreno-com-6-hectares-1280037418
+
+- **ANITÁPOLIS/SC - Belíssimo terreno com 3hectares**
+  - 💰 R$ 350.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-belissimo-terreno-com-3hectares-1469414391
+
+- **Belíssimo sítio em Anitápolis - 5hectares**
+  - 💰 R$ 890.000 | 📐 50000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belissimo-sitio-em-anitapolis-5hectares-1060188109
+
+- **ANITÁPOLIS/ SC - Lote em área urbana 480m2**
+  - 💰 R$ 200.000 | 📐 480 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lote-em-area-urbana-480m2-1280321335
+
+- **ANITÁPOLIS/SC - Lindo terreno com vista para serra geral 3hectares**
+  - 💰 R$ 260.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-terreno-com-vista-para-serra-geral-3hectares-1288660369
+
+- **ANITÁPOLIS/SC - Sítio pronto para morar 3km do centro**
+  - 💰 R$ 350.000 | 📐 2000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-sitio-pronto-para-morar-3km-do-centro-1130532267
+
+- **ANITÁPOLIS/SC - Terreno para investimento 75hectares**
+  - 💰 R$ 1.500.000 | 📐 750000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-para-investimento-75hectares-1437256905
+
+- **ANITÁPOLIS/SC - Lindo terreno para sítio com 3hectares**
+  - 💰 R$ 220.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-terreno-para-sitio-com-3hectares-1437369728
+
+- **ANITÁPOLIS/SC - Terreno ao pé da serra geral com 30 hectares**
+  - 💰 R$ 1.250.000 | 📐 300000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-ao-pe-da-serra-geral-com-30-hectares-1454514768
+
+- **ANITÁPOLIS/SC - Ótima oportunidade terreno plano 2hectares**
+  - 💰 R$ 210.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-otima-oportunidade-terreno-plano-2hectares-1470203434
+
+- **ANITÁPOLIS - RANCHO QUEIMADO/SC - Belíssimo sítio pronto com 14 hectar**
+  - 💰 R$ 1.750.000 | 📐 140000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-rancho-queimado-sc-belissimo-sitio-pronto-com-14-hectares-1454516575
+
+- **Excelente Terreno na Pinheira**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-na-pinheira-1488430607
+
