@@ -52727,3 +52727,196 @@
   - 📍 Centro — Governador Celso Ramos
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/studio-com-1-dormitorio-e-1-vaga-de-garagem-praia-grande-governador-celso-ramos-sc-ref-1488694820
 
+
+## 🆕 38 novos anúncios — 25/03/2026 16:24
+
+- **VENDO TERRENO**
+  - 💰 R$ 380.000 | 📐 360 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1488789245
+
+- **Sitio em frente a praia do Forte com vista mar.**
+  - 💰 R$ 3.700.000 | 📐 6764 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-frente-a-praia-do-forte-com-vista-mar-1386781720
+
+- **Aluga-se sitio em Vargem Grande**
+  - 💰 R$ 5.000 | 📐 25000 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aluga-se-sitio-em-vargem-grande-1437322059
+
+- **Terreno Estratégico no Aririú com 1.628 m² ao Lado do Open Park e Aces**
+  - 💰 R$ 1.500.000 | 📐 1628 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-estrategico-no-aririu-com-1-628-m-ao-lado-do-open-park-e-acesso-ao-contorno-viari-1488787712
+
+- **Terreno à Venda em Pedra Branca, Palhoça por R$640.000**
+  - 💰 R$ 640.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-pedra-branca-palhoca-por-r-640-000-1488787105
+
+- **Terreno à Venda em Pedra Branca, Palhoça por R$640.000**
+  - 💰 R$ 640.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-pedra-branca-palhoca-por-r-640-000-1488787126
+
+- **Terreno 350 m2 Projeto 6 ao APROVADO**
+  - 💰 R$ 450.000 | 📐 350 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-350-m2-projeto-6-ao-aprovado-1488782053
+
+- **Terreno - 325m² em Loteamento Novo | Rua Asfaltada e Livre de Enchente**
+  - 💰 R$ 340.000 | 📐 325 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-325m-em-loteamento-novo-rua-asfaltada-e-livre-de-enchentes-1488781766
+
+- **CHÁCARA VISTA PRIVILEGIADA**
+  - 💰 R$ 580.000 | 📐 3900 m²
+  - 📍 Santo Anjo — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-vista-privilegiada-1488780445
+
+- **Sítio à venda no bairro Alfredo Wagner - Alfredo Wagner/SC**
+  - 💰 R$ 750.000 | 📐 47000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-alfredo-wagner-alfredo-wagner-sc-1488777974
+
+- **Sítio à venda no bairro Centro - Angelina/SC**
+  - 💰 R$ 2.500.000 | 📐 63000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-centro-angelina-sc-1488777732
+
+- **TERRENO FRENTE BR 101 - BOA VISTA - ITAPIRUBA- LAGUNA-SC**
+  - 💰 R$ 1.700.000 | 📐 7590 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-br-101-boa-vista-itapiruba-laguna-sc-1488774743
+
+- **Jardim Atlântico | Terreno**
+  - 💰 R$ 9.980 | 📐 415 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jardim-atlantico-terreno-1488774159
+
+- **Jardim Atlântico | Terreno**
+  - 💰 R$ 1.800.000 | 📐 415 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jardim-atlantico-terreno-1488774107
+
+- **Jardim Cidade de Florianópolis | Terreno**
+  - 💰 R$ 730.000 | 📐 365 m²
+  - 📍 Jardim Cidade de Florianópolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jardim-cidade-de-florianopolis-terreno-1488772100
+
+- **Roçado | Terreno**
+  - 💰 R$ 2.350.000 | 📐 1570 m²
+  - 📍 Roçado — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/rocado-terreno-1488772086
+
+- **Balneário | Terreno**
+  - 💰 R$ 1.756.000 | 📐 453 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/balneario-terreno-1488771885
+
+- **Canto | Terreno**
+  - 💰 R$ 3.000 | 📐 290 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/canto-terreno-1488771800
+
+- **Coqueiros | Terreno**
+  - 💰 R$ 6.600 | 📐 552 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/coqueiros-terreno-1488771883
+
+- **Canto | Terreno**
+  - 💰 R$ 7.000.000 | 📐 1386 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/canto-terreno-1488771778
+
+- **Terreno com viabilidade para 10 pavimentos à venda em Capoeiras  Flori**
+  - 💰 R$ 720.000 | 📐 240 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-para-10-pavimentos-a-venda-em-capoeiras-florianopolis-1488771786
+
+- **Canto | Terreno**
+  - 💰 R$ 900.000 | 📐 290 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/canto-terreno-1488771764
+
+- **Canasvieiras | Terreno**
+  - 💰 R$ 1.180.000 | 📐 406 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/canasvieiras-terreno-1488771704
+
+- **Canto | Terreno**
+  - 💰 R$ 700.000 | 📐 283 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/canto-terreno-1488771554
+
+- **Centro | Terreno**
+  - 💰 R$ 739.000 | 📐 264 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/centro-terreno-1488771342
+
+- **Sitio em pedras grandes sc**
+  - 💰 R$ 300.000 | 📐 20000 m²
+  - 📍  — Pedras Grandes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-pedras-grandes-sc-1488767397
+
+- **Terreno à venda Valverde**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-valverde-1488764180
+
+- **lote Novo Horizonte 2 200m2 entr + parcelas aceito carro**
+  - 💰 R$ 89.900 | 📐 200 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-novo-horizonte-2-200m2-entr-parcelas-aceito-carro-1464679156
+
+- **Terreno plano em condomínio fechado na Cachoeira do Bom Jesus - Floria**
+  - 💰 R$ 595.000 | 📐 450 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-em-condominio-fechado-na-cachoeira-do-bom-jesus-florianopolis-sc-1488756239
+
+- **Vendo Sítio porteira fechada**
+  - 💰 R$ 450.000 | 📐 1000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-porteira-fechada-1488741468
+
+- **Casa de Campo Mobiliada em São Bonifácio | 2 Suítes | Terreno 1.000m²**
+  - 💰 R$ 487.000 | 📐 1000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-campo-mobiliada-em-sao-bonifacio-2-suites-terreno-1-000m-1488751475
+
+- **Terreno em Jardim Atlantico Novo Estreito, 971m2**
+  - 💰 R$ 2.600.000 | 📐 971 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jardim-atlantico-novo-estreito-971m2-1488145548
+
+- **( BARBADA ) SÍTIO A VENDA em CLARAIBA**
+  - 💰 R$ 720.000 | 📐 5400 m²
+  - 📍 Distrito de Claraiba — Claraíba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-sitio-a-venda-em-claraiba-1471539565
+
+- **Terreno - 3.600m2 - Sertão do Campo**
+  - 💰 R$ 490.000 | 📐 3600 m²
+  - 📍  — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-3-600m2-sertao-do-campo-1488719934
+
+- **Terreno à venda com área de 304,57m² em Palhoça - Passa Vinte**
+  - 💰 R$ 330.000 | 📐 305 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-area-de-304-57m-em-palhoca-passa-vinte-1488718151
+
+- **IMOVEL SEM ESCRITURA**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-sem-escritura-1488713462
+
+- **LINDO TERRENO**
+  - 💰 R$ 80.000 | 📐 350 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-1470582518
+
+- **Chácara / sítio à venda na Vila Conceição, São João do Sul**
+  - 💰 R$ 370.000 | 📐 5000 m²
+  - 📍 Vila Conceição — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sao-joao-do-sul-vila-conceicao-5000m2-RS370000/id-40812838/
+
