@@ -54017,3 +54017,191 @@
   - 📍 Vila Moema — Tubarão
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-450-metros-quadrados-em-vila-moema-tubarao-sc-1488995051
 
+
+## 🆕 37 novos anúncios — 26/03/2026 21:45
+
+- **Terreno no bairro Forquilhas, em São José - SC**
+  - 💰 R$ 320.000 | 📐 316 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-forquilhas-em-sao-jose-sc-1489159143
+
+- **Vendo Terreno 610m2 ou troco por carro**
+  - 💰 R$ 238.000 | 📐 610 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-610m2-ou-troco-por-carro-1402929098
+
+- **Terreno no Bairro Forquilhinhas**
+  - 💰 R$ 229.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-forquilhinhas-1489151698
+
+- **Terreno Ribeirão da ilha - 50 metros do Mar - 360 M2**
+  - 💰 R$ 580.000 | 📐 360 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ribeirao-da-ilha-50-metros-do-mar-360-m2-1489146203
+
+- **Lote/Terreno para venda possui 2551 metros quadrados**
+  - 💰 R$ 1.250.000 | 📐 2551 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-venda-possui-2551-metros-quadrados-1489145438
+
+- **Lote Comercial 800 Metros Escritura Pública**
+  - 💰 R$ 370.000 | 📐 800 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-comercial-800-metros-escritura-publica-1489144784
+
+- **Chácara Com Casa 3 Dormitórios**
+  - 💰 R$ 350.000 | 📐 1700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-casa-3-dormitorios-1489137224
+
+- **Terreno amplo, de 351 m² Coqueiros - Florianópolis**
+  - 💰 R$ 4.000.000 | 📐 350 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-351-m-coqueiros-florianopolis-1489136232
+
+- **Chácara em Colonia Santa Luzia**
+  - 💰 R$ 3.350.000 | 📐 342 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-colonia-santa-luzia-1489131731
+
+- **Aluguel Anual, Sítio 20.487,00 m², Casa 250 m² Semi-Mobiliada, Barro B**
+  - 💰 R$ 5.500 | 📐 20487 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aluguel-anual-sitio-20-487-00-m-casa-250-m-semi-mobiliada-barro-branco-sao-pedro-de-1489122335
+
+- **Terreno à Venda em Forquilhas, São José por R$319.999**
+  - 💰 R$ 319.999 | 📐 301 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-forquilhas-sao-jose-por-r-319-999-1489128310
+
+- **Lindo lote na Barra em Palhoça. Oportunidade!**
+  - 💰 R$ 129.000 | 📐 200 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-lote-na-barra-em-palhoca-oportunidade-1489127218
+
+- **VENDO SÍTIO COM CASA**
+  - 💰 R$ 1.890.000 | 📐 37813 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-casa-1489092862
+
+- **Terreno à venda (70 metros do mar) - B. Village Dunas Norte - Balneári**
+  - 💰 R$ 260.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-70-metros-do-mar-b-village-dunas-norte-balneario-gaivota-sc-1489102133
+
+- **TERRENO À VENDA EM CONDOMÍNIO FECHADO  CANELINHA/SC**
+  - 💰 R$ 280.000 | 📐 2854 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-em-condominio-fechado-canelinha-sc-1489095063
+
+- **Terreno 300m² em Palhoça: Ótima Oportunidade!**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-em-palhoca-otima-oportunidade-1489094066
+
+- **LOTEAMENTO RECANTO DA COLINA - CAPIVARI DE BAIXO/SC**
+  - 💰 R$ 98.900 | 📐 250 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-recanto-da-colina-capivari-de-baixo-sc-1489092170
+
+- **VENDO TERRENO LAGES AREA 3500m2 PRÓX A BR 282 KM (**
+  - 💰 R$ 75.000 | 📐 3500 m²
+  - 📍 Nossa Senhora do Rosário — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-lages-area-3500m2-prox-a-br-282-km-1489084418
+
+- **RESERVA HOME CLUB - Santo Antônio de Pádua - Tubarão/SC**
+  - 💰 R$ 788.871 | 📐 400 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/reserva-home-club-santo-antonio-de-padua-tubarao-sc-1489082863
+
+- **Terreno de 577.5m² no bairro Forquilhas**
+  - 💰 R$ 450.000 | 📐 577 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-577-5m-no-bairro-forquilhas-1489082340
+
+- **Terreno de 575.58m² no bairro Pedra Branca**
+  - 💰 R$ 949.000 | 📐 575 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-575-58m-no-bairro-pedra-branca-1489082348
+
+- **Terreno Residencial em Campinas**
+  - 💰 R$ 1.235.000 | 📐 141 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-campinas-1489082375
+
+- **Terreno de 425.34m² no bairro Pedra Branca**
+  - 💰 R$ 720.900 | 📐 425 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-425-34m-no-bairro-pedra-branca-1489082307
+
+- **Terreno de 497.05m² no bairro Pedra Branca**
+  - 💰 R$ 793.000 | 📐 497 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-497-05m-no-bairro-pedra-branca-1489082310
+
+- **Terreno de 450m² no bairro Pedra Branca**
+  - 💰 R$ 718.000 | 📐 450 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-450m-no-bairro-pedra-branca-1489081802
+
+- **Terreno de 450m² no bairro Canasvieiras**
+  - 💰 R$ 2.200.000 | 📐 450 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-450m-no-bairro-canasvieiras-1489081773
+
+- **Terreno de 541m² no bairro Pedra Branca**
+  - 💰 R$ 849.000 | 📐 541 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-541m-no-bairro-pedra-branca-1489081753
+
+- **Terreno de 1135.87m² no bairro Sertão do Maruim**
+  - 💰 R$ 1.274.400 | 📐 1135 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1135-87m-no-bairro-sertao-do-maruim-1489081590
+
+- **Terreno de 473.52m² no bairro Pedra Branca**
+  - 💰 R$ 756.000 | 📐 473 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-473-52m-no-bairro-pedra-branca-1489081040
+
+- **Terreno de 419.34m² no bairro Pedra Branca**
+  - 💰 R$ 649.000 | 📐 419 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-419-34m-no-bairro-pedra-branca-1489081022
+
+- **Terreno Com 454m No Ribeirão Da Ilha!**
+  - 💰 R$ 750.000 | 📐 454 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-454m-no-ribeirao-da-ilha-1489080998
+
+- **Terreno de 718.5m² no bairro Sertão do Maruim**
+  - 💰 R$ 784.900 | 📐 718 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-718-5m-no-bairro-sertao-do-maruim-1489081011
+
+- **Terreno de 421.06m² no bairro Centro**
+  - 💰 R$ 3.200.000 | 📐 421 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-421-06m-no-bairro-centro-1489080937
+
+- **Terreno com 431,39 m² - Residencial ou Comercial - Córrego Grande, Flo**
+  - 💰 R$ 1.400.000 | 📐 431 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-431-39-m-residencial-ou-comercial-corrego-grande-florianopolis-1489057009
+
+- **Vende-se terreno grande 360 metros praia de fora.**
+  - 💰 R$ 330.000 | 📐 360 m²
+  - 📍 Praia de Fora — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-grande-360-metros-praia-de-fora-1488776579
+
+- **Chácara / sítio com 3 quartos à venda na Avenida Getúlio Vargas, S N, **
+  - 💰 R$ 330.000 | 📐 120 m²
+  - 📍 Rio Dos Anjos — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-ararangua-rio-dos-anjos-640m2-RS330000/id-40862942/
+
+- **Chácara com 2 hectares no Recanto Fratelli   - Jordão do Meio em Sider**
+  - 💰 R$ 275.000 | 📐 20000 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sideropolis-centro-20000m2-RS275000/id-40685303/
+
