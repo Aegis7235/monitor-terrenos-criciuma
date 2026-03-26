@@ -53771,3 +53771,106 @@
   - 📍 Village Dunas Norte — Balneário Gaivota
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-village-dunas-norte-84m2-RS430000/id-40165574/
 
+
+## 🆕 20 novos anúncios — 26/03/2026 10:13
+
+- **Terreno à venda, 421m² - Ratones - Florianópolis/SC**
+  - 💰 R$ 1.170.000 | 📐 421 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-421m-ratones-florianopolis-sc-1488983585
+
+- **Lote a 150m da Lagoa de Ibiraquera | 367,52m² | Próximo ao Rosa e Ouvi**
+  - 💰 R$ 734.000 | 📐 368 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-150m-da-lagoa-de-ibiraquera-367-52m-proximo-ao-rosa-e-ouvidor-1488980755
+
+- **Terreno no Macacu com 23.921,73m²**
+  - 💰 R$ 6.000.000 | 📐 23922 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-macacu-com-23-921-73m-1488980734
+
+- **Excelente oportunidade de investimento no bairro Ferraz**
+  - 💰 R$ 1.300.000 | 📐 325 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-de-investimento-no-bairro-ferraz-1488980729
+
+- **Lote a 150m da Lagoa de Ibiraquera | 361,20m² | Próximo ao Rosa e Ouvi**
+  - 💰 R$ 649.800 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-150m-da-lagoa-de-ibiraquera-361-20m-proximo-ao-rosa-e-ouvidor-1488980725
+
+- **Lote a 150m da Lagoa de Ibiraquera | 360m² | Próximo ao Rosa e Ouvidor**
+  - 💰 R$ 720.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-150m-da-lagoa-de-ibiraquera-360m-proximo-ao-rosa-e-ouvidor-1488980737
+
+- **Excelente oportunidade de investimento no bairro Ferraz**
+  - 💰 R$ 1.300.000 | 📐 325 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-de-investimento-no-bairro-ferraz-1488980739
+
+- **TERRENO 314,16m², Escritura, Viabilidade Prédio - Jardim Atlântico**
+  - 💰 R$ 845.000 | 📐 314 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-314-16m-escritura-viabilidade-predio-jardim-atlantico-1488980137
+
+- **Terreno à Venda em Beira Rio, Biguaçu - R$ 181.000**
+  - 💰 R$ 181.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-beira-rio-biguacu-r-181-000-1488980118
+
+- **Terreno à Venda em Beira Rio - Biguaçu por R$ 181.000**
+  - 💰 R$ 181.000 | 📐 165 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-beira-rio-biguacu-por-r-181-000-1488979559
+
+- **Terreno Condominio em Beira Rio - Biguaçu**
+  - 💰 R$ 260.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-em-beira-rio-biguacu-1488979486
+
+- **Terreno à Venda No Blue Condomínio Clube - Biguaçu 150.5m²**
+  - 💰 R$ 230.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-blue-condominio-clube-biguacu-150-5m-1488979477
+
+- **Terreno à Venda no Condomínio Deltaville, Biguaçu  150m²**
+  - 💰 R$ 350.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-deltaville-biguacu-150m-1488978783
+
+- **Terreno à venda no Reserva da Pedra - bairro Pedra Branca - Palhoça/SC**
+  - 💰 R$ 1.050.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-reserva-da-pedra-bairro-pedra-branca-palhoca-sc-1488978784
+
+- **Terreno à Venda com 398 m² por R$ 450.000 - Rio Vermelho - Florianópol**
+  - 💰 R$ 450.000 | 📐 398 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-398-m-por-r-450-000-rio-vermelho-florianopolis-sc-1488977328
+
+- **Terreno à venda, 300 m² por R$ 450.000,00 - Praia Do Sonho (Ens Brito)**
+  - 💰 R$ 450.000 | 📐 300 m²
+  - 📍 Praia do Sonho — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-450-000-00-praia-do-sonho-ens-brito-palhoca-sc-1488974075
+
+- **Sitio, Potecas**
+  - 💰 R$ 3.000.000 | 📐 165440 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-potecas-1488972423
+
+- **Terreno a venda Jardim America**
+  - 💰 R$ 165.000 | 📐 386 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-jardim-america-1488972352
+
+- **Terreno, Governador Celso Ramos**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-governador-celso-ramos-1488972258
+
+- **Terreno a venda Mira Torres**
+  - 💰 R$ 92.500 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-mira-torres-1488971961
+
