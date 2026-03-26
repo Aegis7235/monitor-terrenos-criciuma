@@ -53874,3 +53874,146 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-mira-torres-1488971961
 
+
+## 🆕 28 novos anúncios — 26/03/2026 16:24
+
+- **Terreno à Venda no Centro de Palhoça por R$390.000**
+  - 💰 R$ 390.000 | 📐 348 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-palhoca-por-r-390-000-1489067965
+
+- **Vendo Sítio em Águas Mornas**
+  - 💰 R$ 550.000 | 📐 32000 m²
+  - 📍 Fazenda do Sacramento — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-aguas-mornas-1489025905
+
+- **Terreno para venda tem 300 metros quadrados em Barra do Aririú - Palho**
+  - 💰 R$ 276.000 | 📐 300 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-tem-300-metros-quadrados-em-barra-do-aririu-palhoca-sc-1489065776
+
+- **? TERRENOS NO JARDINS 2 | BAIRRO BELA VISTA Valores a partir de R$ 200**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-jardins-2-bairro-bela-vista-valores-a-partir-de-r-200-000-1489061324
+
+- **Chácara em Colonia Santa Luzia**
+  - 💰 R$ 3.350.000 | 📐 342 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-colonia-santa-luzia-1489060974
+
+- **Terreno Residencial em João Paulo**
+  - 💰 R$ 5.290.000 | 📐 3662 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-joao-paulo-1489060715
+
+- **OPORTUNIDADES IMPERDÍVEIS EM LOTEAMENTOS**
+  - 💰 R$ 150.000 | 📐 ? m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidades-imperdiveis-em-loteamentos-1489052134
+
+- **Terreno a venda Agronomica Florianopolis**
+  - 💰 R$ 505.000 | 📐 80 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-agronomica-florianopolis-1489049564
+
+- **Terreno plano localizado na Praia da Ferrugem a 150 mts do mar.**
+  - 💰 R$ 990.000 | 📐 37252 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-localizado-na-praia-da-ferrugem-a-150-mts-do-mar-1489046624
+
+- **Terreno em Termas do Gravatal ? escritura, água, luz e a 3 min do cent**
+  - 💰 R$ 180.000 | 📐 404 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-termas-do-gravatal-escritura-agua-luz-e-a-3-min-do-centro-r-180k-1489047281
+
+- **Vendo terreno 62.000**
+  - 💰 R$ 62.000 | 📐 66 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-62-000-1489040061
+
+- **TERRENO RESERVA DA PEDRA**
+  - 💰 R$ 890.000 | 📐 312 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-reserva-da-pedra-1489039202
+
+- **TERRENO CACHOEIRA DO BOM JESUS**
+  - 💰 R$ 4.500.000 | 📐 400 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-cachoeira-do-bom-jesus-1489039221
+
+- **Vendo Terreno na palhoça! Barbada**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-palhoca-barbada-1489037140
+
+- **Terreno com 500m²  Moura, Canelinha/SC**
+  - 💰 R$ 125.000 | 📐 500 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-500m-moura-canelinha-sc-1489033688
+
+- **Vendo belíssimo sítio na Sorocaba de fora/Biguaçu**
+  - 💰 R$ 500.000 | 📐 2000 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-belissimo-sitio-na-sorocaba-de-fora-biguacu-1488995715
+
+- **Terreno a 50 metros da Rua Rui Barbosa**
+  - 💰 R$ 210.000 | 📐 300 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-50-metros-da-rua-rui-barbosa-1489027232
+
+- **CASA de VIDRO ! Estilo Pacific Northwest.**
+  - 💰 R$ 650.000 | 📐 2100 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-vidro-estilo-pacific-northwest-1489025557
+
+- **TERRENO em condomínio RURAL fechado. Sto Amaro da Imperatriz SC**
+  - 💰 R$ 219.000 | 📐 681 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-rural-fechado-sto-amaro-da-imperatriz-sc-1489010248
+
+- **Lindo terreno no sítio de dentro santo Amaro da Imperatriz**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍 Sítio de Dentro — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-no-sitio-de-dentro-santo-amaro-da-imperatriz-1488998927
+
+- **EXCELENTE TERRENO A VENDA EM JURERE INTERNACIONAL - FPOLIS/SC**
+  - 💰 R$ 6.900.000 | 📐 600 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-a-venda-em-jurere-internacional-fpolis-sc-1488995310
+
+- **Terreno - Florianópolis SC**
+  - 💰 R$ 832.000 | 📐 520 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-florianopolis-sc-1488988928
+
+- **Terreno com excelente localização em Jurerê Internacional**
+  - 💰 R$ 3.650.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-excelente-localizacao-em-jurere-internacional-1488987254
+
+- **Excelente Terreno no Jardins II, Bela Vista Palhoça**
+  - 💰 R$ 270.000 | 📐 290 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-no-jardins-ii-bela-vista-palhoca-1488987075
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 3.460.000 | 📐 659 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1488986373
+
+- **Terreno urbano com Lago em Santa Rosa do Sul**
+  - 💰 R$ 275.000 | 📐 2199 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-com-lago-em-santa-rosa-do-sul-1489009978
+
+- **Lote à venda com 364 mt² no Loteamento Galápagos - Tijucas - SC**
+  - 💰 R$ 320.000 | 📐 364 m²
+  - 📍 Areias — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-com-364-mt-no-loteamento-galapagos-tijucas-sc-1489044749
+
+- **Imóvel para venda possui 450 metros quadrados em Vila Moema - Tubarão **
+  - 💰 R$ 580.000 | 📐 450 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-450-metros-quadrados-em-vila-moema-tubarao-sc-1488995051
+
