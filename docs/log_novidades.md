@@ -54358,3 +54358,51 @@
   - 📍 Centro — Turvo
   - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-2-quartos-sc-turvo-centro-RS742000/id-40840134/
 
+
+## 🆕 9 novos anúncios — 27/03/2026 10:07
+
+- **Terreno com Vista Mar em Canajurê  Excelente para Incorporação**
+  - 💰 R$ 6.000.000 | 📐 980 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-mar-em-canajure-excelente-para-incorporacao-1489262813
+
+- **Terreno Localizado na SC 401**
+  - 💰 R$ 18.000.000 | 📐 4000 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-na-sc-401-1489262740
+
+- **Oportunidade na Vargem do Bom Jesus  3.243 m² com Viabilidade 4.5**
+  - 💰 R$ 1.370.000 | 📐 2800 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-na-vargem-do-bom-jesus-3-243-m-com-viabilidade-4-5-1489262738
+
+- **Terreno à Venda no Deltaville | 168,92m² | R$ 150 K**
+  - 💰 R$ 290.000 | 📐 168 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-deltaville-168-92m-r-150-k-1489259117
+
+- **Lote / Terreno em Fundos - Biguaçu**
+  - 💰 R$ 140.000 | 📐 150 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-fundos-biguacu-1489259084
+
+- **Terreno à venda na Ressacada em Garopaba SC, com 7.157,47 m²**
+  - 💰 R$ 750.000 | 📐 7157 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-ressacada-em-garopaba-sc-com-7-157-47-m-1489254913
+
+- **Loteamento com infraestrutura completa.**
+  - 💰 R$ 215.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-com-infraestrutura-completa-1489253890
+
+- **TERRENO 649M² EM LOCALIZAÇÃO ESTRATÉGICA NA TRINDADE FLORIANÓPOLIS IDE**
+  - 💰 R$ 800.000 | 📐 650 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-649m-em-localizacao-estrategica-na-trindade-florianopolis-ideal-para-investimento-1489243654
+
+- **Oportunidade em Imbituba! Terreno Pronto para Construir ? 288m²**
+  - 💰 R$ 275.000 | 📐 288 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-imbituba-terreno-pronto-para-construir-288m-1489243518
+
