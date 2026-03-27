@@ -54205,3 +54205,156 @@
   - 📍 Centro — Siderópolis
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sideropolis-centro-20000m2-RS275000/id-40685303/
 
+
+## 🆕 30 novos anúncios — 27/03/2026 05:21
+
+- **Terreno à venda em Deltaville, em Biguaçu  SC | Condomínio Blue**
+  - 💰 R$ 225.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-deltaville-em-biguacu-sc-condominio-blue-1489240443
+
+- **Terreno com 10.500 m² a venda no Ribeirão da Ilha**
+  - 💰 R$ 1.590.000 | 📐 10500 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-10-500-m-a-venda-no-ribeirao-da-ilha-1489238542
+
+- **Terreno no Açores**
+  - 💰 R$ 307.000 | 📐 441 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-acores-1489236929
+
+- **Terreno nos Açores**
+  - 💰 R$ 307.000 | 📐 44080 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nos-acores-1489236882
+
+- **Lote imperdível - Deltaville - Biguaçu codigo: 75324**
+  - 💰 R$ 220.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-imperdivel-deltaville-biguacu-codigo-75324-1489235786
+
+- **Terreno a venda no condomínio Caminho do Engenho I codigo: 291583**
+  - 💰 R$ 1.090.000 | 📐 1550 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-caminho-do-engenho-i-codigo-291583-1489235758
+
+- **Terreno em Nossa Senhora do Rosário - São José**
+  - 💰 R$ 7.500 | 📐 1456 m²
+  - 📍 Nossa Senhora do Rosário — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-nossa-senhora-do-rosario-sao-jose-1489235433
+
+- **TERRENO COM 250M² EM FLORIANÓPOLIS BAIRRO SÃO JOÃO DO RIO VERMELHO Á V**
+  - 💰 R$ 260.000 | 📐 250 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-250m-em-florianopolis-bairro-sao-joao-do-rio-vermelho-a-venda-1489234726
+
+- **Terreno à venda, 300 m² por R$ 165.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-165-000-bellatorres-passo-de-torres-sc-1489217739
+
+- **Terreno à venda, 300 m² por R$ 165.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-165-000-bellatorres-passo-de-torres-sc-1489217473
+
+- **Terreno para venda, Alto Arroio, Imbituba**
+  - 💰 R$ 179.000 | 📐 234 m²
+  - 📍 Alto Arroio — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-alto-arroio-imbituba-1489207784
+
+- **Oportunidade única no condomínio mais desejado de Ratones! Villa Raton**
+  - 💰 R$ 1.067.000 | 📐 421 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-no-condominio-mais-desejado-de-ratones-villa-ratones-1489205037
+
+- **Terreno com água e luz no Rio Vermelho**
+  - 💰 R$ 170.000 | 📐 160 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-agua-e-luz-no-rio-vermelho-1489198314
+
+- **Terreno à Venda - Bairro, Ibiraquera**
+  - 💰 R$ 350.000 | 📐 607 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-ibiraquera-1489196922
+
+- **Terreno à venda no Ribeirão da Ilha - Florianópolis<br>Vista permanent**
+  - 💰 R$ 3.300.000 | 📐 20000 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-ribeirao-da-ilha-florianopolis-br-vista-permanente-para-o-mar-1489196339
+
+- **Terreno à Venda - Imbituba, bairro - Ibiraquera**
+  - 💰 R$ 350.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-imbituba-bairro-ibiraquera-1489195777
+
+- **Terreno Próximo a BR - 101, a Poucos Minutos das Praias da Região, Are**
+  - 💰 R$ 550.000 | 📐 496 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-br-101-a-poucos-minutos-das-praias-da-regiao-areias-paul-1489195084
+
+- **Terreno no Bairro Village, Garopaba/SC**
+  - 💰 R$ 640.000 | 📐 36012 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-village-garopaba-sc-1489194916
+
+- **Terreno Loteamento Pedra Branca, Garopaba/SC**
+  - 💰 R$ 600.000 | 📐 367 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-pedra-branca-garopaba-sc-1489194375
+
+- **Terreno à venda Praia do Siriú Garopaba/SC**
+  - 💰 R$ 1.100.000 | 📐 896 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-praia-do-siriu-garopaba-sc-1486612328
+
+- **Terreno à venda 300 m² - Morro das Pedras - Florianópolis/SC**
+  - 💰 R$ 500.000 | 📐 300 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-morro-das-pedras-florianopolis-sc-1489183444
+
+- **Terreno à venda, 377 m² por R$ 850.000,00 - Campeche Central - Florian**
+  - 💰 R$ 850.000 | 📐 377 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-377-m-por-r-850-000-00-campeche-central-florianopolis-sc-1489183267
+
+- **Terreno diferenciado à venda no Bairro Aririú**
+  - 💰 R$ 389.999 | 📐 395 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-diferenciado-a-venda-no-bairro-aririu-1466254638
+
+- **ANITÁPOLIS/SC - Lindo terreno para sítio ou moradia com 3.7hectares**
+  - 💰 R$ 300.000 | 📐 37000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-terreno-para-sitio-ou-moradia-com-3-7hectares-1489172237
+
+- **Terreno à Venda em Forquilhas, São José por R$200.000**
+  - 💰 R$ 200.000 | 📐 250 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-forquilhas-sao-jose-por-r-200-000-1489168539
+
+- **EXCELENTE TERRENO GAROPABA SC. ÓTIMO LOCAL PARA MORAR OU INVESTIR.**
+  - 💰 R$ 465.000 | 📐 367 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-garopaba-sc-otimo-local-para-morar-ou-investir-1489166261
+
+- **Terreno à venda por R$ 650000.00, 420.00 m2 - RATONES - FLORIANOPOLIS/**
+  - 💰 R$ 650.000 | 📐 420 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-por-r-650000-00-420-00-m2-ratones-florianopolis-sc-1489165426
+
+- **Terreno à venda por R$ 384000.00, 230.00 m2 - INGLESES DO RIO VERMELHO**
+  - 💰 R$ 384.000 | 📐 230 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-por-r-384000-00-230-00-m2-ingleses-do-rio-vermelho-florianopolis-sc-1489165370
+
+- **Imóvel para venda tem 800 metros quadrados em Sambaqui - Florianópolis**
+  - 💰 R$ 690.000 | 📐 300 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-800-metros-quadrados-em-sambaqui-florianopolis-sc-1489008033
+
+- **Apartamento com 2 quartos à venda no Centro, Turvo**
+  - 💰 R$ 742.000 | 📐 180 m²
+  - 📍 Centro — Turvo
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-2-quartos-sc-turvo-centro-RS742000/id-40840134/
+
