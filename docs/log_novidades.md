@@ -54599,3 +54599,181 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-otimo-preco-dificil-de-achar-nesse-valor-1474906368
 
+
+## 🆕 35 novos anúncios — 27/03/2026 21:49
+
+- **"Refúgio Rural em Águas Mornas: Tranquilidade e Conforto"**
+  - 💰 R$ 800.000 | 📐 22400 m²
+  - 📍 Fazenda do Sacramento — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/refugio-rural-em-aguas-mornas-tranquilidade-e-conforto-1489440080
+
+- **Terreno Pronto para Construir a 6,6km da Praia da Gamboa  354,12m² | A**
+  - 💰 R$ 170.000 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-a-6-6km-da-praia-da-gamboa-354-12m-areias-paulo-lopes-s-1489436986
+
+- **Terreno de 300 m² à venda com vista para as Dunas da Gamboa | Praia da**
+  - 💰 R$ 185.000 | 📐 300 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300-m-a-venda-com-vista-para-as-dunas-da-gamboa-praia-da-gamboa-santa-catar-1489435612
+
+- **Terreno à venda com 106.000m² de área total por R$ 4.000.000,00 na Cos**
+  - 💰 R$ 4.000.000 | 📐 106000 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-106-000m-de-area-total-por-r-4-000-000-00-na-costa-de-dentro-panta-1489434676
+
+- **Terreno Urbano em Santa Rosa Do Sul**
+  - 💰 R$ 90.000 | 📐 612 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-em-santa-rosa-do-sul-1489429341
+
+- **Terreno Financiável 363,46m² à Venda | Localização Alto Padrão | Areia**
+  - 💰 R$ 470.000 | 📐 363 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-financiavel-363-46m-a-venda-localizacao-alto-padrao-areias-de-palhocinha-gar-1489429352
+
+- **Terreno de 562,70 m² à venda no Morro do Siriú | Lote 11  Siriú, Garop**
+  - 💰 R$ 350.000 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-562-70-m-a-venda-no-morro-do-siriu-lote-11-siriu-garopaba-sc-1489426122
+
+- **Terreno a venda em Barreiros - São José - SC**
+  - 💰 R$ 950.000 | 📐 60 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-barreiros-sao-jose-sc-1489422127
+
+- **TERRENO A VENDA CENTRO DE TUBARÃO**
+  - 💰 R$ 318.000 | 📐 408 m²
+  - 📍 Dehon — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-centro-de-tubarao-1489421501
+
+- **2 Lotes à Venda em Areias de Palhocinha | 330m² cada | Garopaba,  SC**
+  - 💰 R$ 320.000 | 📐 330 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-lotes-a-venda-em-areias-de-palhocinha-330m-cada-garopaba-sc-1489420269
+
+- **Terreno plano no Deltaville com 243m² próximo à área verde**
+  - 💰 R$ 380.000 | 📐 243 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-no-deltaville-com-243m-proximo-a-area-verde-1489419033
+
+- **Um Pedaço do Paraíso | 10.000 m² | Terreno com Vista Panorâmica e Cach**
+  - 💰 R$ 1.600.000 | 📐 10000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/um-pedaco-do-paraiso-10-000-m-terreno-com-vista-panoramica-e-cachoeira-macacu-gar-1489417836
+
+- **Terreno à venda, 25.461m² - Sertão do Imaruim, São José/SC.**
+  - 💰 R$ 13.500.000 | 📐 25461 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-25-461m-sertao-do-imaruim-sao-jose-sc-1489417709
+
+- **Terreno Comercial em Jardim Atlântico**
+  - 💰 R$ 1.276.000 | 📐 466 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-jardim-atlantico-1489405856
+
+- **BROGNOLI VENDE - TERRENO COM 750M² área nobre de Santo Antônio de Lisb**
+  - 💰 R$ 12.720.000 | 📐 750 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-terreno-com-750m-area-nobre-de-santo-antonio-de-lisboa-1489405814
+
+- **Lindo terreno próximo ao Centro de Garopaba**
+  - 💰 R$ 160.000 | 📐 1250 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-proximo-ao-centro-de-garopaba-1489404709
+
+- **Terreno rural para venda em Loffelscheidt , 28,300m²**
+  - 💰 R$ 799.000 | 📐 28300 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-para-venda-em-loffelscheidt-28-300m-1489400806
+
+- **Terreno urbano à venda no Loteamento Altos de Santa Helena 360m²**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-a-venda-no-loteamento-altos-de-santa-helena-360m-1489400706
+
+- **Lote. Terreno**
+  - 💰 R$ 85.000 | 📐 580 m²
+  - 📍  — Jacinto Machado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-1489396189
+
+- **Terreno próximo ao mar em Balneário Gaivota/SC**
+  - 💰 R$ 165.000 | 📐 ? m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-ao-mar-em-balneario-gaivota-sc-1489382926
+
+- **Lote à Venda no Acqua Condomínio Clube - Deltaville | Biguaçu/SC**
+  - 💰 R$ 210.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-acqua-condominio-clube-deltaville-biguacu-sc-1489379735
+
+- **Oportunidade! Terreno em Areias do Meio - Governador Celso Ramos**
+  - 💰 R$ 2.600 | 📐 444 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-areias-do-meio-governador-celso-ramos-1489374018
+
+- **Imóvel para venda tem 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1489372721
+
+- **Terreno em Garopaba - Campo Duna - Estrada Geral da Limpa (427,45 m2)**
+  - 💰 R$ 200.000 | 📐 427450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-campo-duna-estrada-geral-da-limpa-427-45-m2-1467121910
+
+- **Vendo chácara**
+  - 💰 R$ 385.000 | 📐 1680 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-chacara-1489359885
+
+- **Terreno 311m² no Reserva da Pedra - Pedra Branca**
+  - 💰 R$ 1.000.000 | 📐 324 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-311m-no-reserva-da-pedra-pedra-branca-1489349738
+
+- **Terreno no Loteamento Novo Horizonte II - Forquilhinhas**
+  - 💰 R$ 250.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-novo-horizonte-ii-forquilhinhas-1489349758
+
+- **Terreno no Loteamento Novo Horizonte II- Forquilhinhas**
+  - 💰 R$ 250.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-novo-horizonte-ii-forquilhinhas-1489349674
+
+- **Terreno 300m² com Academia - Pedra Branca**
+  - 💰 R$ 1.050.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-com-academia-pedra-branca-1489349621
+
+- **Terreno 324m² no Reserva da Pedra - Pedra Branca**
+  - 💰 R$ 1.000.000 | 📐 324 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-324m-no-reserva-da-pedra-pedra-branca-1489349628
+
+- **Terreno 312m² no Reserva da Pedra - Pedra Branca**
+  - 💰 R$ 1.200.000 | 📐 312 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-312m-no-reserva-da-pedra-pedra-branca-1489349647
+
+- **Terreno 360m² - Vivenda dos Açores**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-vivenda-dos-acores-1489349656
+
+- **Lote 458m² à Venda na Praia do Rosa | 2km da Praia do Rosa | 1km da La**
+  - 💰 R$ 350.000 | 📐 458 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-458m-a-venda-na-praia-do-rosa-2km-da-praia-do-rosa-1km-da-lagoa-ibiraquera-imbi-1489423088
+
+- **Terreno Pronto para Construir de 255m² à venda no Bairro Freitas, Paul**
+  - 💰 R$ 139.500 | 📐 220 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-de-255m-a-venda-no-bairro-freitas-paulo-lopes-sc-1489411457
+
+- **Chácara Rural em Nova Trento (Pitanga) - 5 Quartos, 60.000 m², Mobilia**
+  - 💰 R$ 1.200.000 | 📐 400 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-rural-em-nova-trento-pitanga-5-quartos-60-000-m-mobiliada-1489363573
+
