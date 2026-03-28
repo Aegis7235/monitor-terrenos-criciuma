@@ -55143,3 +55143,156 @@
   - 📍 Jurerê — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-mar-de-toda-baia-de-jurere-possui-23-725m-prrivativos-r-14-000-000-0-1489504934
 
+
+## 🆕 30 novos anúncios — 28/03/2026 15:47
+
+- **Chacara com piscina e quadra de tênis**
+  - 💰 R$ 10.000 | 📐 70000 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-piscina-e-quadra-de-tenis-1489599895
+
+- **Terreno Residencial em Cacupé**
+  - 💰 R$ 6.000.000 | 📐 7488 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-cacupe-1489595715
+
+- **Terreno Comercial em Jardim Atlântico**
+  - 💰 R$ 1.276.000 | 📐 466 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-jardim-atlantico-1489595720
+
+- **campos á venda**
+  - 💰 R$ 1.000 | 📐 1000 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/campos-a-venda-1489594796
+
+- **AREA - CAMPECHE - SC**
+  - 💰 R$ 1.700.000 | 📐 536 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-campeche-sc-1489587737
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 2.500.000 | 📐 750 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1489587374
+
+- **Terreno no Alto Aririu**
+  - 💰 R$ 68.000 | 📐 155 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-alto-aririu-1489582323
+
+- **Sítio em Imaruí no bairro Rio Duna medindo 49.082m²**
+  - 💰 R$ 445.000 | 📐 49082 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-imarui-no-bairro-rio-duna-medindo-49-082m-1370921171
+
+- **Terreno em Imbituba, localizado no Loteamento Bosque Imbituba, situado**
+  - 💰 R$ 125.000 | 📐 433 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-localizado-no-loteamento-bosque-imbituba-situado-no-bairro-sambaqui-1388193593
+
+- **Terrenos á venda em Imbituba localizado no bairro Village, situado pró**
+  - 💰 R$ 477.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-em-imbituba-localizado-no-bairro-village-situado-proximo-ao-centro-1350050630
+
+- **Terreno em Imbituba, localizado no Loteamento Bosque imbituba**
+  - 💰 R$ 128.000 | 📐 314 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-localizado-no-loteamento-bosque-imbituba-1215316631
+
+- **?URGENTE - Terreno Comercial Rodovia - 30M Frente - Garagens/Hamburgue**
+  - 💰 R$ 280.000 | 📐 495 m²
+  - 📍 Maria Céu — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/urgente-terreno-comercial-rodovia-30m-frente-garagens-hamburgueria-1489571585
+
+- **Sítio para Venda em Santo Amaro da Imperatriz, Pagara, 3 dormitórios, **
+  - 💰 R$ 859.000 | 📐 200 m²
+  - 📍 Centro — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-santo-amaro-da-imperatriz-pagara-3-dormitorios-1-suite-2-banheiros-1489566289
+
+- **Terreno com 495m² com área plana pronta para construir, água e energia**
+  - 💰 R$ 70.000 | 📐 495 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-495m-com-area-plana-pronta-para-construir-agua-e-energia-eletrica-instalados-1456512810
+
+- **Terreno Rural para chácara em Aguas Mornas**
+  - 💰 R$ 195.000 | 📐 2356 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-para-chacara-em-aguas-mornas-1337711164
+
+- **Terreno à venda, Pedra Branca - Palhoça/SC**
+  - 💰 R$ 330.000 | 📐 304 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-pedra-branca-palhoca-sc-1489559587
+
+- **Chácara em Alto Varginha - São Pedro de Alcântara**
+  - 💰 R$ 600.000 | 📐 20001 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-alto-varginha-sao-pedro-de-alcantara-1489556904
+
+- **Chácara em Alto Varginha - São Pedro de Alcântara**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-alto-varginha-sao-pedro-de-alcantara-1489556927
+
+- **Lote / Terreno em Deltaville - Biguaçu**
+  - 💰 R$ 280.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-deltaville-biguacu-1489556924
+
+- **Terreno em Condominio em Santa Rita - Rancho Queimado**
+  - 💰 R$ 220.000 | 📐 110974 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-em-santa-rita-rancho-queimado-1489556926
+
+- **Chácara em Alto Varginha - São Pedro de Alcântara**
+  - 💰 R$ 600.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-alto-varginha-sao-pedro-de-alcantara-1489556860
+
+- **Imóvel para venda tem 9000 metros quadrados em Ribeirão da Ilha - Flor**
+  - 💰 R$ 3.200.000 | 📐 9000 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-9000-metros-quadrados-em-ribeirao-da-ilha-florianopolis-sc-1489556230
+
+- **Sítio em Anitápolis 35.000m2**
+  - 💰 R$ 300.000 | 📐 35000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-anitapolis-35-000m2-1489549907
+
+- **Terreno no Condomínio Moinho do Rio Vermelho**
+  - 💰 R$ 500.000 | 📐 450 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-moinho-do-rio-vermelho-1489533665
+
+- **Chácara / sítio à venda no Santa Luzia, Criciúma**
+  - 💰 R$ 123.500 | 📐 20 m²
+  - 📍 Santa Luzia — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-criciuma-santa-luzia-20m2-RS123500/id-40929442/
+
+- **Terrenos no Loteamento Reserva da Mata em Sangão, Criciúma!**
+  - 💰 R$ 112.000 | 📐 20 m²
+  - 📍 Sangão — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-criciuma-sangao-20m2-RS112000/id-40929462/
+
+- **Terreno em oferta especial no Loteamento Genebra, em Criciúma.**
+  - 💰 R$ 130.000 | 📐 20 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-criciuma-mina-do-mato-350m2-RS130000/id-40929441/
+
+- **Chácara / sítio à venda na Rua João Bento Nazário, --, Santa Luzia, Cr**
+  - 💰 R$ 113.600 | 📐 20 m²
+  - 📍 Santa Luzia — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-criciuma-santa-luzia-20m2-RS113600/id-40929461/
+
+- **Terreno na Primeira Linha: Loteamento Premium Portal da Primeira Linha**
+  - 💰 R$ 187.717 | 📐 20 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-criciuma-primeira-linha-16000m2-RS187717/id-40929438/
+
+- **Chácara / sítio à venda na Rua Pedro Claudino, --, Liri, Içara**
+  - 💰 R$ 170.000 | 📐 20 m²
+  - 📍 Liri — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-liri-20m2-RS170000/id-40929459/
+
