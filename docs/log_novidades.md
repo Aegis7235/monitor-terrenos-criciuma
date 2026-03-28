@@ -55035,3 +55035,111 @@
   - 📍 Ratones — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-por-r-650000-00-420-00-m2-ratones-florianopolis-sc-1489442408
 
+
+## 🆕 21 novos anúncios — 28/03/2026 09:52
+
+- **Terreno com 360 m² à venda - Carianos - Florianópolis / SC**
+  - 💰 R$ 595.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360-m-a-venda-carianos-florianopolis-sc-1489527974
+
+- **Terreno à venda, 1.862m² - Tapera - Florianópolis/SC**
+  - 💰 R$ 2.100.000 | 📐 1862 m²
+  - 📍 Tapera da Base — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1-862m-tapera-florianopolis-sc-1489527376
+
+- **Sítio à venda em Canelinha/SC**
+  - 💰 R$ 650.000 | 📐 2100 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-canelinha-sc-1489526594
+
+- **Terreno no bairro Estreito Florianópolis viabilidade para prédio misto**
+  - 💰 R$ 1.400.000 | 📐 465 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-estreito-florianopolis-viabilidade-para-predio-misto-comercial-e-resid-1489525646
+
+- **Terreno de 503 m² à venda na Av. das Torres, em São José/SC.**
+  - 💰 R$ 700.000 | 📐 504 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-503-m-a-venda-na-av-das-torres-em-sao-jose-sc-1489525555
+
+- **Terreno à venda, 1445 m² - Saco dos Limões - Florianópolis/SC**
+  - 💰 R$ 7.500.000 | 📐 1446 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1445-m-saco-dos-limoes-florianopolis-sc-1489524659
+
+- **Terreno a venda em Braço do Norte**
+  - 💰 R$ 170.000 | 📐 378 m²
+  - 📍  — Braço do Norte
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-braco-do-norte-1489522272
+
+- **Terreno no Deltaville com 258 m² no condomínio Blue fundo lago.**
+  - 💰 R$ 480.000 | 📐 258 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-com-258-m-no-condominio-blue-fundo-lago-1489521648
+
+- **Terreno Loteamento Nova Governador Celso Ramos**
+  - 💰 R$ 259.000 | 📐 375 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-nova-governador-celso-ramos-1489519819
+
+- **Terreno à venda, 400 m² por R$ 66.000,00 - Fundos - Biguaçu/SC**
+  - 💰 R$ 66.000 | 📐 400 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-400-m-por-r-66-000-00-fundos-biguacu-sc-1489519241
+
+- **Oportunidade! Terreno no Blue - Frente para o Lago**
+  - 💰 R$ 239.000 | 📐 151 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-no-blue-frente-para-o-lago-1489518770
+
+- **Terreno / Lote fundo lago em Condomínio fechado no Deltaville / Biguaç**
+  - 💰 R$ 239.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-fundo-lago-em-condominio-fechado-no-deltaville-biguacu-blue-condominio-1489518524
+
+- **Natureza em estado puro, pronta para se transformar em oportunidade**
+  - 💰 R$ 280.000 | 📐 20058 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/natureza-em-estado-puro-pronta-para-se-transformar-em-oportunidade-1489510934
+
+- **Sítio em São Pedro de Alcântara - paz, natureza e ar puro a poucos min**
+  - 💰 R$ 589.000 | 📐 27697 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-sao-pedro-de-alcantara-paz-natureza-e-ar-puro-a-poucos-minutos-da-grande-flori-1489510910
+
+- **Terreno à venda, 300 m² por R$ 265.000,00 - Guarda do Cubatão - Palhoç**
+  - 💰 R$ 265.000 | 📐 300 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-265-000-00-guarda-do-cubatao-palhoca-sc-1489509130
+
+- **Terreno Localizado no Recanto da Natureza - São José/SC**
+  - 💰 R$ 290.000 | 📐 312 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-no-recanto-da-natureza-sao-jose-sc-1489509035
+
+- **TERRENO EM LOCALIZAÇÃO ESTRATÉGICA PRÓXIMO À PRAIA NA CACHOEIRA DO BOM**
+  - 💰 R$ 900.000 | 📐 447 m²
+  - 📍 Ponta das Canas — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-localizacao-estrategica-proximo-praia-na-cachoeira-do-bom-jesus-florianopolis-1489508050
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 2.500.000 | 📐 750 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1489507784
+
+- **AREA - CAMPECHE - SC**
+  - 💰 R$ 1.700.000 | 📐 536 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-campeche-sc-1489507634
+
+- **OPORTUNIDADE NO RIO TAVARES | LOTE EM LOCALIZAÇÃO PRIVILEGIADA - R$1.2**
+  - 💰 R$ 1.200.000 | 📐 456 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-no-rio-tavares-lote-em-localizacao-privilegiada-r-1-200-000-00-1489506484
+
+- **Terreno com vista mar de toda baia de jurerê. Possui 23.725m² prrivati**
+  - 💰 R$ 14.000.000 | 📐 23725 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-mar-de-toda-baia-de-jurere-possui-23-725m-prrivativos-r-14-000-000-0-1489504934
+
