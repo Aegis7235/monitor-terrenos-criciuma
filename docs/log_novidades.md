@@ -55296,3 +55296,76 @@
   - 📍 Liri — Içara
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-liri-20m2-RS170000/id-40929459/
 
+
+## 🆕 14 novos anúncios — 28/03/2026 21:44
+
+- **TERRENO EM RESIDENCIAL DE ALTO PADRÃO EM ANTONIO CARLOS**
+  - 💰 R$ 231.106 | 📐 380 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-residencial-de-alto-padrao-em-antonio-carlos-1489668684
+
+- **Terreno em condomínio fechado em São José**
+  - 💰 R$ 350.000 | 📐 126 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-em-sao-jose-1489668666
+
+- **Terreno - 360 m2 - DeltaVille**
+  - 💰 R$ 370.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360-m2-deltaville-1489668662
+
+- **Terreno para Venda em Imbituba, Sambaqui**
+  - 💰 R$ 120.000 | 📐 400 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-sambaqui-1489650924
+
+- **Terreno Comercial em Jardim Atlântico**
+  - 💰 R$ 1.276.000 | 📐 466 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-jardim-atlantico-1489643204
+
+- **Chácara em canelinha sc**
+  - 💰 R$ 350.000 | 📐 3000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-canelinha-sc-1489640585
+
+- **Lote/Terreno à venda de alto padrão em Rancho Queimado (até 2 hectares**
+  - 💰 R$ 250.000 | 📐 20000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-a-venda-de-alto-padrao-em-rancho-queimado-ate-2-hectares-1466452568
+
+- **Vendo lote**
+  - 💰 R$ 66.000 | 📐 400 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-1489631228
+
+- **Terreno de esquina na Villa Toscana em Palhoça/SC**
+  - 💰 R$ 450.000 | 📐 354 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-na-villa-toscana-em-palhoca-sc-1489627313
+
+- **Terreno | Edícula Santo Amaro da Imperatriz 520m2**
+  - 💰 R$ 300.000 | 📐 520 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-edicula-santo-amaro-da-imperatriz-520m2-1489621399
+
+- **Lote COCAL DO SUL - Bairro Alfhaville**
+  - 💰 R$ 200.000 | 📐 405 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-cocal-do-sul-bairro-alfhaville-1489620401
+
+- **Terreno com 360 m² no bairro Campeche**
+  - 💰 R$ 1.280.000 | 📐 360 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360-m-no-bairro-campeche-1489613856
+
+- **Oportunidade Imperdível em Balneário Gaivota  Praia Areias Claras!**
+  - 💰 R$ 650.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-imperdivel-em-balneario-gaivota-praia-areias-claras-1489608666
+
+- **Aceito Permuta**
+  - 💰 R$ 1.000.000 | 📐 370 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aceito-permuta-1489604759
+
