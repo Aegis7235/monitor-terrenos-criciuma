@@ -55700,3 +55700,221 @@
   - 📍  — São João Batista
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-timbezinho-1457461906
 
+
+## 🆕 43 novos anúncios — 29/03/2026 15:46
+
+- **Sítio 12,000 m² pronto para morar!**
+  - 💰 R$ 650.000 | 📐 12000 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-12-000-m-pronto-para-morar-1489795389
+
+- **Lote em Condomínio fechado no DeltavilleMarine (Residencial Montenegro**
+  - 💰 R$ 48.500 | 📐 180000 m²
+  - 📍  — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-no-deltavillemarine-residencial-montenegro-1489787842
+
+- **terreno 140 metros no rio vermelho**
+  - 💰 R$ 60.000 | 📐 140 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-140-metros-no-rio-vermelho-1478673289
+
+- **Terreno pronto pra construção**
+  - 💰 R$ 79.999 | 📐 ? m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-pra-construcao-1480967990
+
+- **Terreno com vista mar**
+  - 💰 R$ 235.000 | 📐 400 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-mar-1429966456
+
+- **vendo lote em oficinas tubarão**
+  - 💰 R$ 235.000 | 📐 377 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-em-oficinas-tubarao-1489779513
+
+- **Oportunidade! Terreno em Vargem Pequena - Florianópolis**
+  - 💰 R$ 30.000 | 📐 50533 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-vargem-pequena-florianopolis-1471496178
+
+- **Terreno urbano**
+  - 💰 R$ 285.000 | 📐 450 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-1489774941
+
+- **Terreno pequeno de fundos**
+  - 💰 R$ 50.000 | 📐 42 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pequeno-de-fundos-1478229024
+
+- **Terreno Bairro Ratones 500m2**
+  - 💰 R$ 165.000 | 📐 500 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-ratones-500m2-1478191009
+
+- **Terreno 150m² em Biguaçu - Condomínio Blue**
+  - 💰 R$ 285.000 | 📐 150 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-150m-em-biguacu-condominio-blue-1489769787
+
+- **Lote com casa a venda, interessado chamar!!**
+  - 💰 R$ 35.000 | 📐 55 m²
+  - 📍 Monte Cristo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-com-casa-a-venda-interessado-chamar-1480085252
+
+- **Oportunidade! Terreno em Saco Grande - Florianópolis**
+  - 💰 R$ 40.000 | 📐 2400 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-saco-grande-florianopolis-1461567434
+
+- **Terreno no Condomínio Clube Costa do Sol - Bairro Delta Ville (Direto **
+  - 💰 R$ 260.000 | 📐 172 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-clube-costa-do-sol-bairro-delta-ville-direto-com-proprietario-1208381517
+
+- **PERMUTA área cachoeiras 94.551m2 em Vargem Grande, Florianópolis.**
+  - 💰 R$ 5.000.000 | 📐 94551 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/permuta-area-cachoeiras-94-551m2-em-vargem-grande-florianopolis-1472214331
+
+- **Vendo ou troco porteira fechada**
+  - 💰 R$ 250.000 | 📐 600 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-porteira-fechada-1478293124
+
+- **PERMUTA area 22 547 m2 em frente a praia do Forte,  Jurere/Florianópol**
+  - 💰 R$ 10.000.000 | 📐 22547 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/permuta-area-22-547-m2-em-frente-a-praia-do-forte-jurere-florianopolis-1472218373
+
+- **Terreno em loteamento**
+  - 💰 R$ 50.000 | 📐 362 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-1480227610
+
+- **Ótimo Terreno com escritura pública - Rio Tavares próximo da Dupão e r**
+  - 💰 R$ 876.000 | 📐 407 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-com-escritura-publica-rio-tavares-proximo-da-dupao-e-rua-pau-de-canela-1106615538
+
+- **Vendo ou troco terreno por carro**
+  - 💰 R$ 30.000 | 📐 ? m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-terreno-por-carro-1473333049
+
+- **Terreno 102 hectares em Anitápolis-SC**
+  - 💰 R$ 1.377.000 | 📐 1020000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-102-hectares-em-anitapolis-sc-1457265880
+
+- **Terreno no Norte da Ilha - Florianópolis - SC**
+  - 💰 R$ 35.000 | 📐 396 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-norte-da-ilha-florianopolis-sc-1474804565
+
+- **ANITÁPOLIS/SC - Belíssimo terreno com vista para serra geral 3hectares**
+  - 💰 R$ 260.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-belissimo-terreno-com-vista-para-serra-geral-3hectares-1269570167
+
+- **ANITÁPOLIS/SC - Lindo sítio pronto para morar 3hectares**
+  - 💰 R$ 500.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-sitio-pronto-para-morar-3hectares-1472345047
+
+- ***SUPER OPORTUNIDADE NA PRAIA DOS INGLESES  TERRENO EM CONDOMÍNIO FECHA**
+  - 💰 R$ 150.000 | 📐 195 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/super-oportunidade-na-praia-dos-ingleses-terreno-em-condominio-fechado-1479167461
+
+- **ANITÁPOLIS/SC - Belíssimo terreno para sítio com 10hectares**
+  - 💰 R$ 730.000 | 📐 100000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-belissimo-terreno-para-sitio-com-10hectares-1472344189
+
+- **Oportunidade! Terreno em Cachoeira do Bom Jesus - Florianópolis**
+  - 💰 R$ 1.200 | 📐 378 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-cachoeira-do-bom-jesus-florianopolis-1445339233
+
+- **ANITÁPOLIS/SC - Lindo sítio pronto para morar 2hectares**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-sitio-pronto-para-morar-2hectares-1472881044
+
+- **Terreno em Condomínio Altos de São José**
+  - 💰 R$ 360.000 | 📐 517 m²
+  - 📍 Roçado — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-altos-de-sao-jose-1489755273
+
+- **Terreno na vargem pequena só 250 mil aceito carro .**
+  - 💰 R$ 250.000 | 📐 335 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-vargem-pequena-so-250-mil-aceito-carro-1480423463
+
+- **Terreno de 450m² à venda no Ratones**
+  - 💰 R$ 400.000 | 📐 450 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-450m-a-venda-no-ratones-1475398359
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 1.850.000 | 📐 20 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1489753410
+
+- **Terreno residencial**
+  - 💰 R$ 249.000 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1489738425
+
+- **Terreno com escritura no bairro trindade**
+  - 💰 R$ 750.000 | 📐 360 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-no-bairro-trindade-1489738386
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 1.850.000 | 📐 20 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1489736436
+
+- **Terreno à venda na Rua Governador Ivo Sell, 235, Centro, Rancho Queima**
+  - 💰 R$ 681.200 | 📐 671 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-rua-governador-ivo-sell-235-centro-rancho-queimado-1489735304
+
+- **Terreno à venda na Rua Governador Ivo Sell, 235, Centro, Rancho Queima**
+  - 💰 R$ 750.955 | 📐 740 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-rua-governador-ivo-sell-235-centro-rancho-queimado-1489734848
+
+- **Terreno à venda na Rua Governador Ivo Sell, 235, Centro, Rancho Queima**
+  - 💰 R$ 903.090 | 📐 890 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-rua-governador-ivo-sell-235-centro-rancho-queimado-1489734844
+
+- **Terreno à venda na Rua Governador Ivo Sell, 235, Centro, Rancho Queima**
+  - 💰 R$ 740.906 | 📐 730 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-rua-governador-ivo-sell-235-centro-rancho-queimado-1489734817
+
+- **Lindos lotes fracionados em fazenda próximos ao município de Paulo Lop**
+  - 💰 R$ 95.000 | 📐 1000 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindos-lotes-fracionados-em-fazenda-proximos-ao-municipio-de-paulo-lopes-e-da-101-1479408269
+
+- **Terreno/ Lote de 150m² no Condomínio Costa Azul em Biguaçu**
+  - 💰 R$ 160.000 | 📐 150 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-de-150m-no-condominio-costa-azul-em-biguacu-1479952527
+
+- **Imóvel para venda possui 13000 metros quadrados com 20 quartos**
+  - 💰 R$ 4.200.000 | 📐 13000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-13000-metros-quadrados-com-20-quartos-1480089025
+
+- **Terrenos Rurais - Rancho Queimado**
+  - 💰 R$ 550.000 | 📐 20558 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-rurais-rancho-queimado-1413941906
+
