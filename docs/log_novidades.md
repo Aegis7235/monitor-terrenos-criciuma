@@ -55672,3 +55672,31 @@
   - 📍 Campeche — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-campeche-sc-1489662041
 
+
+## 🆕 5 novos anúncios — 29/03/2026 09:49
+
+- **Vende-se chácara completa**
+  - 💰 R$ 390.000 | 📐 1200 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-chacara-completa-1472962726
+
+- **Terreno com ótimo tamanho**
+  - 💰 R$ 250.000 | 📐 394 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-otimo-tamanho-1371836515
+
+- **Lugar perfeito para seu descanso !!!**
+  - 💰 R$ 450.000 | 📐 32000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lugar-perfeito-para-seu-descanso--1397287953
+
+- **Terreno plano com escritura ( 25% Entrada)**
+  - 💰 R$ 150.000 | 📐 324 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-com-escritura-25-entrada-1370498949
+
+- **OPORTUNIDADE *Terreno Timbezinho**
+  - 💰 R$ 125.000 | 📐 900 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-timbezinho-1457461906
+
