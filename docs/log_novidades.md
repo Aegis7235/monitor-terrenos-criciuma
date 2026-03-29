@@ -55918,3 +55918,51 @@
   - 📍  — Rancho Queimado
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-rurais-rancho-queimado-1413941906
 
+
+## 🆕 9 novos anúncios — 29/03/2026 21:42
+
+- **Terreno para sítio**
+  - 💰 R$ 80.000 | 📐 6000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-1489853031
+
+- **VENDO TERRENO EM FOZ DO IGAUÇU-PR**
+  - 💰 R$ 600.000 | 📐 ? m²
+  - 📍 Centro — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-foz-do-igaucu-pr-1489852343
+
+- **Terreno AMPLO para prédio ou pavilhão próximo ao centro Cricúma ACEITA**
+  - 💰 R$ 1.390.000 | 📐 945 m²
+  - 📍 Santo Antônio — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-para-predio-ou-pavilhao-proximo-ao-centro-cricuma-aceita-parcelamento-direto-1489833480
+
+- **Seu Refúgio no Campo! Chra em Imaruí por apenas 320.000,00**
+  - 💰 R$ 320.000 | 📐 2200 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-refugio-no-campo-chra-em-imarui-por-apenas-320-000-00-1489831993
+
+- **Vendo terreno na praia do rosa em Imbituba, SC**
+  - 💰 R$ 380.000 | 📐 1589 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-do-rosa-em-imbituba-sc-1489827918
+
+- **Terreno em Imaruí: para sítio em Imaruí  com Área: 2.972,13 e 1000**
+  - 💰 R$ 85.000 | 📐 2972130 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imarui-para-sitio-em-imarui-com-area-2-972-13-e-1000-1489821021
+
+- **TERRENO EM GAROPABA COM VISTA LAGOA E MAR**
+  - 💰 R$ 150.000 | 📐 452 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-com-vista-lagoa-e-mar-1469018782
+
+- **Chalé em Sítio Alfredo Wagner Alugo (mensal)**
+  - 💰 R$ 2.000 | 📐 40 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chale-em-sitio-alfredo-wagner-alugo-mensal-1489813128
+
+- **Terreno/Lote Primeira Linha Criciúma**
+  - 💰 R$ 90.000 | 📐 442 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-primeira-linha-criciuma-1489844205
+
