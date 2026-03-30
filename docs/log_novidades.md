@@ -55966,3 +55966,176 @@
   - 📍 Primeira Linha — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-primeira-linha-criciuma-1489844205
 
+
+## 🆕 34 novos anúncios — 30/03/2026 05:38
+
+- **Terreno 350 metros quadrados aproximado**
+  - 💰 R$ 250.000 | 📐 350 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-350-metros-quadrados-aproximado-1489931400
+
+- **SÍTIO - INGLESES DO RIO VERMELHO - SC**
+  - 💰 R$ 10.000.000 | 📐 650 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-ingleses-do-rio-vermelho-sc-1489912798
+
+- **Vendo terreno e aceitamos veículo como parte do pagamento. Ler descriç**
+  - 💰 R$ 300.000 | 📐 1863 m²
+  - 📍  — Praia Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-e-aceitamos-veiculo-como-parte-do-pagamento-ler-descricao-abaixo-1414567057
+
+- **Vendo terreno e aceitamos veículo como parte do pagamento. Ler descriç**
+  - 💰 R$ 100.000 | 📐 390 m²
+  - 📍  — Praia Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-e-aceitamos-veiculo-como-parte-do-pagamento-ler-descricao-abaixo-1424680949
+
+- **Barbada em Pescaria/Laguna! Lote/terreno plano com 203 m2**
+  - 💰 R$ 45.000 | 📐 203 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-em-pescaria-laguna-lote-terreno-plano-com-203-m2-1454614498
+
+- **Otima fazenda em Paulo lopes**
+  - 💰 R$ 8.000.000 | 📐 300 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-fazenda-em-paulo-lopes-1489894423
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 1.500.000 | 📐 722 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1489881846
+
+- **Terreno para Venda em Florianópolis, Coloninha**
+  - 💰 R$ 990.000 | 📐 462 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-coloninha-1489881632
+
+- **Terreno para Venda em Florianópolis, Pântano do Sul**
+  - 💰 R$ 1.500.000 | 📐 480 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1489881633
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 881.720 | 📐 375 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1489881569
+
+- **Terreno para Venda em Florianópolis, Cachoeira Do Bom Jesus**
+  - 💰 R$ 3.000.000 | 📐 300 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cachoeira-do-bom-jesus-1489881573
+
+- **Terreno para Venda em Florianópolis, Lagoa Da Conceição**
+  - 💰 R$ 3.300.000 | 📐 674 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-lagoa-da-conceicao-1489881568
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 1.500.000 | 📐 722 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1489881496
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 1.700.000 | 📐 722 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1489881446
+
+- **Terreno para Venda em Florianópolis, Ratones**
+  - 💰 R$ 2.500.000 | 📐 5280 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1489881429
+
+- **Terreno para Venda em Florianópolis, Coqueiros**
+  - 💰 R$ 2.660.000 | 📐 333 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-coqueiros-1489881445
+
+- **Terreno para Venda em Florianópolis, Coloninha**
+  - 💰 R$ 600.000 | 📐 240 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-coloninha-1489881431
+
+- **Terreno para Venda em Florianópolis, Canasvieiras**
+  - 💰 R$ 875.000 | 📐 450 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-canasvieiras-1489881434
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 883.083 | 📐 375 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1489881426
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 1.500.000 | 📐 682 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1489881290
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 881.720 | 📐 375 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1489881296
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 882.801 | 📐 375 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1489881294
+
+- **Terreno para Venda em Florianópolis, Pântano do Sul**
+  - 💰 R$ 1.200.000 | 📐 400 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1489881293
+
+- **Terreno na praia de fora.**
+  - 💰 R$ 330.000 | 📐 330 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-de-fora-1489880609
+
+- **Terreno**
+  - 💰 R$ 350.000 | 📐 306 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1489878288
+
+- **TERRENO COM LINDA VISTA.**
+  - 💰 R$ 78.000 | 📐 240 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-linda-vista-1489873298
+
+- **Terreno no Bairro Campeche com escritura plública**
+  - 💰 R$ 1.600.000 | 📐 360 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-campeche-com-escritura-plublica-1489857571
+
+- **Terreno de 7mts de frente, por 20mts de fundo**
+  - 💰 R$ 120.000 | 📐 140 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-7mts-de-frente-por-20mts-de-fundo-1489854442
+
+- **Terreno para vender**
+  - 💰 R$ 170.000 | 📐 250 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-vender-1489847520
+
+- **Terreno no Bairro Ribeirão da Ilha com escritura pública**
+  - 💰 R$ 670.000 | 📐 450 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-ribeirao-da-ilha-com-escritura-publica-1489845455
+
+- **Propriedade Serra Catarinense 7,7 Hectares**
+  - 💰 R$ 2.150.000 | 📐 7700 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/propriedade-serra-catarinense-7-7-hectares-1489835174
+
+- **Sítio São Bonifácio**
+  - 💰 R$ 175.000 | 📐 7200 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-sao-bonifacio-1489833987
+
+- **Lindo lote no bairro Alto Aririu**
+  - 💰 R$ 230.000 | 📐 458 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-lote-no-bairro-alto-aririu-1489829257
+
+- **Sítio santo Amaro da Imperatriz bairro sul do Rio**
+  - 💰 R$ 1.700 | 📐 70000000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-santo-amaro-da-imperatriz-bairro-sul-do-rio-1489825514
+
