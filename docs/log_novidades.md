@@ -56139,3 +56139,16 @@
   - 📍  — Santo Amaro da Imperatriz
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-santo-amaro-da-imperatriz-bairro-sul-do-rio-1489825514
 
+
+## 🆕 2 novos anúncios — 30/03/2026 10:30
+
+- **Terreno à venda no Loteamento Capão Bonito  Balneário Gaivota/SC**
+  - 💰 R$ 80.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-capao-bonito-balneario-gaivota-sc-1489933734
+
+- **SÍTIO - INGLESES DO RIO VERMELHO - SC**
+  - 💰 R$ 10.000.000 | 📐 650 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-ingleses-do-rio-vermelho-sc-1489932078
+
