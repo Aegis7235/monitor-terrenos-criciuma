@@ -56152,3 +56152,111 @@
   - 📍 Vargem do Bom Jesus — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-ingleses-do-rio-vermelho-sc-1489932078
 
+
+## 🆕 21 novos anúncios — 30/03/2026 16:18
+
+- **Sítio em Santo Amaro com escritura**
+  - 💰 R$ 1.600.000 | 📐 90000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-santo-amaro-com-escritura-1438813259
+
+- **Lote Seis, Criciúma.**
+  - 💰 R$ 250.000 | 📐 350 m²
+  - 📍 Lote Seis — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-seis-criciuma-1490018842
+
+- **Vendo sítio em Alfredo Wagner!**
+  - 💰 R$ 490.000 | 📐 5000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-alfredo-wagner-1490002460
+
+- **Terreno no bairro Arroio, no condomínio Ho?okipa, a 250 metros até a l**
+  - 💰 R$ 350.000 | 📐 480 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-arroio-no-condominio-ho-okipa-a-250-metros-ate-a-lagoa-1390459592
+
+- **Vendo sítio em Imarui (SC)**
+  - 💰 R$ 2.100.000 | 📐 ? m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-imarui-sc-1490000636
+
+- **Terreno a venda Florianopolis Real Parque**
+  - 💰 R$ 499.000 | 📐 450 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-florianopolis-real-parque-1490006865
+
+- **Terreno a beira mar na Armacao, beira mar, GovCel Ramos**
+  - 💰 R$ 599.000 | 📐 1194 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-beira-mar-na-armacao-beira-mar-govcel-ramos-923699881
+
+- **Belo Terrno em Área Industrial no Calemba - Santo Amaro da Imperatriz **
+  - 💰 R$ 4.000.000 | 📐 8615 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-terrno-em-area-industrial-no-calemba-santo-amaro-da-imperatriz-sc-1490000802
+
+- **Chácara**
+  - 💰 R$ 100.000 | 📐 5200 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-1374108541
+
+- **Chácara em Rancho Queimado - SC**
+  - 💰 R$ 650.000 | 📐 109 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-rancho-queimado-sc-1489999125
+
+- **EXCELENTE TERRENO Á VENDA NA PRAIA DA DANIELA 200M DA PRAIA**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-a-venda-na-praia-da-daniela-200m-da-praia-1489998928
+
+- **Vendo ou troco sítio em São Pedro de Alcântara**
+  - 💰 R$ 1.200.000 | 📐 20000 m²
+  - 📍 Picadas do Sul — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-sitio-em-sao-pedro-de-alcantara-1489997272
+
+- **Terreno Altos do Jardim - melhor preço direto proprietário.**
+  - 💰 R$ 259.000 | 📐 425 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-altos-do-jardim-melhor-preco-direto-proprietario-1489994833
+
+- **Belo sitio em Rancho Queimado - SC**
+  - 💰 R$ 2.000.000 | 📐 63000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-rancho-queimado-sc-1489994179
+
+- **Jazigo**
+  - 💰 R$ 10.000 | 📐 ? m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jazigo-1489994059
+
+- **Lote à venda em Areias  Tijucas/SC**
+  - 💰 R$ 500.000 | 📐 250 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-em-areias-tijucas-sc-1489984649
+
+- **Terreno**
+  - 💰 R$ 60.000 | 📐 110 m²
+  - 📍 Costeira do Pirajubaé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1489977720
+
+- **Terreno Nova Palhoça 482m2**
+  - 💰 R$ 529.000 | 📐 482 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nova-palhoca-482m2-1456394089
+
+- **Terreno com 44.000,00m² totalmente plano à 500m do asfalto em Santo Am**
+  - 💰 R$ 1.500.000 | 📐 44000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-44-000-00m-totalmente-plano-a-500m-do-asfalto-em-santo-amaro-da-imperatriz-1473181599
+
+- **Tijucas SC - 65 milhoes**
+  - 💰 R$ 65.000.000 | 📐 58428 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tijucas-sc-65-milhoes-1472663708
+
+- **Chácara / sítio à venda no Sanga Danta, São João do Sul**
+  - 💰 R$ 210.000 | 📐 15000 m²
+  - 📍 Sanga Danta — São João do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sao-joao-do-sul-sanga-danta-15000m2-RS210000/id-40951169/
+
