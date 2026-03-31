@@ -56746,3 +56746,351 @@
   - 📍 Pedra Branca — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-reserva-da-pedra-pedra-branca-1490128272
 
+
+## 🆕 69 novos anúncios — 31/03/2026 10:20
+
+- **Terreno pra sitio .Barbada!!!**
+  - 💰 R$ 210.000 | 📐 4600 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pra-sitio-barbada-1467417429
+
+- **Terreno em biguaçu 360²**
+  - 💰 R$ 295.000 | 📐 360 m²
+  - 📍 Bom Viver — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-biguacu-360-1490234577
+
+- **Terreno plano de frente para BR 101, em Palhoça, a 4 minutos do contor**
+  - 💰 R$ 1.900.000 | 📐 8500 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-de-frente-para-br-101-em-palhoca-a-4-minutos-do-contorno-viario-8500m-1353965770
+
+- **Lindo sítio, chácara em Mato Francês ao lado de Taquaras Rancho Queima**
+  - 💰 R$ 390.000 | 📐 25774 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-chacara-em-mato-frances-ao-lado-de-taquaras-rancho-queimado-nascente-acudes-1439659469
+
+- **Terreno na Barra da Lagoa, Florianópolis/SC**
+  - 💰 R$ 6.000.000 | 📐 31369 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-barra-da-lagoa-florianopolis-sc-1490234408
+
+- **Terreno em Canasvieiras, Florianópolis/SC**
+  - 💰 R$ 990.000 | 📐 600 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-canasvieiras-florianopolis-sc-1490234274
+
+- **Terreno na Praia do Forte, Florianópolis/SC**
+  - 💰 R$ 18.000.000 | 📐 15000 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-do-forte-florianopolis-sc-1490234187
+
+- **TERRENO DE ESQUINA 562,92m² NO BAIRRO - AREIAS - SÃO JOSÉ -SC**
+  - 💰 R$ 700.000 | 📐 563 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-562-92m-no-bairro-areias-sao-jose-sc-1490228110
+
+- **Terreno à venda no acesso à Praia do Ouvidor em Garopaba SC**
+  - 💰 R$ 2.130.000 | 📐 1482 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-acesso-a-praia-do-ouvidor-em-garopaba-sc-1490225228
+
+- **Terreno no Condomínio Rural Village Imperatriz - imv**
+  - 💰 R$ 300.000 | 📐 1530 m²
+  - 📍 Centro — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-rural-village-imperatriz-imv-1490225134
+
+- **Terreno à venda, 890 m² por R$ 550.000,00 - Presidente Vargas - Içara/**
+  - 💰 R$ 550.000 | 📐 891 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-890-m-por-r-550-000-00-presidente-vargas-icara-sc-1490224960
+
+- **Terreno à venda, 541,00 m² por R$ 420.000,00 - Primeira Linha - Criciú**
+  - 💰 R$ 420.000 | 📐 541 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-541-00-m-por-r-420-000-00-primeira-linha-criciuma-sc-1490224695
+
+- **Terreno à venda, 1465 m² por R$ 3.000.000,00 - Centro - Imbituba/SC**
+  - 💰 R$ 3.000.000 | 📐 1465 m²
+  - 📍 Centro — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1465-m-por-r-3-000-000-00-centro-imbituba-sc-1490224701
+
+- **Terreno à venda, 530 m² por R$ 665.000,00 - São Simão - Criciúma/SC**
+  - 💰 R$ 665.000 | 📐 530 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-530-m-por-r-665-000-00-sao-simao-criciuma-sc-1490224573
+
+- **Terreno à venda, 425 m² por R$ 383.000,00 - Zona Sul - Balneário Rincã**
+  - 💰 R$ 383.000 | 📐 425 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-425-m-por-r-383-000-00-zona-sul-balneario-rincao-sc-1490224575
+
+- **Terreno residencial**
+  - 💰 R$ 220.000 | 📐 360 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1490224270
+
+- **Terreno no bairro Raischaski, Içara**
+  - 💰 R$ 200.000 | 📐 431 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-raischaski-icara-1490224194
+
+- **Excelente terreno á venda, plano em condomínio fechado Reservas do Lag**
+  - 💰 R$ 319.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-a-venda-plano-em-condominio-fechado-reservas-do-lago-sc-300m-1490223450
+
+- **Terreno em Condomínio Fechado | Reserva das Pedras**
+  - 💰 R$ 950.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-reserva-das-pedras-1490223344
+
+- **Natureza em estado puro, pronta para se transformar em oportunidade**
+  - 💰 R$ 189.000 | 📐 20243 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/natureza-em-estado-puro-pronta-para-se-transformar-em-oportunidade-1490223291
+
+- **Lote em Loteamento Mares Garopaba - Gamboa - Garopaba/SC**
+  - 💰 R$ 679.550 | 📐 409 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-loteamento-mares-garopaba-gamboa-garopaba-sc-1490222432
+
+- **Fazenda em Estrada Geral do Moura - Moura - Canelinha/SC**
+  - 💰 R$ 14.989.530 | 📐 300000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-em-estrada-geral-do-moura-moura-canelinha-sc-1490222065
+
+- **Lote em Rua 41568 - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 320.000 | 📐 323 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-41568-praia-do-rosa-imbituba-sc-1490221570
+
+- **Lote em Estrada Geral do Rosa - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 3.000.000 | 📐 4500 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-estrada-geral-do-rosa-ibiraquera-imbituba-sc-1490220085
+
+- **Lote em Estrada Geral da Ibiraquera - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-estrada-geral-da-ibiraquera-ibiraquera-imbituba-sc-1490219746
+
+- **Lote em Rua Ivoni Jacinta da Silva - Bela Vista - Palhoça/SC**
+  - 💰 R$ 374.300 | 📐 611 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-ivoni-jacinta-da-silva-bela-vista-palhoca-sc-1490219674
+
+- **Lote em Rua Francisco Peruchi - Pio Corrêa - Criciúma/SC**
+  - 💰 R$ 424.860 | 📐 362 m²
+  - 📍 Mina Brasil — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-francisco-peruchi-pio-correa-criciuma-sc-1490219616
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.399.790 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1490217622
+
+- **Lote em BR 101 - Alto Arroio - Imbituba/SC**
+  - 💰 R$ 5.959.690 | 📐 50000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-br-101-alto-arroio-imbituba-sc-1490217277
+
+- **Sítio em Rodovia Governador Mário Covas - Cova Triste - Garopaba/SC**
+  - 💰 R$ 2.099.100 | 📐 400 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-rodovia-governador-mario-covas-cova-triste-garopaba-sc-1490216832
+
+- **Lote em Avenida Santa Catarina - Centro - Imbituba/SC**
+  - 💰 R$ 799.070 | 📐 380 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-avenida-santa-catarina-centro-imbituba-sc-1490216805
+
+- **Lote em Rodovia Luiz Rosso - Quarta Linha - Criciúma/SC**
+  - 💰 R$ 2.399.360 | 📐 4483 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rodovia-luiz-rosso-quarta-linha-criciuma-sc-1490216652
+
+- **Lote em Rua da pousada da vida sol e mar - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 750.000 | 📐 514 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-da-pousada-da-vida-sol-e-mar-praia-do-rosa-imbituba-sc-1490216115
+
+- **Lote em condomínio em Rua Esperança - Araçatuba - Imbituba/SC**
+  - 💰 R$ 749.350 | 📐 831 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-em-rua-esperanca-aracatuba-imbituba-sc-1490213545
+
+- **Lote em IMB 407 - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 1.695.610 | 📐 5000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-imb-407-ibiraquera-imbituba-sc-1490213450
+
+- **Lote em Loteamento Mares Garopaba - Gamboa - Garopaba/SC**
+  - 💰 R$ 889.250 | 📐 500 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-loteamento-mares-garopaba-gamboa-garopaba-sc-1490213155
+
+- **Lote em Rua Antônio Bittencourt Capanema 858 - Itapeva - Imaruí/SC**
+  - 💰 R$ 651.000 | 📐 30000 m²
+  - 📍 Centro — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-bittencourt-capanema-858-itapeva-imarui-sc-1490213096
+
+- **Chácara à venda em Joáia Tijucas: 4 quartos, 167m², R$3.500.000**
+  - 💰 R$ 3.500.000 | 📐 167 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-em-joaia-tijucas-4-quartos-167m-r-3-500-000-1490212538
+
+- **Chácara para Alugar em Joáia Tijucas, 4 Quartos, 167m²**
+  - 💰 R$ 4.950 | 📐 167 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-para-alugar-em-joaia-tijucas-4-quartos-167m-1490212515
+
+- **TERRENO 450M² EM JURERÊ INTERNACIONAL**
+  - 💰 R$ 2.450.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450m-em-jurere-internacional-1490211492
+
+- **TERRENO 450M² EM JURERÊ INTERNACIONAL**
+  - 💰 R$ 3.500.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450m-em-jurere-internacional-1490211340
+
+- **Terreno Em Condominio em Pedra Branca - Palhoça, SC**
+  - 💰 R$ 850.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-em-pedra-branca-palhoca-sc-1490210456
+
+- **Terreno com Viabilidade AMS e ARP ideal para investimento e construtor**
+  - 💰 R$ 2.500.000 | 📐 4215 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-ams-e-arp-ideal-para-investimento-e-construtoras-1490208615
+
+- **Terreno 735 mt2 com vista próximo a praia e ao Centro - Garopaba/SC**
+  - 💰 R$ 1.515.000 | 📐 735 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-735-mt2-com-vista-proximo-a-praia-e-ao-centro-garopaba-sc-1490208664
+
+- **Terreno 450 m² condomínio fechado**
+  - 💰 R$ 500.000 | 📐 450 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450-m-condominio-fechado-935604275
+
+- **Terreno Industrial em Nova Brasília, Imbituba!!!**
+  - 💰 R$ 7.400.000 | 📐 525 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-em-nova-brasilia-imbituba-1490238705
+
+- **Terreno à venda, 606 m² por R$ 532.000,00 - Faxinal - Balneário Rincão**
+  - 💰 R$ 532.000 | 📐 606 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-606-m-por-r-532-000-00-faxinal-balneario-rincao-sc-1490224792
+
+- **Terreno à venda, 609 m² por R$ 468.540,00 - Primeira Linha - Criciúma/**
+  - 💰 R$ 468.540 | 📐 610 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-609-m-por-r-468-540-00-primeira-linha-criciuma-sc-1490224632
+
+- **Casa para Venda em Içara, Zona Sul, 3 dormitórios, 1 suíte, 2 banheiro**
+  - 💰 R$ 850.000 | 📐 288 m²
+  - 📍 Zona Sul — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-icara-zona-sul-288m2-RS850000/id-40308750/
+
+- **Casa com 2 quartos à venda em Aurora, Içara**
+  - 💰 R$ 235.000 | 📐 53 m²
+  - 📍 Aurora — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-icara-aurora-53m2-RS235000/id-40562455/
+
+- **Casa com 2 quartos à venda em Tereza Cristina, Içara**
+  - 💰 R$ 300.000 | 📐 44 m²
+  - 📍 Tereza Cristina — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-icara-tereza-cristina-361m2-RS300000/id-38269723/
+
+- **Casa à venda, 332 m² por R$ 3.200.000,00 - Residencial Açores - Araran**
+  - 💰 R$ 3.200.000 | 📐 332 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-ararangua-caverazinho-515m2-RS3200000/id-37260433/
+
+- **Casa com 2 quartos à venda no Caverazinho, Araranguá**
+  - 💰 R$ 185.000 | 📐 47 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-ararangua-caverazinho-RS185000/id-27931487/
+
+- **Casa com 3 dormitórios à venda, 180 m²  - Coloninha - Araranguá/SC**
+  - 💰 R$ 690.000 | 📐 180 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-coloninha-408m2-RS690000/id-40635711/
+
+- **Casa para Venda em Sombrio, Centro, 4 dormitórios, 1 suíte, 4 banheiro**
+  - 💰 R$ 2.200.000 | 📐 ? m²
+  - 📍 Centro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-sombrio-centro-RS2200000/id-25603041/
+
+- **Casa para Venda em Sombrio, Januária, 2 dormitórios, 1 banheiro, 1 vag**
+  - 💰 R$ 300.000 | 📐 364 m²
+  - 📍 Januária — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-januaria-364m2-RS300000/id-29604068/
+
+- **Casa para Venda em Sombrio, Parque das Avenidas, 3 dormitórios, 1 suít**
+  - 💰 R$ 600.000 | 📐 19191 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-parque-das-avenidas-RS600000/id-25603032/
+
+- **Casa para Venda em Sombrio, Januária, 5 dormitórios, 2 banheiros, 4 va**
+  - 💰 R$ 690.000 | 📐 420 m²
+  - 📍 Januária — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-sc-sombrio-januaria-420m2-RS690000/id-25603106/
+
+- **Casa com 2 quartos à venda na Edson Ferreira de Souza, 52, Centro, Pas**
+  - 💰 R$ 498.000 | 📐 93 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-passo-de-torres-centro-RS498000/id-27394305/
+
+- **Casa com 3 quartos à venda no Centro, Passo de Torres**
+  - 💰 R$ 950.000 | 📐 202 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-passo-de-torres-centro-202m2-RS950000/id-23898733/
+
+- **Casa com 3 dormitórios à venda, 140 m² por R$ 410.000,00 - Lagoa Corta**
+  - 💰 R$ 410.000 | 📐 140 m²
+  - 📍 Lagoa Cortada — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-lagoa-cortada-300m2-RS410000/id-26894990/
+
+- **Casa sólida com piscina a 500 metros do mar – viva com conforto, luz e**
+  - 💰 R$ 680.000 | 📐 198 m²
+  - 📍 Centro — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-centro-198m2-RS680000/id-40763165/
+
+- **Casa com 3 quartos à venda na Lagoa Cortada, Balneário Gaivota**
+  - 💰 R$ 790.000 | 📐 100 m²
+  - 📍 Lagoa Cortada — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-lagoa-cortada-100m2-RS790000/id-40638767/
+
+- **Casa em Condomínio para Venda em Balneário Rincão, Vila Suiça, 3 dormi**
+  - 💰 R$ 1.950.000 | 📐 170 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-sc-balneario-rincao-lagoa-dos-esteves-387m2-RS1950000/id-40308846/
+
+- **Casa para Venda em Balneário Rincão, Centro, 4 dormitórios, 1 suíte, 3**
+  - 💰 R$ 1.150.000 | 📐 300 m²
+  - 📍 Centro — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-balneario-rincao-centro-380m2-RS1150000/id-32289150/
+
+- **na Lagoa dos Esteves no Balneário Rincão, 5 dormitórios, 2 vagas**
+  - 💰 R$ 1.000.000 | 📐 180 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-204m2-RS1000000/id-40308805/
+
+- **Casa em Condomínio para Venda em Balneário Rincão, Vila Suiça, 3 dormi**
+  - 💰 R$ 1.879.000 | 📐 227 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-388m2-RS1879000/id-32289081/
+
+- **Casa com 4 quartos à venda no Balneário Arroio Corrente, Jaguaruna , 1**
+  - 💰 R$ 750.000 | 📐 160 m²
+  - 📍 Balneário Arroio Corrente — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-jaguaruna-balneario-arroio-corrente-280m2-RS750000/id-40785957/
+
+- **Òtima Casa Mobiliada Pé na Areia Balneário Campo Bom / Jaguaruna**
+  - 💰 R$ 790.000 | 📐 132 m²
+  - 📍 Campo Bom — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-campo-bom-250m2-RS790000/id-40821409/
+
