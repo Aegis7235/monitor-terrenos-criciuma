@@ -57227,3 +57227,381 @@
   - 📍 Beira Rio — Biguaçu
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-deltaville-biguacu-sc-1490238829
 
+
+## 🆕 75 novos anúncios — 31/03/2026 21:53
+
+- **Terreno no Deltaville Marine Montenegro - Beira Rio**
+  - 💰 R$ 440.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-marine-montenegro-beira-rio-1490417974
+
+- **Terrenos à partir de 360 m² em Loteamento Nova Governador**
+  - 💰 R$ 215.030 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-partir-de-360-m-em-loteamento-nova-governador-1490417928
+
+- **Sítio com 127 mil m² e infraestrutura incrível em Biguaçu**
+  - 💰 R$ 2.200.000 | 📐 127000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-127-mil-m-e-infraestrutura-incrivel-em-biguacu-1490417961
+
+- **Terreno / Lote no Loteamento Deltaville Marine- Montenegro**
+  - 💰 R$ 267.057 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-no-loteamento-deltaville-marine-montenegro-1490417922
+
+- **Terreno 360m² (15x24) no Bairro Rio Caveiras - Biguaçu**
+  - 💰 R$ 429.000 | 📐 360 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-15x24-no-bairro-rio-caveiras-biguacu-1490417945
+
+- **Terrenos à partir de 760 m² no Fly Ville em Gov Celso Ramos**
+  - 💰 R$ 676.922 | 📐 760 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-partir-de-760-m-no-fly-ville-em-gov-celso-ramos-1490417959
+
+- **Terreno 150 m² com lago no fundo, Condomínio Blue- Biguaçu**
+  - 💰 R$ 300.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-150-m-com-lago-no-fundo-condominio-blue-biguacu-1490417967
+
+- **Terreno / Lote no Condomínio Blue no Deltaville em Biguaçu**
+  - 💰 R$ 361.200 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-no-condominio-blue-no-deltaville-em-biguacu-1490417936
+
+- **Terreno/ Lote no Loteamento Deltaville Marine em Biguaçu**
+  - 💰 R$ 834.152 | 📐 552 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-no-loteamento-deltaville-marine-em-biguacu-1490417952
+
+- **Terreno / Lote de 150 m² a venda no Condomínio BLUE - Deltaville - Big**
+  - 💰 R$ 239.000 | 📐 151 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-de-150-m-a-venda-no-condominio-blue-deltaville-biguacu-1490417935
+
+- **Terreno / Lote de 200m² a venda no Condomínio BLUE - Biguaçu**
+  - 💰 R$ 374.900 | 📐 200 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-de-200m-a-venda-no-condominio-blue-biguacu-1490417926
+
+- **Sítio com nascente de água em Fazendinha de Dentro- Biguaçu**
+  - 💰 R$ 499.900 | 📐 100 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-nascente-de-agua-em-fazendinha-de-dentro-biguacu-1490417887
+
+- **Terreno no Blue Clube - Beira Rio**
+  - 💰 R$ 270.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-blue-clube-beira-rio-1490417934
+
+- **Terreno/ Lote de 150 m² no Condomínio Blue- Biguaçu**
+  - 💰 R$ 320.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-de-150-m-no-condominio-blue-biguacu-1490417932
+
+- **Terreno de esquina em Deltaville Blue com lago nos Fundos**
+  - 💰 R$ 250.000 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-deltaville-blue-com-lago-nos-fundos-1490417919
+
+- **Terreno / Lote de 360 m² a venda no Condomínio Marine Deltaville - Big**
+  - 💰 R$ 410.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-de-360-m-a-venda-no-condominio-marine-deltaville-biguacu-1490417927
+
+- **SÍTIO PARA LOCAÇÃO EM RIO BONITO**
+  - 💰 R$ 4.500 | 📐 145392 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-locacao-em-rio-bonito-1490408336
+
+- **Terreno ( Em loteamento) à Venda, 365m² - Bairro VILA NOVA em Cocal do**
+  - 💰 R$ 146.280 | 📐 365 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-365m-bairro-vila-nova-em-cocal-do-sul-1490407938
+
+- **Loteamento Vivenda São Joaquim em Tubarão/SC**
+  - 💰 R$ 131.411 | 📐 252 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-vivenda-sao-joaquim-em-tubarao-sc-966869252
+
+- **Terreno nas margens da BR 101, ótimo para construção de empresa**
+  - 💰 R$ 890.000 | 📐 14140 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nas-margens-da-br-101-otimo-para-construcao-de-empresa-983916654
+
+- **Terreno - Vila Moema - Tubarão/SC**
+  - 💰 R$ 1.200 | 📐 ? m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vila-moema-tubarao-sc-1416343270
+
+- **Vendo 2 lotes**
+  - 💰 R$ 390.000 | 📐 360 m²
+  - 📍 Areias — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-2-lotes-1490381289
+
+- **Vendo  ou troco por imóvel na grande Florianópolis sitio em Alfredo Wa**
+  - 💰 R$ 479.000 | 📐 30000 m²
+  - 📍 Madri — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-por-imovel-na-grande-florianopolis-sitio-em-alfredo-wagner-com-piscina-1253169252
+
+- **Terreno 400m² no Rio Grande - Palhoça | Ótima localização**
+  - 💰 R$ 425.000 | 📐 400 m²
+  - 📍 Rio Grande — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-400m-no-rio-grande-palhoca-otima-localizacao-1490359636
+
+- **Imóvel para venda tem 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1490347582
+
+- **Terreno com 1329.18m² de área total, no bairro Estreito - Florianópoli**
+  - 💰 R$ 3.000.000 | 📐 1329 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-1329-18m-de-area-total-no-bairro-estreito-florianopolis-sc-1490345572
+
+- **Terreno de 447m² na Cachoeira do Bom Jesus**
+  - 💰 R$ 900.000 | 📐 447 m²
+  - 📍 Ponta das Canas — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-447m-na-cachoeira-do-bom-jesus-1490345520
+
+- **Terreno Biguaçu 700m - próximo ao centro e a BR-101**
+  - 💰 R$ 1.000.000 | 📐 700 m²
+  - 📍 Universitário — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-biguacu-700m-proximo-ao-centro-e-a-br-101-1490345361
+
+- **Terreno de360 m² em Barreiros - São José**
+  - 💰 R$ 860.000 | 📐 360 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de360-m-em-barreiros-sao-jose-1490345401
+
+- **Terreno de 1312.48m² no bairro Córrego Grande**
+  - 💰 R$ 2.950.000 | 📐 3363 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1312-48m-no-bairro-corrego-grande-1490345388
+
+- **Terreno de 377,60 m² no bairro Campeche**
+  - 💰 R$ 849.000 | 📐 377 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-377-60-m-no-bairro-campeche-1490345369
+
+- **Terreno de 2.420m² com vista para a Baía de São José**
+  - 💰 R$ 1.300.000 | 📐 2420 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-420m-com-vista-para-a-baia-de-sao-jose-1490344874
+
+- **Terreno de 1.400m² no Campeche**
+  - 💰 R$ 5.100.000 | 📐 1367 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1-400m-no-campeche-1490344634
+
+- **Terreno urbano de 7.110m² em Santo Amaro da Imperatriz**
+  - 💰 R$ 2.300.000 | 📐 7110 m²
+  - 📍 Vila Becker — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-de-7-110m-em-santo-amaro-da-imperatriz-1490344498
+
+- **Terreno com 6.859,88 m2 no Rio Tavares.**
+  - 💰 R$ 4.995.000 | 📐 6859 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-6-859-88-m2-no-rio-tavares-1490344494
+
+- **Terreno com 65.739,70 m² no Ribeirão da Ilha**
+  - 💰 R$ 8.000.000 | 📐 65739 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-65-739-70-m-no-ribeirao-da-ilha-1490344502
+
+- **Terreno de 429m² no bairro Barreiros**
+  - 💰 R$ 852.000 | 📐 429 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-429m-no-bairro-barreiros-1490344495
+
+- **Terreno com 451,27 m² na Pedra Branca, Palhoça**
+  - 💰 R$ 790.000 | 📐 451 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-451-27-m-na-pedra-branca-palhoca-1490344499
+
+- **Terreno de 958m² no bairro Jardim Atlântico**
+  - 💰 R$ 2.600.000 | 📐 900 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-958m-no-bairro-jardim-atlantico-1490344254
+
+- **Terreno de 148m² no Estreito**
+  - 💰 R$ 2.000.000 | 📐 148 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-148m-no-estreito-1490344229
+
+- **Terreno de 360,12m² na Ponta de Baixo - São José**
+  - 💰 R$ 499.000 | 📐 360 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360-12m-na-ponta-de-baixo-sao-jose-1490344224
+
+- **Terreno de 916m² no João Paulo**
+  - 💰 R$ 1.990.000 | 📐 916 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-916m-no-joao-paulo-1490344230
+
+- **Lote no Rio vermelho com acesso para a lagoa**
+  - 💰 R$ 480.000 | 📐 362 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-rio-vermelho-com-acesso-para-a-lagoa-1490344070
+
+- **Terreno de 3.487,01m² no Itacorubi**
+  - 💰 R$ 5.000.000 | 📐 3487 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-3-487-01m-no-itacorubi-1490344044
+
+- **Terreno de 428,40m2 no bairro Jardim Atlântico**
+  - 💰 R$ 640.000 | 📐 428 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-428-40m2-no-bairro-jardim-atlantico-1490343725
+
+- **Área estratégica para operação empresarial - venda conjunta**
+  - 💰 R$ 3.390.000 | 📐 2155 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-estrategica-para-operacao-empresarial-venda-conjunta-1490343630
+
+- **Terreno de 1614.48m² no bairro Estreito**
+  - 💰 R$ 10.000.000 | 📐 1614 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1614-48m-no-bairro-estreito-1490343569
+
+- **Terreno com 450m² na Vargem do Bom Jesus, Florianópolis**
+  - 💰 R$ 530.000 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-450m-na-vargem-do-bom-jesus-florianopolis-1490343374
+
+- **TERRENO EM CONDOMÍNIO FECHADO NO BALNEÁRIO RINCÃO REF: 71359**
+  - 💰 R$ 430.000 | 📐 430 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-balneario-rincao-ref-71359-1490342960
+
+- **TERRENO A VENDA EM CONDOMÍNIO FECHADO EM CRICIUMA POSSUINDO INFRAESTRU**
+  - 💰 R$ 575.000 | 📐 20 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-em-criciuma-possuindo-infraestrutura-completa-ref-5-1490342948
+
+- **Studio com 1 dormitório e 1 vaga de garagem - Praia Grande, Governador**
+  - 💰 R$ 730.000 | 📐 34 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/studio-com-1-dormitorio-e-1-vaga-de-garagem-praia-grande-governador-celso-ramos-sc-ref-1490342934
+
+- **Sítio com 6 Hectares em Nova Trento REF: OU 2972**
+  - 💰 R$ 1.200.000 | 📐 60000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-6-hectares-em-nova-trento-ref-ou-2972-1490342936
+
+- **TERRENO A VENDA NO CONDOMÍNIO BOSQUE DE SANTA CLARA EM CRICIÚMA REF: 7**
+  - 💰 R$ 220.000 | 📐 464 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-bosque-de-santa-clara-em-criciuma-ref-72070-1490342925
+
+- **TERRENO A VENDA PRÓXIMO A LAGOA NO CONDOMÍNIO VILA SUÍÇA NA LAGOA DOS **
+  - 💰 R$ 1.050.000 | 📐 391 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-proximo-a-lagoa-no-condominio-vila-suica-na-lagoa-dos-esteves-em-balneario-1490342475
+
+- **TERRENO COM ESCRITURA NO PÂNTANO DO SUL**
+  - 💰 R$ 830.000 | 📐 800 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-no-pantano-do-sul-1490342348
+
+- **TERRENO A VENDA EM CRICIÚMA NO BAIRRO RIO MAINA PROX AO CAMPO VILA ISA**
+  - 💰 R$ 150.000 | 📐 400 m²
+  - 📍 Vila Isabel — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-no-bairro-rio-maina-prox-ao-campo-vila-isabel-ref-52321-1490342227
+
+- **Cobertura com 2 suítes e 1 vaga de garagem - Campeche Florianópolis/SC**
+  - 💰 R$ 1.950.000 | 📐 190 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/cobertura-com-2-suites-e-1-vaga-de-garagem-campeche-florianopolis-sc-ref-ou-6223-1490342118
+
+- **Terreno com 459m² no bairro São João do Rio Vermelho, Florianópolis/SC**
+  - 💰 R$ 550.000 | 📐 459 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-459m-no-bairro-sao-joao-do-rio-vermelho-florianopolis-sc-ref-te-6564-1490342154
+
+- **TERRENO A VENDA EM CONDOMÍNIO FECHADO EM CRICIÚMA POSSUINDO 589,49m² R**
+  - 💰 R$ 450.000 | 📐 20 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-em-criciuma-possuindo-589-49m-ref-45676-1490341873
+
+- **TERRENO GRANDE A VENDA EM CONDOMÍNIO FECHADO EM CRICIÚMA REF: 67257**
+  - 💰 R$ 270.000 | 📐 20 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-grande-a-venda-em-condominio-fechado-em-criciuma-ref-67257-1490341832
+
+- **TERRENO A VENDA NO LOTEAMENTO HUMBERTO LOCKS EM CRICIÚMA REF: 66847**
+  - 💰 R$ 250.000 | 📐 20 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-humberto-locks-em-criciuma-ref-66847-1490341859
+
+- **Sítio Paulo Lopes**
+  - 💰 R$ 180.000 | 📐 1000 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-paulo-lopes-1490336961
+
+- **Terreno de Esquina Praia Janaina**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-praia-janaina-1490334697
+
+- **Terreno na Região Central, excelente para moradia**
+  - 💰 R$ 210.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-regiao-central-excelente-para-moradia-1490334368
+
+- **Terreno na Região Central - Excelente Oportunidade**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-regiao-central-excelente-oportunidade-1490333819
+
+- **Terreno para Investimento à venda no Village Dunas 2, em Balneário Gai**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-a-venda-no-village-dunas-2-em-balneario-gaivota-1490333735
+
+- **Terreno a 450mt do mar para Investimento no Loteamento Valverde**
+  - 💰 R$ 65.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-450mt-do-mar-para-investimento-no-loteamento-valverde-1490333750
+
+- **Terreno a 700 mt do mar Pronto pra Construir, próximo do centro**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-700-mt-do-mar-pronto-pra-construir-proximo-do-centro-1490333721
+
+- **Oportunidade de investimento Pronto para Cosntruir no bairro Tropical,**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-pronto-para-cosntruir-no-bairro-tropical-em-balneario-gaivot-1490333711
+
+- **Oportunidade no Village Dunas Norte, Lote Alto e Cercado**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-no-village-dunas-norte-lote-alto-e-cercado-1490333538
+
+- **Terreno à venda no bairro Janaína, em Balneário Gaivota, uma das regiõ**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-janaina-em-balneario-gaivota-uma-das-regioes-mais-promissoras-1490333497
+
+- **Terreno à venda para investimento no bairro Tropical, em Balneário Gai**
+  - 💰 R$ 49.000 | 📐 325 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-para-investimento-no-bairro-tropical-em-balneario-gaivota-1490333541
+
+- **Terreno na Turimar poucos metros do mar**
+  - 💰 R$ 350.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-turimar-poucos-metros-do-mar-1490333543
+
+- **Terreno de frente para SC 401 com viabilidade ARP 3.5**
+  - 💰 R$ 1.450.000 | 📐 565 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-frente-para-sc-401-com-viabilidade-arp-3-5-1490332458
+
+- **Terrenos beira Mar Praia do Camacho**
+  - 💰 R$ 600.000 | 📐 1200 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-beira-mar-praia-do-camacho-1354921049
+
