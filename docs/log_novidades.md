@@ -57094,3 +57094,136 @@
   - 📍 Campo Bom — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-campo-bom-250m2-RS790000/id-40821409/
 
+
+## 🆕 26 novos anúncios — 31/03/2026 16:18
+
+- **Terreno em Imbituba (Arroio -Ibiraquera)**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Alto Arroio — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-arroio-ibiraquera-1490328675
+
+- **Terreno para alugar, 600 m² - Aririú - Palhoça/SC**
+  - 💰 R$ 4.900 | 📐 600 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-alugar-600-m-aririu-palhoca-sc-1490325332
+
+- **Terreno à Venda no Centro de Palhoça por R$2.500.000**
+  - 💰 R$ 2.500.000 | 📐 765 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-palhoca-por-r-2-500-000-1490325324
+
+- **TERRENO PARA LOCAÇÃO AV. BOM JESUS DE NAZARÉ ARIRIU | PALHOÇA/SC**
+  - 💰 R$ 40.000 | 📐 3 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-av-bom-jesus-de-nazare-aririu-palhoca-sc-1490325333
+
+- **Terreno Barra do Sambaqui**
+  - 💰 R$ 90.000 | 📐 220 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-barra-do-sambaqui-1490323782
+
+- **Sítio Maravilhosa estrutura Alfredo Wagner**
+  - 💰 R$ 830.000 | 📐 15000 m²
+  - 📍 Madri — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-maravilhosa-estrutura-alfredo-wagner-1490313104
+
+- **TERRENO 100% APROVEITADO PRÓXIMO AO CENTRO DE CANELINHA**
+  - 💰 R$ 380.000 | 📐 2055 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-100-aproveitado-proximo-ao-centro-de-canelinha-1490312278
+
+- **Terreno a venda em Balneário Arroio do Silva**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-balneario-arroio-do-silva-1490307872
+
+- **Oportunidade! Terreno à venda - Loteamento Mirante do Rincão**
+  - 💰 R$ 110.000 | 📐 376160 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-a-venda-loteamento-mirante-do-rincao-1490307294
+
+- **Vende-se ou troca lindo sítio na cidade de Imaruí no bairro forquilha **
+  - 💰 R$ 350.000 | 📐 1400 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-ou-troca-lindo-sitio-na-cidade-de-imarui-no-bairro-forquilha-do-rio-duna-1490305516
+
+- **Chacara na Lagoa da Serra com 1100m²**
+  - 💰 R$ 320.000 | 📐 1100 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-na-lagoa-da-serra-com-1100m-1490306049
+
+- **Lote Governador Celso Ramos - Parque das Vilas**
+  - 💰 R$ 235.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-governador-celso-ramos-parque-das-vilas-1490304164
+
+- **Oportunidade unica**
+  - 💰 R$ 390.000 | 📐 300 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-1449286389
+
+- **Lote com vista para as montanhas e verde**
+  - 💰 R$ 260.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-com-vista-para-as-montanhas-e-verde-1471119754
+
+- **Terreno de esquina**
+  - 💰 R$ 250.000 | 📐 450 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-1424553110
+
+- **? OPORTUNIDADE! CHÁCARA COM COMÉRCIO - RENDA GARANTIDA ? Pagará Grande**
+  - 💰 R$ 800.000 | 📐 1000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-chacara-com-comercio-renda-garantida-pagara-grande-1490271854
+
+- **Não é Golpe! 115 mil casa de interior - mini chácara**
+  - 💰 R$ 115.000 | 📐 710 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/nao-e-golpe-115-mil-casa-de-interior-mini-chacara-1490268795
+
+- **TERRENO EXCLUSIVO A VENDA 513M²- CACUPÉ - FLORIANÓPOLIS**
+  - 💰 R$ 1.690.000 | 📐 513 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-a-venda-513m-cacupe-florianopolis-1490267445
+
+- **Terreno a venda com 342m² no bairro Estreito em Florianópolis**
+  - 💰 R$ 1.580.000 | 📐 342 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-342m-no-bairro-estreito-em-florianopolis-1490267253
+
+- **Terreno no bairro Deltaville - Biguaçu**
+  - 💰 R$ 255.000 | 📐 161 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-deltaville-biguacu-1490264365
+
+- **Terreno à venda em Araranguá - Lagoa da Serra | 540m² | Próx. praias**
+  - 💰 R$ 115.000 | 📐 540 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-ararangua-lagoa-da-serra-540m-prox-praias-1490254142
+
+- **Terreno no Rosa Internacional**
+  - 💰 R$ 950.000 | 📐 508 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rosa-internacional-1490249134
+
+- **Sitio de alto padrão a venda em Nova Trento.**
+  - 💰 R$ 1.700.000 | 📐 350 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-alto-padrao-a-venda-em-nova-trento-1490245593
+
+- **terreno a venda em Garopaba**
+  - 💰 R$ 1.490.000 | 📐 1448 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-1490238866
+
+- **Sítio de 3.2 Hectares com 2 Casas e Abundância de Água em Biguaçu**
+  - 💰 R$ 850.000 | 📐 260 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-3-2-hectares-com-2-casas-e-abundancia-de-agua-em-biguacu-1490238832
+
+- **Lote à venda - Deltaville - Biguaçu/SC**
+  - 💰 R$ 300.000 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-deltaville-biguacu-sc-1490238829
+
