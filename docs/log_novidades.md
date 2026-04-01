@@ -57605,3 +57605,486 @@
   - 📍  — Jaguaruna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-beira-mar-praia-do-camacho-1354921049
 
+
+## 🆕 96 novos anúncios — 01/04/2026 05:39
+
+- **Terreno à venda em Palhoça/SC**
+  - 💰 R$ 1.890.000 | 📐 5700 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-palhoca-sc-1490495608
+
+- **Terreno à venda em Palhoça/SC**
+  - 💰 R$ 399.000 | 📐 360 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-palhoca-sc-1490495592
+
+- **Terreno à venda em Palhoça/SC**
+  - 💰 R$ 1.890.000 | 📐 5700 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-palhoca-sc-1490495600
+
+- **Fazenda de arroz à venda, 111.47 hectares de terreno e 95 hectares de **
+  - 💰 R$ 8.800.000 | 📐 950000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-de-arroz-a-venda-111-47-hectares-de-terreno-e-95-hectares-de-area-util-por-r-8-8-1490493804
+
+- **Terreno a 370mt do mar, oportunidade para moradia ou investimento próx**
+  - 💰 R$ 109.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-370mt-do-mar-oportunidade-para-moradia-ou-investimento-proximo-ao-mar-1490492556
+
+- **Terreno em ótima localização de Florianópolis**
+  - 💰 R$ 980.000 | 📐 750 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-otima-localizacao-de-florianopolis-1490492012
+
+- **Terreno Acolhedor! Condomínio porteira fechada codigo: 293392**
+  - 💰 R$ 995.000 | 📐 390 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-acolhedor-condominio-porteira-fechada-codigo-293392-1490490528
+
+- **TERRENO EM SÃO JOSÉ - FORQUILHAS codigo: 293188**
+  - 💰 R$ 450.000 | 📐 578 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sao-jose-forquilhas-codigo-293188-1490490240
+
+- **Terreno em "Santa Paula Royal Tênis" - Roçado - São José/SC**
+  - 💰 R$ 415.000 | 📐 481 m²
+  - 📍 Bosque das Mansões — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-santa-paula-royal-tenis-rocado-sao-jose-sc-1490489005
+
+- **CHÁCARA EM PAULO LOPES SC, BAIRRO PENHA À VENDA.**
+  - 💰 R$ 870.000 | 📐 50 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-paulo-lopes-sc-bairro-penha-venda-1490488404
+
+- **Terreno 150 m² com lago no fundo, Condomínio Blue- Biguaçu - PLC**
+  - 💰 R$ 300.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-150-m-com-lago-no-fundo-condominio-blue-biguacu-plc-1490479072
+
+- **Sítio com 127 mil m² e infraestrutura incrível em Biguaçu - PLC**
+  - 💰 R$ 2.200.000 | 📐 127000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-127-mil-m-e-infraestrutura-incrivel-em-biguacu-plc-1490479104
+
+- **Terreno situado na região da Praia de Fora, bairro Praia de Fora  Palh**
+  - 💰 R$ 1.900.000 | 📐 8497 m²
+  - 📍 Área Rural de Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-situado-na-regiao-da-praia-de-fora-bairro-praia-de-fora-palhoca-sc-1490478918
+
+- **Terreno / Lote no Condomínio Blue no Deltaville em Biguaçu - PLC**
+  - 💰 R$ 361.200 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-no-condominio-blue-no-deltaville-em-biguacu-plc-1490478828
+
+- **Terreno no Deltaville Marine Montenegro - Beira Rio - PLC**
+  - 💰 R$ 440.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-marine-montenegro-beira-rio-plc-1490478589
+
+- **Terreno 360m² (15x24) no Bairro Rio Caveiras - Biguaçu - PLC**
+  - 💰 R$ 429.000 | 📐 360 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-15x24-no-bairro-rio-caveiras-biguacu-plc-1490478594
+
+- **Terreno/ Lote no Loteamento Deltaville Marine em Biguaçu - PLC**
+  - 💰 R$ 834.152 | 📐 552 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-no-loteamento-deltaville-marine-em-biguacu-plc-1490478585
+
+- **Terreno / Lote no Loteamento Deltaville Marine- Montenegro - PLC**
+  - 💰 R$ 267.057 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-no-loteamento-deltaville-marine-montenegro-plc-1490478560
+
+- **Terreno / Lote de 200m² a venda no Condomínio BLUE - Biguaçu - PLC**
+  - 💰 R$ 374.900 | 📐 200 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-de-200m-a-venda-no-condominio-blue-biguacu-plc-1490478527
+
+- **Terreno Condomínio Garden Village**
+  - 💰 R$ 510.000 | 📐 565 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-garden-village-1490477518
+
+- **vento terreno barato**
+  - 💰 R$ 100.000 | 📐 320 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vento-terreno-barato-1490474710
+
+- **Oportunidade para construir com privacidade e conforto**
+  - 💰 R$ 415.000 | 📐 719 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-construir-com-privacidade-e-conforto-1490471722
+
+- **Sítio em nova Trento sc**
+  - 💰 R$ 950.000 | 📐 18000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-nova-trento-sc-1490470343
+
+- **Terreno 23.000,00 m² BR 401 em Florianópolis/SC**
+  - 💰 R$ 9.000.000 | 📐 23846 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-23-000-00-m-br-401-em-florianopolis-sc-1490464032
+
+- **Terreno em ótimo localização pra chácara**
+  - 💰 R$ 150.000 | 📐 ? m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-otimo-localizacao-pra-chacara-1490461219
+
+- **VILLA RATONES**
+  - 💰 R$ 1.500.000 | 📐 836 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/villa-ratones-1490459200
+
+- **Sítio com 3 hectares a venda em Àguas Mornas em Santa Catarina.**
+  - 💰 R$ 450.000 | 📐 31890 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-3-hectares-a-venda-em-guas-mornas-em-santa-catarina-1490458906
+
+- **VILLA RATONES**
+  - 💰 R$ 1.000.000 | 📐 595 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/villa-ratones-1490458278
+
+- **Terreno no Centro - Biguaçu**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-biguacu-1490454266
+
+- **Jazigo duplo no cemitério jardim da paz - oportunidade**
+  - 💰 R$ 5.500 | 📐 2 m²
+  - 📍 Santa Mônica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jazigo-duplo-no-cemiterio-jardim-da-paz-oportunidade-1490451954
+
+- **Terreno Garopaba vista mar Ferrugem**
+  - 💰 R$ 1.590.000 | 📐 3717 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-garopaba-vista-mar-ferrugem-1490448217
+
+- **ANITÁPOLIS/SC - Belíssimo terreno para sítio nas montanhas**
+  - 💰 R$ 220.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-belissimo-terreno-para-sitio-nas-montanhas-1490449167
+
+- **Terreno para Venda em Florianópolis, Capoeiras**
+  - 💰 R$ 1.100.000 | 📐 455 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-capoeiras-1490447952
+
+- **Terreno para Venda em Florianópolis, Capoeiras**
+  - 💰 R$ 800.000 | 📐 360 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-capoeiras-1490447969
+
+- **Terreno para Venda em Florianópolis, Capoeiras**
+  - 💰 R$ 800.000 | 📐 363 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-capoeiras-1490447947
+
+- **Terreno para Venda em Florianópolis, Daniela**
+  - 💰 R$ 990.000 | 📐 360 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-daniela-1490447694
+
+- **Terreno de 1.320m² à venda ao lado do Supermercardo Silveira**
+  - 💰 R$ 4.000.000 | 📐 1320 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1-320m-a-venda-ao-lado-do-supermercardo-silveira-1490447696
+
+- **Terreno à venda no bairro Ressacada - Garopaba/SC.**
+  - 💰 R$ 280.000 | 📐 352 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ressacada-garopaba-sc-1490447695
+
+- **Terreno para Venda em Florianópolis, Capoeiras**
+  - 💰 R$ 800.000 | 📐 371 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-capoeiras-1490447499
+
+- **Terreno para Venda em Florianópolis, Campeche**
+  - 💰 R$ 1.330.000 | 📐 360 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-campeche-1490447504
+
+- **Terreno para Venda em Florianópolis, Campeche**
+  - 💰 R$ 1.650.000 | 📐 420 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-campeche-1490447501
+
+- **Terreno para Venda em Florianópolis, Vargem do Bom Jesus**
+  - 💰 R$ 460.000 | 📐 476 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-do-bom-jesus-1490447097
+
+- **Terreno**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1490446072
+
+- **Terreno em condomínio na praia dos Ingleses com área de 487,78m²**
+  - 💰 R$ 745.000 | 📐 488 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-na-praia-dos-ingleses-com-area-de-487-78m-1490444539
+
+- **Terreno em condomínio na praia dos Ingleses com área de 487,78m²**
+  - 💰 R$ 745.000 | 📐 488 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-na-praia-dos-ingleses-com-area-de-487-78m-1490443741
+
+- **TERRENO ALTO ARIRIÚ - SERTÃOZINHO**
+  - 💰 R$ 160.000 | 📐 200 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-alto-aririu-sertaozinho-1490442328
+
+- **Terreno no Corrego Grande com 28.060 m² na Rua Vera Linhares de Andrad**
+  - 💰 R$ 6.000.000 | 📐 28060 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-corrego-grande-com-28-060-m-na-rua-vera-linhares-de-andrade-1490440731
+
+- **Terreno Residencial em Córrego Grande**
+  - 💰 R$ 2.980.000 | 📐 1312 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-corrego-grande-1490440509
+
+- **Terreno à venda, 450 m² em Saco Grande - Florianópolis - SC**
+  - 💰 R$ 797.000 | 📐 450 m²
+  - 📍 Monte Verde — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-em-saco-grande-florianopolis-sc-1490440495
+
+- **Vendo terreno no Sertão do Campo em Palhoça.**
+  - 💰 R$ 140.000 | 📐 600 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-sertao-do-campo-em-palhoca-1490436271
+
+- **Terreno no Deltaville Marine Montenegro - Beira Rio - JMS**
+  - 💰 R$ 440.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-marine-montenegro-beira-rio-jms-1490434680
+
+- **Terreno / Lote de 200m² a venda no Condomínio BLUE - Biguaçu - JMS**
+  - 💰 R$ 374.900 | 📐 200 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-de-200m-a-venda-no-condominio-blue-biguacu-jms-1490434650
+
+- **Chácara  em Alfredo Wagner, SC,por 350 mil .**
+  - 💰 R$ 350 | 📐 2591 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-alfredo-wagner-sc-por-350-mil-1490431787
+
+- **Terreno Comercial em Jardim Atlântico**
+  - 💰 R$ 1.276.000 | 📐 466 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-jardim-atlantico-1490430089
+
+- **Terreno com 300m² a venda em Barreiros, São José/SC!**
+  - 💰 R$ 480.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-300m-a-venda-em-barreiros-sao-jose-sc-1490429975
+
+- **BROGNOLI VENDE - TERRENO COM 450M2 - JURERÊ INTERNACIONAL**
+  - 💰 R$ 3.300.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-terreno-com-450m2-jurere-internacional-1490429985
+
+- **Terreno Residencial em Ingleses do Rio Vermelho**
+  - 💰 R$ 450.000 | 📐 507 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-ingleses-do-rio-vermelho-1490429907
+
+- **Terreno escritura e viabilidade Açores. Pantano do Sul**
+  - 💰 R$ 720.000 | 📐 382 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escritura-e-viabilidade-acores-pantano-do-sul-1490429893
+
+- **TERRENO EM CONDOMÍNIO À VENDA - 294m² - BELA VISTA - PALHOÇA**
+  - 💰 R$ 260.000 | 📐 294 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-venda-294m-bela-vista-palhoca-1490429800
+
+- **Terreno escritura e viabilidade Açores. Pantano do Sul**
+  - 💰 R$ 720.000 | 📐 380 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escritura-e-viabilidade-acores-pantano-do-sul-1490429914
+
+- **Terreno Açores Pantano do Sul Financiavel com viabilidade .**
+  - 💰 R$ 1.050.000 | 📐 546 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-acores-pantano-do-sul-financiavel-com-viabilidade-1490429798
+
+- **Terreno escritura e viabilidade Açores. Pantano do Sul**
+  - 💰 R$ 750.000 | 📐 385 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escritura-e-viabilidade-acores-pantano-do-sul-1490429858
+
+- **Terreno plano com área de 217m² no Loteamento PARQUE RESIDENCIAL BELA **
+  - 💰 R$ 295.000 | 📐 217 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-com-area-de-217m-no-loteamento-parque-residencial-bela-vista-1490429881
+
+- **Terreno escritura e viabilidade Açores. Pantano do Sul**
+  - 💰 R$ 905.000 | 📐 400 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escritura-e-viabilidade-acores-pantano-do-sul-1490429913
+
+- **Terreno com 240m² no bairro Capoeiras em Florianópolis / SC**
+  - 💰 R$ 745.000 | 📐 240 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-240m-no-bairro-capoeiras-em-florianopolis-sc-1490429843
+
+- **Terreno Residencial em Deltaville**
+  - 💰 R$ 200.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-deltaville-1490429875
+
+- **Terreno Carianos com 720 m²**
+  - 💰 R$ 1.500.000 | 📐 720 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-carianos-com-720-m-1490429872
+
+- **Terreno escritura e viabilidade Açores. Pantano do Sul**
+  - 💰 R$ 880.000 | 📐 397 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escritura-e-viabilidade-acores-pantano-do-sul-1490429865
+
+- **Terreno de esquina na Serraria SJ com 434 m2**
+  - 💰 R$ 434.000 | 📐 434 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-na-serraria-sj-com-434-m2-1490429776
+
+- **Terreno Financiavel Praia dos Açores Pantano do Sul.**
+  - 💰 R$ 930.000 | 📐 413 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-financiavel-praia-dos-acores-pantano-do-sul-1490429824
+
+- **Brognoli Vende- Terreno de 364m2 " São João do Rio Vermelho" Florianóp**
+  - 💰 R$ 371.000 | 📐 364 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-terreno-de-364m2-sao-joao-do-rio-vermelho-florianopolis-1490429814
+
+- **Terreno no Campeche com 787 m²**
+  - 💰 R$ 2.500.000 | 📐 787 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-campeche-com-787-m-1490429832
+
+- **Terreno escritura e viabilidade Açores. Pantano do Sul**
+  - 💰 R$ 750.000 | 📐 394 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escritura-e-viabilidade-acores-pantano-do-sul-1490429834
+
+- **Terreno residencial com vista mar,bem localizado**
+  - 💰 R$ 430.000 | 📐 360 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-com-vista-mar-bem-localizado-1490429772
+
+- **OPORTUNIDADE! TERRENO BEM LOCALIZADO  (Próximo à lagoa, praias e entre**
+  - 💰 R$ 65.000 | 📐 ? m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-bem-localizado-proximo-a-lagoa-praias-e-entre-outros-1490429750
+
+- **Terreno 720m2 para venda no bairro Jardim Cidade de De Florianópolis e**
+  - 💰 R$ 1.200.000 | 📐 720 m²
+  - 📍 Jardim Cidade de Florianópolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-720m2-para-venda-no-bairro-jardim-cidade-de-de-florianopolis-em-sao-jose-sc-1490429410
+
+- **Terreno a venda no Loteamento Real Parque, norte da ilha de Florianópo**
+  - 💰 R$ 624.888 | 📐 450 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-real-parque-norte-da-ilha-de-florianopolis-sc-1490429422
+
+- **Terreno Pagani, próximo a Prefeitura de Palhoça**
+  - 💰 R$ 1.500.000 | 📐 871 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pagani-proximo-a-prefeitura-de-palhoca-1490429383
+
+- **Terreno escritura e viabilidade Açores. Pantano do Sul**
+  - 💰 R$ 750.000 | 📐 391 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escritura-e-viabilidade-acores-pantano-do-sul-1490429393
+
+- **Terreno Residencial em Córrego Grande**
+  - 💰 R$ 2.980.000 | 📐 1312 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-corrego-grande-1490429366
+
+- **Terreno Comercial em Ratones**
+  - 💰 R$ 1.900.000 | 📐 3657 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-ratones-1490429338
+
+- **Terreno de esquina em condomínio Fechado, bairro Beira Rio (Delta Vill**
+  - 💰 R$ 245.000 | 📐 172 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-condominio-fechado-bairro-beira-rio-delta-ville-na-cidade-de-bigu-1490429344
+
+- **Brognoli Vende: Terreno de 375m² com Escritura Pública em Florianópoli**
+  - 💰 R$ 495.396 | 📐 375 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-terreno-de-375m-com-escritura-publica-em-florianopolis-1490429352
+
+- **Terreno a venda no Loteamento Real Parque, norte da ilha de Florianópo**
+  - 💰 R$ 624.888 | 📐 450 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-real-parque-norte-da-ilha-de-florianopolis-sc-1490429320
+
+- **Terreno à venda, 450 m² em Saco Grande - Florianópolis - SC**
+  - 💰 R$ 797.000 | 📐 450 m²
+  - 📍 Monte Verde — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-em-saco-grande-florianopolis-sc-1490429325
+
+- **Terreno com escritura Pública - Praia do Campeche SC**
+  - 💰 R$ 2.445.000 | 📐 533 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-praia-do-campeche-sc-1490429326
+
+- **Terreno de esquina em condomínio Fechado, bairro Beira Rio (Delta Vill**
+  - 💰 R$ 255.000 | 📐 172 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-condominio-fechado-bairro-beira-rio-delta-ville-na-cidade-de-bigu-1490429103
+
+- **Terreno escritura e viabilidade Açores. Pantano do Sul**
+  - 💰 R$ 750.000 | 📐 387 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escritura-e-viabilidade-acores-pantano-do-sul-1490429116
+
+- **Terreno escritura e viabilidade Açores. Pantano do Sul**
+  - 💰 R$ 750.000 | 📐 386 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escritura-e-viabilidade-acores-pantano-do-sul-1490428369
+
+- **Terreno residencial com vista mar na Ponta de Baixo**
+  - 💰 R$ 430.000 | 📐 360 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-com-vista-mar-na-ponta-de-baixo-1490428368
+
+- **Terreno / Lote de 200m² a venda no Condomínio BLUE - Biguaçu**
+  - 💰 R$ 374.900 | 📐 200 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-de-200m-a-venda-no-condominio-blue-biguacu-1490426492
+
+- **Terreno no Deltaville Marine Montenegro - Beira Rio**
+  - 💰 R$ 440.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-marine-montenegro-beira-rio-1490425910
+
+- **Terreno Próximo do Centro da Cidade de Criciúma-Sc com Metragem 15 X 2**
+  - 💰 R$ 290.000 | 📐 375 m²
+  - 📍 Lote Seis — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-do-centro-da-cidade-de-criciuma-sc-com-metragem-15-x-24-esquina-1490425843
+
+- **Terreno Financiável a Venda**
+  - 💰 R$ 390.000 | 📐 402 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-financiavel-a-venda-1490422631
+
+- **Troco por casa 3 quartos em Palhoça ou São José**
+  - 💰 R$ 450.000 | 📐 390 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/troco-por-casa-3-quartos-em-palhoca-ou-sao-jose-1490421526
+
+- **Apartamento com 2 dormitórios sendo 1 suíte e 1 vaga de garagem em Flo**
+  - 💰 R$ 900.000 | 📐 67 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/apartamento-com-2-dormitorios-sendo-1-suite-e-1-vaga-de-garagem-em-florianopolis-sc-ref-o-1490342737
+
