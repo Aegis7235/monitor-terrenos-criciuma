@@ -58088,3 +58088,131 @@
   - 📍 Jardim Atlântico — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/apartamento-com-2-dormitorios-sendo-1-suite-e-1-vaga-de-garagem-em-florianopolis-sc-ref-o-1490342737
 
+
+## 🆕 25 novos anúncios — 01/04/2026 10:18
+
+- **Terrenos para sítio a partir de 2 hectares em Águas Mornas-SC**
+  - 💰 R$ 230.000 | 📐 20000 m²
+  - 📍 Fazenda Bom Jesus — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-para-sitio-a-partir-de-2-hectares-em-aguas-mornas-sc-1473632350
+
+- **Terreno com residência, disponível para venda, localizado no Centro, c**
+  - 💰 R$ 900.000 | 📐 584 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-residencia-disponivel-para-venda-localizado-no-centro-cidade-palhoca-sc-1490513728
+
+- **Terreno com Vista para Lagoa | 357m² | Costa do Macacu - Garopaba**
+  - 💰 R$ 450.000 | 📐 357 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-lagoa-357m-costa-do-macacu-garopaba-1490513467
+
+- **Terreno - Florianópolis SC**
+  - 💰 R$ 1.350.000 | 📐 1435 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-florianopolis-sc-1490512123
+
+- **TERRENO - POTECAS - SC**
+  - 💰 R$ 385.000 | 📐 300 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-potecas-sc-1490507736
+
+- **Terreno à venda em Içara - Santa Eliza**
+  - 💰 R$ 98.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-santa-eliza-1490506305
+
+- **Terreno entre o mar e a Lagoa da Tapera**
+  - 💰 R$ 78.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-entre-o-mar-e-a-lagoa-da-tapera-1490505669
+
+- **TERRENO COM 200 METROS PRIVATIVOS EM LOCALIZAÇÃO ESTRATÉGICA NO ESTREI**
+  - 💰 R$ 1.200.000 | 📐 200 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-200-metros-privativos-em-localizacao-estrategica-no-estreito-florianopolis-1490502857
+
+- **Oportunidade! Terreno em Capoeiras - Florianópolis**
+  - 💰 R$ 8.000 | 📐 600 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-capoeiras-florianopolis-1490501228
+
+- **Oportunidade! Terreno em Jardim Cidade de Florianópolis - São José**
+  - 💰 R$ 2.300 | 📐 327 m²
+  - 📍 Jardim Cidade de Florianópolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-jardim-cidade-de-florianopolis-sao-jose-1490501223
+
+- **Oportunidade! Terreno em Estreito - Florianópolis**
+  - 💰 R$ 7.000 | 📐 290 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-estreito-florianopolis-1490501191
+
+- **Oportunidade! Terreno em Barreiros - São José**
+  - 💰 R$ 2.300 | 📐 637 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-barreiros-sao-jose-1490501190
+
+- **Oportunidade! Terreno em Jardim Cidade de Florianópolis - São José**
+  - 💰 R$ 1.000 | 📐 360 m²
+  - 📍 Jardim Cidade de Florianópolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-jardim-cidade-de-florianopolis-sao-jose-1490501177
+
+- **Oportunidade! Terreno em COQUEIROS - Florianópolis**
+  - 💰 R$ 6.600 | 📐 552 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-coqueiros-florianopolis-1490501182
+
+- **Oportunidade! Terreno em Ipiranga - São José**
+  - 💰 R$ 2.000 | 📐 300 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-ipiranga-sao-jose-1490501052
+
+- **Oportunidade! Terreno em Jardim Cidade de Florianópolis - São José**
+  - 💰 R$ 4.600 | 📐 780 m²
+  - 📍 Jardim Cidade de Florianópolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-jardim-cidade-de-florianopolis-sao-jose-1490501030
+
+- **Oportunidade! Terreno em Estreito - Florianópolis**
+  - 💰 R$ 5.000 | 📐 900 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-estreito-florianopolis-1490500983
+
+- **Oportunidade! Terreno em Ipiranga - São José**
+  - 💰 R$ 50.000 | 📐 15470 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-ipiranga-sao-jose-1490500977
+
+- **Oportunidade! Terreno em Estreito - Florianópolis**
+  - 💰 R$ 3.000 | 📐 200 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-estreito-florianopolis-1490500893
+
+- **Oportunidade! Terreno em Barreiros - São José**
+  - 💰 R$ 4.000 | 📐 2472 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-barreiros-sao-jose-1490500902
+
+- **Oportunidade! Terreno em Jardim Cidade de Florianópolis - São José**
+  - 💰 R$ 5.500 | 📐 720 m²
+  - 📍 Jardim Cidade de Florianópolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-jardim-cidade-de-florianopolis-sao-jose-1490500875
+
+- **Oportunidade! Terreno em Ipiranga - São José**
+  - 💰 R$ 1.500 | 📐 330 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-ipiranga-sao-jose-1490500885
+
+- **LOTE FANTASTICO PARA INVESTIMENTO ! BOSQUE DAS COLINAS**
+  - 💰 R$ 195.000 | 📐 370 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-fantastico-para-investimento-bosque-das-colinas-1490500374
+
+- **TERRENOS A VENDA EM GOV CELSO RAMOS - BOSQUE DAS COLINAS**
+  - 💰 R$ 185.000 | 📐 252 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-em-gov-celso-ramos-bosque-das-colinas-1490500289
+
+- **TERRENO - POTECAS - SC**
+  - 💰 R$ 385.000 | 📐 300 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-potecas-sc-1490494292
+
