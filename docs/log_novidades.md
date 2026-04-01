@@ -58216,3 +58216,261 @@
   - 📍 Potecas — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-potecas-sc-1490494292
 
+
+## 🆕 51 novos anúncios — 01/04/2026 16:19
+
+- **Pousada à Venda na praia do Moçambique, Florianópolis**
+  - 💰 R$ 1.980.000 | 📐 404 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/pousada-a-venda-na-praia-do-mocambique-florianopolis-1490613548
+
+- **Sítio Indaiá - São João Batista**
+  - 💰 R$ 650.000 | 📐 75 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-indaia-sao-joao-batista-1490606380
+
+- **Terreno 200 m² com fundação e talude!**
+  - 💰 R$ 210.000 | 📐 200 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-200-m-com-fundacao-e-talude-1490605674
+
+- **Loteamento de Terrenos | Antônio Carlos**
+  - 💰 R$ 178.500 | 📐 360 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-de-terrenos-antonio-carlos-1490604679
+
+- **Sítio 3 cachoeiras em Alfredo Wagner - SC**
+  - 💰 R$ 550.000 | 📐 30000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-3-cachoeiras-em-alfredo-wagner-sc-1490601202
+
+- **terreno 120 m² em ingleses**
+  - 💰 R$ 180.000 | 📐 120 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-120-m-em-ingleses-1490594050
+
+- **OPORTUNIDADE EM SÃO SEBASTIÃO! Terreno 300m²**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-sao-sebastiao-terreno-300m-1490588353
+
+- **Vendo terreno Rio Tavares próximo ao terminal de ônibus**
+  - 💰 R$ 230.000 | 📐 210 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-rio-tavares-proximo-ao-terminal-de-onibus-1490579730
+
+- **Terrenos na LAGOA - Balneário Gaivota/SC**
+  - 💰 R$ 90.000 | 📐 309 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-na-lagoa-balneario-gaivota-sc-1490568352
+
+- **Terrenao rural**
+  - 💰 R$ 170.000 | 📐 5400 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenao-rural-1490551323
+
+- **Oportunidade Única na Colônia Santana!**
+  - 💰 R$ 180.000 | 📐 10000 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-na-colonia-santana-1410326796
+
+- **Terreno Saco Dos Limões Florianópolis**
+  - 💰 R$ 12.650.000 | 📐 1651 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-saco-dos-limoes-florianopolis-1490545949
+
+- **Terreno Comercial - Areias - São José/SC**
+  - 💰 R$ 700.000 | 📐 504 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-areias-sao-jose-sc-1490545863
+
+- **Venda | Terreno Centro**
+  - 💰 R$ 4.260.000 | 📐 415 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-centro-1490545743
+
+- **Terreno Itacorubi Florianópolis Loteamento Mirante Das Baias**
+  - 💰 R$ 1.121.000 | 📐 495 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-itacorubi-florianopolis-loteamento-mirante-das-baias-1490545652
+
+- **Terreno Beira Rio Biguaçu**
+  - 💰 R$ 1.600.000 | 📐 1500 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-beira-rio-biguacu-1490545463
+
+- **Terreno à venda, Canudos - Antônio Carlos/SC**
+  - 💰 R$ 460.000 | 📐 2000 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-canudos-antonio-carlos-sc-1490545274
+
+- **Terreno com 390m² - Centro - Antônio Carlos - SC**
+  - 💰 R$ 275.000 | 📐 390 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-390m-centro-antonio-carlos-sc-1490545233
+
+- **Terreno Jardim Atlântico Florianópolis**
+  - 💰 R$ 550.000 | 📐 426 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jardim-atlantico-florianopolis-1490545238
+
+- **TERRENO A VENDA NO CENTRO DE ANTÔNIO CARLOS**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-antonio-carlos-1490545115
+
+- **Terreno Vargem Grande Florianópolis Real Parque Novo Norte**
+  - 💰 R$ 832.963 | 📐 460 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vargem-grande-florianopolis-real-parque-novo-norte-1490545058
+
+- **Terreno no Centro - Antônio Carlos**
+  - 💰 R$ 840.000 | 📐 1881 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-antonio-carlos-1490544848
+
+- **Terreno à venda, Santa Barbara - Antônio Carlos/SC**
+  - 💰 R$ 650.000 | 📐 2801 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-santa-barbara-antonio-carlos-sc-1490544816
+
+- **Terreno à venda em Canudos, Antônio Carlos**
+  - 💰 R$ 2.000.000 | 📐 12308 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-canudos-antonio-carlos-1490544661
+
+- **Terreno à venda, Canudos - Antônio Carlos/SC**
+  - 💰 R$ 720.981 | 📐 3135 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-canudos-antonio-carlos-sc-1490544637
+
+- **LOTE DE ESQUINA A VENDA NO CENTRO DE ANTÔNIO CARLOS-SC**
+  - 💰 R$ 400.000 | 📐 455 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-a-venda-no-centro-de-antonio-carlos-sc-1490544635
+
+- **TERRENO A VENDA NA COMUNIDADE DE SÃO MARCOS NA CIDADE DE BIGUAÇU-SC**
+  - 💰 R$ 2.650.000 | 📐 60000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-comunidade-de-sao-marcos-na-cidade-de-biguacu-sc-1490544638
+
+- **SÍTIO A VENDA NA COMUNIDADE DE SÃO MARCOS BIGUAÇU SANTA CATARINA**
+  - 💰 R$ 1.650.000 | 📐 100 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-na-comunidade-de-sao-marcos-biguacu-santa-catarina-1490544623
+
+- **Lote à venda no Residencial Bremen - Antônio Carlos/SC**
+  - 💰 R$ 295.000 | 📐 462 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-residencial-bremen-antonio-carlos-sc-1490544568
+
+- **Sítio à venda em Antônio Carlos no bairro Braço do Norte  20.000 m² (2**
+  - 💰 R$ 650.000 | 📐 20000 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-antonio-carlos-no-bairro-braco-do-norte-20-000-m-2-hectares-1490544457
+
+- **Terreno Itacorubi Florianópolis Loteamento Mirante Das Baias**
+  - 💰 R$ 980.000 | 📐 450 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-itacorubi-florianopolis-loteamento-mirante-das-baias-1490544604
+
+- **Terreno Monte Verde Florianópolis**
+  - 💰 R$ 22.000.000 | 📐 12804 m²
+  - 📍 Monte Verde — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-monte-verde-florianopolis-1490544580
+
+- **Sítio à venda, Área Rural na divisa entre Antônio Carlos e Biguaçu/SC**
+  - 💰 R$ 750.000 | 📐 14000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-area-rural-na-divisa-entre-antonio-carlos-e-biguacu-sc-1490544374
+
+- **Terreno no Centro - Antônio Carlos**
+  - 💰 R$ 270.000 | 📐 390 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-antonio-carlos-1490544434
+
+- **Lotes em Condomínio Residencial Fechado em Biguaçu**
+  - 💰 R$ 800.000 | 📐 2200 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-em-condominio-residencial-fechado-em-biguacu-1490544425
+
+- **Terreno à venda, Canudos - Antônio Carlos/SC**
+  - 💰 R$ 460.000 | 📐 2002 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-canudos-antonio-carlos-sc-1490544381
+
+- **Terreno Vargem do Bom Jesus Florianópolis**
+  - 💰 R$ 15.000.000 | 📐 12416 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vargem-do-bom-jesus-florianopolis-1490544510
+
+- **Terreno Canasvieiras Florianópolis Alameda Cézanne**
+  - 💰 R$ 535.000 | 📐 360 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-canasvieiras-florianopolis-alameda-cezanne-1490544478
+
+- **Terreno Pântano do Sul Florianópolis**
+  - 💰 R$ 720.000 | 📐 360 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pantano-do-sul-florianopolis-1490544485
+
+- **Terreno Campeche Florianópolis Garapuvu**
+  - 💰 R$ 1.400.000 | 📐 1161 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-florianopolis-garapuvu-1490544391
+
+- **Terreno Centro Florianópolis**
+  - 💰 R$ 1.990.000 | 📐 436 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-centro-florianopolis-1490544392
+
+- **Terreno João Paulo Florianópolis Jardim Caiobig**
+  - 💰 R$ 2.100.000 | 📐 1647 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-joao-paulo-florianopolis-jardim-caiobig-1490544371
+
+- **Terreno Pântano do Sul Florianópolis**
+  - 💰 R$ 720.000 | 📐 360 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pantano-do-sul-florianopolis-1490544357
+
+- **Terreno loteamento Lisboa 3**
+  - 💰 R$ 200.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-lisboa-3-1490541518
+
+- **Oportunidade única em rancho queimado**
+  - 💰 R$ 750.000 | 📐 1225 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-rancho-queimado-1490536805
+
+- **Terreno com excelente preço no Distrito de Rio Maina Criciúma, SC**
+  - 💰 R$ 180.000 | 📐 559 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-excelente-preco-no-distrito-de-rio-maina-criciuma-sc-1490536041
+
+- **Sítio de fácil acesso, casa de alvenaria, cachoeira nos fundos em Água**
+  - 💰 R$ 860.000 | 📐 36132 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-facil-acesso-casa-de-alvenaria-cachoeira-nos-fundos-em-aguas-mornas-1473783088
+
+- **Vendo sítio com escritura pública em Alfredo Wagner**
+  - 💰 R$ 250.000 | 📐 5000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-escritura-publica-em-alfredo-wagner-1490531216
+
+- **Sitio para venda com 1400 metros quadrados em Centro - Alfredo Wagner **
+  - 💰 R$ 290.000 | 📐 1400 m²
+  - 📍 São Leonardo — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-com-1400-metros-quadrados-em-centro-alfredo-wagner-sc-1490530904
+
+- **Terreno medindo 321 m2-Alto do Ribeirão a 2.5 Km do trevo do Erasmo**
+  - 💰 R$ 480.000 | 📐 312 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-medindo-321-m2-alto-do-ribeirao-a-2-5-km-do-trevo-do-erasmo-1270632421
+
+- **Fazenda/Sítio/Chácara para venda possui 6000 metros quadrados com 1 qu**
+  - 💰 R$ 280.000 | 📐 6000 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-sitio-chacara-para-venda-possui-6000-metros-quadrados-com-1-quarto-em-centro-tre-1221607972
+
