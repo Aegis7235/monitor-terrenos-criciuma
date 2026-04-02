@@ -59218,3 +59218,151 @@
   - 📍 Pagani — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-palhoca-sc-parque-residencial-pagani-ii-1490778699
 
+
+## 🆕 29 novos anúncios — 02/04/2026 16:14
+
+- **Terreno Pescaria Brava**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pescaria-brava-1490890658
+
+- **Terreno de leilão em DE VILLA / URUSSANGA / SC | Leilão SFI - Edital Ú**
+  - 💰 R$ 210.415 | 📐 507 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-de-villa-urussanga-sc-leilao-sfi-edital-unico-1490882218
+
+- **RESERVA DO LESTE**
+  - 💰 R$ 1.819.000 | 📐 449 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/reserva-do-leste-1490870584
+
+- **RESERVA DA PEDRA**
+  - 💰 R$ 939.000 | 📐 326 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/reserva-da-pedra-1490870612
+
+- **Terreno divisa Camacho**
+  - 💰 R$ 35.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-divisa-camacho-1490869322
+
+- **Lote / Terreno em Forquilhas - São José, SC**
+  - 💰 R$ 275.000 | 📐 312 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-forquilhas-sao-jose-sc-1490867802
+
+- **ILHA LOCALIZADA EM SÃO JOSÉ/SC**
+  - 💰 R$ 4.350.000 | 📐 5186 m²
+  - 📍 Próspera — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ilha-localizada-em-sao-jose-sc-1490867439
+
+- **Vendo lote**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-1490860412
+
+- **Terreno morro do gato.**
+  - 💰 R$ 120.000 | 📐 5000 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-morro-do-gato-1490857643
+
+- **Terreno Estratégico em Forquilhas - Próximo ao Contorno Viário**
+  - 💰 R$ 265.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-estrategico-em-forquilhas-proximo-ao-contorno-viario-1490855673
+
+- **SÍTIO EM RATONES**
+  - 💰 R$ 2.500.000 | 📐 100 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-ratones-1490839800
+
+- **Área Residencial para Venda em Ambrósio Garopaba-SC**
+  - 💰 R$ 1.800.000 | 📐 20397 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-residencial-para-venda-em-ambrosio-garopaba-sc-1490827807
+
+- **OPORTUNIDADE PRA VENDER RÁPIDO A 2 QUADRAS DO MAR**
+  - 💰 R$ 139.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-pra-vender-rapido-a-2-quadras-do-mar-1490826061
+
+- **Área Residencial para Venda em Ambrósio Garopaba-SC**
+  - 💰 R$ 2.000.000 | 📐 30104 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-residencial-para-venda-em-ambrosio-garopaba-sc-1490825385
+
+- **Terreno em Garopaba**
+  - 💰 R$ 600.000 | 📐 335 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-1490825129
+
+- **Terreno a venda no Ratones codigo: 293639**
+  - 💰 R$ 1.990.000 | 📐 9844 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-ratones-codigo-293639-1490815560
+
+- **Terreno - Cachoeira Bom Jesus - 12.031 m2 - permuta 100% - Florianopol**
+  - 💰 R$ 3.500.000 | 📐 12031 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-cachoeira-bom-jesus-12-031-m2-permuta-100-florianopolis-1490801544
+
+- **Terreno à venda, 587 m² por R$ 2.450.000 - Saco dos Limões - Florianóp**
+  - 💰 R$ 2.450.000 | 📐 587 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-587-m-por-r-2-450-000-saco-dos-limoes-florianopolis-sc-1490806306
+
+- **Terreno de 762,60m² no bairro Cacupé - Florianópolis/SC**
+  - 💰 R$ 3.700.000 | 📐 763 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-762-60m-no-bairro-cacupe-florianopolis-sc-1490800484
+
+- **2 Terrenos Fundos para o Lago - Reserva da Pedra**
+  - 💰 R$ 950.000 | 📐 320 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-fundos-para-o-lago-reserva-da-pedra-1490799750
+
+- **TERRENO RURAL**
+  - 💰 R$ 762.000 | 📐 34684 m²
+  - 📍  — Santa Rosa de Lima
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-1490797597
+
+- **Lotes FRTE. PREFEITURA/ ZULMA BECKER - Santo Amaro da IMPERATRIZ-ENTRE**
+  - 💰 R$ 599.000 | 📐 379 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-frte-prefeitura-zulma-becker-santo-amaro-da-imperatriz-entregue-1426194775
+
+- **TERRENO 1018m2 Av. lot. NOVA PALHOÇA**
+  - 💰 R$ 2.090.000 | 📐 1018 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1018m2-av-lot-nova-palhoca-1418349643
+
+- **Oportunidade! Amplo terreno em boa localização disponível para locação**
+  - 💰 R$ 3.370 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-amplo-terreno-em-boa-localizacao-disponivel-para-locacao-no-bairro-centro-t-1490815181
+
+- **Terreno disponível para locação no bairro Universitário, Tijucas, SC**
+  - 💰 R$ 1.300 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-disponivel-para-locacao-no-bairro-universitario-tijucas-sc-1490793121
+
+- **Terreno para locação, Mata Atlântica, Tijucas, SC**
+  - 💰 R$ 1.500 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-mata-atlantica-tijucas-sc-1490793134
+
+- **Terreno para locação, Santa Luzia, Tijucas, SC**
+  - 💰 R$ 3.000 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-santa-luzia-tijucas-sc-1490793153
+
+- **Terreno para locação com 2 mil m² em frente a avenida asfaltada ,Tijuc**
+  - 💰 R$ 5.000 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-com-2-mil-m-em-frente-a-avenida-asfaltada-tijucas-sc-1490793151
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas Norte**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-norte-1433520989
+
