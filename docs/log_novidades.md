@@ -59679,3 +59679,31 @@
   - 📍 Caldas da Imperatriz — Santo Amaro da Imperatriz
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-vargem-do-braco-1490920115
 
+
+## 🆕 5 novos anúncios — 03/04/2026 05:16
+
+- **OPORTUNIDADE ÚNICA  TERRENO FRENTE MAR!**
+  - 💰 R$ 750.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-frente-mar-1491070113
+
+- **Terreno, 463m², Comerciário, Criciúma/SC**
+  - 💰 R$ 262.500 | 📐 463 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-463m-comerciario-criciuma-sc-1491056681
+
+- **Terreno, 463m², Comerciário, Criciúma/SC**
+  - 💰 R$ 262.500 | 📐 463 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-463m-comerciario-criciuma-sc-1491056560
+
+- **Terreno de esquina 456mt2**
+  - 💰 R$ 180.000 | 📐 456 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-456mt2-1491037969
+
+- **Lindo terreno para chácara/80 mil entrada**
+  - 💰 R$ 230.000 | 📐 1200 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-para-chacara-80-mil-entrada-1491011303
+
