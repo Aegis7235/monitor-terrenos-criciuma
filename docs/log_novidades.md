@@ -59978,3 +59978,41 @@
   - 📍 Centro — Nova Veneza
   - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-centro-364m2-RS145810/id-40884684/
 
+
+## 🆕 7 novos anúncios — 03/04/2026 21:48
+
+- **Terreno em Garopaba com escritura pública - 367m² - 1km da Surfland**
+  - 💰 R$ 230.000 | 📐 367 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-com-escritura-publica-367m-1km-da-surfland-1491202712
+
+- **Vendo  2 terrenos . ótima localização  bairro operária Araranguá SC**
+  - 💰 R$ 120.000 | 📐 ? m²
+  - 📍 Santa Bárbara — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-2-terrenos-otima-localizacao-bairro-operaria-ararangua-sc-1491201104
+
+- **OPORTUNIDADE EM TRÊS RIACHOS - CANUDOS | BIGUAÇU/SC**
+  - 💰 R$ 300.000 | 📐 34000 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-tres-riachos-canudos-biguacu-sc-1491186325
+
+- **Imperdível!!! Terreno no Campeche com 450m2**
+  - 💰 R$ 799.000 | 📐 450 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imperdivel-terreno-no-campeche-com-450m2-1491186326
+
+- **Vendo Sitio com escritura pública no Rio Miguel/Águas Mornas**
+  - 💰 R$ 2.000.000 | 📐 360000 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-escritura-publica-no-rio-miguel-aguas-mornas-1444372920
+
+- **Terreno com 614m2**
+  - 💰 R$ 530.000 | 📐 614 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-614m2-1441460160
+
+- **Excelente oferta/oportunidade! Residencial/Comercial.**
+  - 💰 R$ 480.000 | 📐 1500 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oferta-oportunidade-residencial-comercial-1372348826
+
