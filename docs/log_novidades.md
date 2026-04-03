@@ -59920,3 +59920,61 @@
   - 📍 Brejarú — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-7x13-com-casa-em-construcao-1491008075
 
+
+## 🆕 11 novos anúncios — 03/04/2026 15:51
+
+- **Sítio 3 hectares com matrícula.**
+  - 💰 R$ 310.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-3-hectares-com-matricula-1415072274
+
+- **Terreno à venda em Biguaçu - Bairro Três Riachos (Canudos)**
+  - 💰 R$ 130.000 | 📐 1300000 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-biguacu-bairro-tres-riachos-canudos-1491127167
+
+- **Vende-se ou troca -se por casa na praia**
+  - 💰 R$ 675 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-ou-troca-se-por-casa-na-praia-1491126682
+
+- **Terreno no Deltaville - Biguaçu**
+  - 💰 R$ 270.000 | 📐 184 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-biguacu-1491126604
+
+- **Terreno no Sunset Condomínio Clube - Biguaçu**
+  - 💰 R$ 400.000 | 📐 210 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-sunset-condominio-clube-biguacu-1491126579
+
+- **Terreno Itacorubi Florianópolis Loteamento Mirante Das Baias**
+  - 💰 R$ 1.089.000 | 📐 456 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-itacorubi-florianopolis-loteamento-mirante-das-baias-1491126427
+
+- **Barbada!Vendo Lote/Terreno c/ 250 m2,plano em Forquilhas-São José,com **
+  - 💰 R$ 142.000 | 📐 250 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lote-terreno-c-250-m2-plano-em-forquilhas-sao-jose-com-escritura-publica-1373239755
+
+- **Barbada! Vendo lote/terreno no Sertão de Imaruim - São José, com vista**
+  - 💰 R$ 379.000 | 📐 379 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lote-terreno-no-sertao-de-imaruim-sao-jose-com-vista-para-natureza-1375007358
+
+- **Barbada!Vendo lote/terreno plano com 611m² - Próx. ao contorno Viário!**
+  - 💰 R$ 375.000 | 📐 611 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lote-terreno-plano-com-611m-prox-ao-contorno-viario-1406057244
+
+- **Terreno Rio vermelho escriturado codigo: 294042**
+  - 💰 R$ 800.000 | 📐 1009 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rio-vermelho-escriturado-codigo-294042-1491104632
+
+- **Terreno à venda na Rua Projetada 01, Centro, Nova Veneza**
+  - 💰 R$ 145.810 | 📐 364 m²
+  - 📍 Centro — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-centro-364m2-RS145810/id-40884684/
+
