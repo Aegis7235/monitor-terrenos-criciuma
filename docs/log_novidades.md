@@ -60102,3 +60102,126 @@
   - 📍 Forquilhas — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1-060-m-portal-da-colina-sao-jose-1491275346
 
+
+## 🆕 24 novos anúncios — 04/04/2026 15:46
+
+- **ITAPIRUBA terreno**
+  - 💰 R$ 280.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/itapiruba-terreno-1491329518
+
+- **Sítio Exclusivo em Antônio Carlos: 9.000m², 3 Suítes e Água Direto do **
+  - 💰 R$ 900.000 | 📐 9000 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-exclusivo-em-antonio-carlos-9-000m-3-suites-e-agua-direto-do-morro-1491323462
+
+- **Imóvel para venda com 5698 metros quadrados em Campeche - Florianópoli**
+  - 💰 R$ 4.990.000 | 📐 5698 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-5698-metros-quadrados-em-campeche-florianopolis-sc-1491320428
+
+- **Terreno rural com Rio - Jacinto Machado/SC**
+  - 💰 R$ 350.000 | 📐 27000 m²
+  - 📍  — Jacinto Machado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-com-rio-jacinto-machado-sc-1491319737
+
+- **Terreno, 300m², Loteamento Reserva do Lago, Imbituba. Excelente locali**
+  - 💰 R$ 260.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-loteamento-reserva-do-lago-imbituba-excelente-localizacao-1491317806
+
+- **Terreno próximo do contorno viário**
+  - 💰 R$ 160.000 | 📐 2000 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-do-contorno-viario-1491313530
+
+- **Imóvel para venda  São Pedro de Alcântara - SC**
+  - 💰 R$ 850.000 | 📐 50000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-sao-pedro-de-alcantara-sc-1491312822
+
+- **Terreno Rural á Venda no Pagará**
+  - 💰 R$ 300.000 | 📐 5980 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-a-venda-no-pagara-1491310184
+
+- **Terreno para chácara em São João do Sul/SC**
+  - 💰 R$ 320.000 | 📐 15000 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-chacara-em-sao-joao-do-sul-sc-1491309424
+
+- **Vendo terreno 2784,60m2**
+  - 💰 R$ 800.000 | 📐 2784600 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-2784-60m2-1491305427
+
+- **Terreno em Imbituba, localizado no bairro Alto Arroio a 150 metros até**
+  - 💰 R$ 250.000 | 📐 297 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-localizado-no-bairro-alto-arroio-a-150-metros-ate-a-lagoa-de-ibiraque-1196016852
+
+- **Área á venda em Garopaba, localizada no bairro Campo Duna**
+  - 💰 R$ 1.250.000 | 📐 7495 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-a-venda-em-garopaba-localizada-no-bairro-campo-duna-1243202733
+
+- **Terreno na marginal da BR 101**
+  - 💰 R$ 260.000 | 📐 900 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-marginal-da-br-101-1458618231
+
+- **Vendo terreno na praia de Itapiruba em Imbituba/SC**
+  - 💰 R$ 99.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-de-itapiruba-em-imbituba-sc-1452347109
+
+- **Terreno à Venda  Loteamento Silvestre, São João (Margem Esquerda), Tub**
+  - 💰 R$ 265.000 | 📐 300 m²
+  - 📍 Morrotes — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-silvestre-sao-joao-margem-esquerda-tubarao-sc-1491294757
+
+- **Terreno com duas casa à venda em Jurerê Internacional, Florianópolis**
+  - 💰 R$ 9.000.000 | 📐 900 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-duas-casa-a-venda-em-jurere-internacional-florianopolis-1438754537
+
+- **ÁREAS FRENTE BR 101 há R$ 1.250,00 o m2**
+  - 💰 R$ 2.322.000 | 📐 1857 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/areas-frente-br-101-ha-r-1-250-00-o-m2-1450736140
+
+- **ANITÁPOLIS/SC - Terreno com vista espetacular para serra geral**
+  - 💰 R$ 200.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-com-vista-espetacular-para-serra-geral-1441130568
+
+- **Terreno para sítio com 2hectares em Anitápolis/SC**
+  - 💰 R$ 125.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-com-2hectares-em-anitapolis-sc-1387459567
+
+- **ANITÁPOLIS/SC- Terreno no centro da cidade**
+  - 💰 R$ 200.000 | 📐 370 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-no-centro-da-cidade-1389187343
+
+- **ANITÁPOLIS/SC - Lindo terreno para sítio 2hectares todo plano.**
+  - 💰 R$ 250.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-terreno-para-sitio-2hectares-todo-plano-1407395035
+
+- **ANITÁPOLIS/SC - Lindo terreno com 28 hectares**
+  - 💰 R$ 1.400.000 | 📐 280000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-terreno-com-28-hectares-1424837133
+
+- **Terreno com 532 m² em Santo Amaro da Imperatriz**
+  - 💰 R$ 350.000 | 📐 532 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-532-m-em-santo-amaro-da-imperatriz-1127911754
+
+- **Terreno de leilão em DE VILLA / URUSSANGA / SC | Leilão SFI - Edital Ú**
+  - 💰 R$ 210.415 | 📐 507 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-de-villa-urussanga-sc-leilao-sfi-edital-unico-1491266863
+
