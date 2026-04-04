@@ -60016,3 +60016,71 @@
   - 📍  — Águas Mornas
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oferta-oportunidade-residencial-comercial-1372348826
 
+
+## 🆕 13 novos anúncios — 04/04/2026 05:03
+
+- **Linda Vista !! 10 hectares perto do Centro.**
+  - 💰 R$ 580.000 | 📐 100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-vista-10-hectares-perto-do-centro-1343371555
+
+- **PRAIA DO ROSA - TERRENO COM 850M²**
+  - 💰 R$ 900.000 | 📐 850 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/praia-do-rosa-terreno-com-850m-1491262725
+
+- **Sítio próximo de ituporanga e alfredo Wagner**
+  - 💰 R$ 65.000 | 📐 8100 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-de-ituporanga-e-alfredo-wagner-1491252930
+
+- **EXCELENTE AREA COMERCIAL NO RIO TAVARES, FLORIANOPOLIS-SC**
+  - 💰 R$ 40.000.000 | 📐 11000 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-area-comercial-no-rio-tavares-florianopolis-sc-1491249153
+
+- **Terreno 588m² em Condomínio - Primeira Linha**
+  - 💰 R$ 269.000 | 📐 588 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-588m-em-condominio-primeira-linha-1491244818
+
+- **Terreno 368m² em Condomínio - Canudos**
+  - 💰 R$ 135.000 | 📐 368 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-368m-em-condominio-canudos-1491244716
+
+- **Lote praia Paiquerê - Morro dos Conventos Araranguá**
+  - 💰 R$ 190.000 | 📐 450 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-praia-paiquere-morro-dos-conventos-ararangua-1457915769
+
+- **Chácara, sitio em Antônio carlos**
+  - 💰 R$ 450.000 | 📐 8600 m²
+  - 📍 Guiomar de Baixo — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-sitio-em-antonio-carlos-1491242679
+
+- **Lote/Terreno para venda possui 360 metros quadrados em Serraria - São **
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-venda-possui-360-metros-quadrados-em-serraria-sao-jose-santa-catarin-1491238249
+
+- **Terreno Vila Nova - Imbituba - Santa Catarina**
+  - 💰 R$ 400.000 | 📐 306 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vila-nova-imbituba-santa-catarina-1491234858
+
+- **Sítio do Rio Duna Imaruí - SC**
+  - 💰 R$ 800.000 | 📐 8000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-do-rio-duna-imarui-sc-1491233585
+
+- **Terreno no 12x20- OPORTUNIDADE NA ILHOTA (MARGEM ESQUERDA)**
+  - 💰 R$ 30.000 | 📐 240 m²
+  - 📍  — Pedras Grandes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-12x20-oportunidade-na-ilhota-margem-esquerda-1491227671
+
+- **Oportunidade de Arrendamento e Venda**
+  - 💰 R$ 65.000 | 📐 1100 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-arrendamento-e-venda-1491224146
+
