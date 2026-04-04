@@ -60225,3 +60225,56 @@
   - 📍  — Urussanga
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-de-villa-urussanga-sc-leilao-sfi-edital-unico-1491266863
 
+
+## 🆕 10 novos anúncios — 04/04/2026 21:44
+
+- **Lote/Terreno para venda com 369 metros quadrados em Nova Descoberta - **
+  - 💰 R$ 470.000 | 📐 369 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-venda-com-369-metros-quadrados-em-nova-descoberta-tijucas-sc-1491394941
+
+- **Terreno Lote para venda em Florianópolis - SC**
+  - 💰 R$ 1.300.000 | 📐 510 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-para-venda-em-florianopolis-sc-1491394680
+
+- **Barbada em Santo Amaro da Imperatriz**
+  - 💰 R$ 80.000 | 📐 13600 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-em-santo-amaro-da-imperatriz-1491393482
+
+- **aluguel Terreno Comercial/Residencial R$ 10.000**
+  - 💰 R$ 10.000 | 📐 2000 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aluguel-terreno-comercial-residencial-r-10-000-1491391880
+
+- **Sítio em Alfredo Wagner Com Rio e Cachoeira com 260.000m²**
+  - 💰 R$ 1.450.000 | 📐 260000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-com-rio-e-cachoeira-com-260-000m-1491373733
+
+- **SÍTIO A VENDA EM CANELINHA**
+  - 💰 R$ 720.000 | 📐 5400 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-canelinha-1474538749
+
+- **Terreno perto das praias bem localizado morro dos conventos.**
+  - 💰 R$ 225.000 | 📐 482 m²
+  - 📍 Alto Feliz — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-perto-das-praias-bem-localizado-morro-dos-conventos-1491360667
+
+- **VENDO - Loteamento COMPLEXO TURISTICO CAMBIRELA**
+  - 💰 R$ 500.000 | 📐 645600 m²
+  - 📍 José Mendes — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-loteamento-complexo-turistico-cambirela-1491358298
+
+- **Terreno de leilão em Centro / IMARUI / SC | Venda Direta Online**
+  - 💰 R$ 959.893 | 📐 715100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-centro-imarui-sc-venda-direta-online-1491336619
+
+- **Terreno residencial para venda em Centro , 948m²**
+  - 💰 R$ 1.790.000 | 📐 948 m²
+  - 📍 Centro — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-para-venda-em-centro-948m-1491094400
+
