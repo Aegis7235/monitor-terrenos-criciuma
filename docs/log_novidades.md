@@ -60084,3 +60084,21 @@
   - 📍  — Garopaba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-arrendamento-e-venda-1491224146
 
+
+## 🆕 3 novos anúncios — 04/04/2026 09:51
+
+- **Terreno residencial para venda em Ingleses do Rio Vermelho , 770m²**
+  - 💰 R$ 1.000.000 | 📐 770 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-para-venda-em-ingleses-do-rio-vermelho-770m-1491213848
+
+- **Terreno à beira da lagoa no Arroio do Rosa: 3.731,40 m² de tranquilida**
+  - 💰 R$ 2.800.000 | 📐 3731 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-beira-da-lagoa-no-arroio-do-rosa-3-731-40-m-de-tranquilidade-e-potencial-de-in-1491276434
+
+- **Terreno de 1.060 m² | Portal da Colina | São José**
+  - 💰 R$ 570.000 | 📐 1060 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1-060-m-portal-da-colina-sao-jose-1491275346
+
