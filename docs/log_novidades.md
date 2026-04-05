@@ -60369,3 +60369,76 @@
   - 📍 Potecas — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-para-venda-em-potecas-305m-1491093155
 
+
+## 🆕 14 novos anúncios — 05/04/2026 15:48
+
+- **Lote pronto para construir**
+  - 💰 R$ 250.000 | 📐 360000 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-pronto-para-construir-1474961859
+
+- **Lote com 746m2**
+  - 💰 R$ 450.000 | 📐 749 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-com-746m2-1459454005
+
+- **Terreno diferenciado**
+  - 💰 R$ 276.000 | 📐 475 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-diferenciado-1459448719
+
+- **Terreno  com 365m2**
+  - 💰 R$ 220.000 | 📐 365 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-365m2-1459453083
+
+- **Lote pronto para construir**
+  - 💰 R$ 230.000 | 📐 381 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-pronto-para-construir-1459452216
+
+- **Sítio em Alfredo Wagner 2 hectares**
+  - 💰 R$ 165.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-2-hectares-1491460136
+
+- **Área em frente a praia do Forte, Florianópolis**
+  - 💰 R$ 1.500.000 | 📐 2250 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-em-frente-a-praia-do-forte-florianopolis-1491456964
+
+- **Área localizada em cachoeiras de Vargem Grande,  Florianópolis.**
+  - 💰 R$ 950.000 | 📐 9500 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-localizada-em-cachoeiras-de-vargem-grande-florianopolis-1491456444
+
+- **Terreno 390m2**
+  - 💰 R$ 179.400 | 📐 390 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-390m2-1399008270
+
+- **Terreno 885m2**
+  - 💰 R$ 814.200 | 📐 885 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-885m2-1399011644
+
+- **Terreno 300m2**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m2-1419201934
+
+- **Terreno 375m2**
+  - 💰 R$ 115.000 | 📐 375 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-375m2-1419198426
+
+- **Terreno 350m2**
+  - 💰 R$ 135.000 | 📐 350 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-350m2-1419194784
+
+- **Terreno de 726m² em Imbituba/SC**
+  - 💰 R$ 379.498 | 📐 726 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-726m-em-imbituba-sc-1459317125
+
