@@ -60331,3 +60331,41 @@
   - 📍 Pântano do Sul — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-pantano-do-sul-800-mts-da-praia-1491398213
 
+
+## 🆕 7 novos anúncios — 05/04/2026 09:53
+
+- **Terreno 8.300 m² em Palhoça-SC**
+  - 💰 R$ 625.000 | 📐 8300 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-8-300-m-em-palhoca-sc-1474751315
+
+- **Terreno 1.000 m² ótima localização em Santo Amaro da Imperatriz-SC**
+  - 💰 R$ 500.000 | 📐 1000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-000-m-otima-localizacao-em-santo-amaro-da-imperatriz-sc-1269346127
+
+- **Terreno incrível à venda: localização privilegiada e grande potencial **
+  - 💰 R$ 480.000 | 📐 365 m²
+  - 📍 Picadas do Sul — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-incrivel-a-venda-localizacao-privilegiada-e-grande-potencial-de-valorizacao-1491448538
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1491443667
+
+- **Terreno para Venda em São José, Ipiranga**
+  - 💰 R$ 1.750.000 | 📐 2203 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-sao-jose-ipiranga-1491443639
+
+- **Terreno à venda na região dos Fundos em Biguaçu - SC**
+  - 💰 R$ 285.000 | 📐 450 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-regiao-dos-fundos-em-biguacu-sc-1491442038
+
+- **Terreno residencial para venda em Potecas , 305m²**
+  - 💰 R$ 499.000 | 📐 305 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-para-venda-em-potecas-305m-1491093155
+
