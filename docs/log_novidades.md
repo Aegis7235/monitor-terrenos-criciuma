@@ -60442,3 +60442,151 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-726m-em-imbituba-sc-1459317125
 
+
+## 🆕 29 novos anúncios — 05/04/2026 21:48
+
+- **Terreno a venda Antônio Carlos**
+  - 💰 R$ 120.000 | 📐 680 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-antonio-carlos-1491545195
+
+- **Vendo Sítio em Santo Amaro da Imperatriz**
+  - 💰 R$ 550.000 | 📐 36000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-santo-amaro-da-imperatriz-1425478014
+
+- **Terreno em São José SC**
+  - 💰 R$ 290.000 | 📐 270 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sao-jose-sc-1475902510
+
+- **Vendo 2 terrenos juntos no Loteamento Nova Governador**
+  - 💰 R$ 400.000 | 📐 720 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-2-terrenos-juntos-no-loteamento-nova-governador-1491532384
+
+- **Terreno a venda**
+  - 💰 R$ 210.000 | 📐 33000 m²
+  - 📍 Fabrício — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1478927609
+
+- **Imóvel para venda tem 250 metros quadrados em Ambrósio - Garopaba - SC**
+  - 💰 R$ 450.000 | 📐 250 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-250-metros-quadrados-em-ambrosio-garopaba-sc-1491530083
+
+- **Vendo sítio com piscina**
+  - 💰 R$ 590.000 | 📐 1245 m²
+  - 📍 Encruzilhada — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-piscina-1491525854
+
+- **Aluguel Terreno Carianos**
+  - 💰 R$ 1.800 | 📐 ? m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aluguel-terreno-carianos-1491523713
+
+- **Terreno à venda na Deltaville em Biguaçu - SC | Condomínio Blue**
+  - 💰 R$ 875.000 | 📐 291 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-deltaville-em-biguacu-sc-condominio-blue-1491509959
+
+- **Terreno à venda na Deltaville em Biguaçu - SC | Condomínio Blue**
+  - 💰 R$ 645.000 | 📐 215 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-deltaville-em-biguacu-sc-condominio-blue-1491509869
+
+- **Terreno à venda no Deltaville, em Biguaçu - SC | Condomínio Blue**
+  - 💰 R$ 560.000 | 📐 215 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-deltaville-em-biguacu-sc-condominio-blue-1491509820
+
+- **Chácara em Palhoça, 3.500m2**
+  - 💰 R$ 550.000 | 📐 3500 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-palhoca-3-500m2-1405384808
+
+- **Terreno Anitapolis**
+  - 💰 R$ 99.000 | 📐 3000000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-anitapolis-1491508965
+
+- **Ótimo terreno para quem quer construir  um sítio fazer chale para alug**
+  - 💰 R$ 145.000 | 📐 2000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-para-quem-quer-construir-um-sitio-fazer-chale-para-alugar-1491507123
+
+- **SÍTIO ALFREDO WAGNER**
+  - 💰 R$ 250.000 | 📐 1400 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-alfredo-wagner-1477911094
+
+- **Sítio Abelardo Luz**
+  - 💰 R$ 600.000 | 📐 ? m²
+  - 📍 Brejarú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-abelardo-luz-1480002335
+
+- **Vendo sitio na montanha**
+  - 💰 R$ 170.000 | 📐 6634 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-na-montanha-1491493317
+
+- **Refúgio encantador na Serra de Santa Catarina, entre Rancho Queimado e**
+  - 💰 R$ 450.000 | 📐 850 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/refugio-encantador-na-serra-de-santa-catarina-entre-rancho-queimado-e-anitapolis-1491499105
+
+- **Sítio com casa, águas mornas**
+  - 💰 R$ 260.000 | 📐 2800 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-aguas-mornas-1479934011
+
+- **Vendo Sitio/ Chácara Em Aguas Mornas SC**
+  - 💰 R$ 280.000 | 📐 368 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-chacara-em-aguas-mornas-sc-1413178830
+
+- **Sitio a venda em Aguas Mornas**
+  - 💰 R$ 480.000 | 📐 7700 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-aguas-mornas-1341338051
+
+- **Terreno a venda no Morretes**
+  - 💰 R$ 250.000 | 📐 480 m²
+  - 📍 Morretes — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-morretes-1351691698
+
+- **Ótimo sítio na varginha a 3 km da BR 282, desse 1 km estrada chão boa,**
+  - 💰 R$ 390.000 | 📐 6100 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-sitio-na-varginha-a-3-km-da-br-282-desse-1-km-estrada-chao-boa-e-2-km-de-asfalto-1415616783
+
+- **Fazenda/Sítio/Chácara para venda com 80000 metros quadrados com 2 quar**
+  - 💰 R$ 450.000 | 📐 80000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-sitio-chacara-para-venda-com-80000-metros-quadrados-com-2-quartos-1261060885
+
+- **Terreno para venda no bairro Usina, Antônio Carlos/SC**
+  - 💰 R$ 490.000 | 📐 5590 m²
+  - 📍 Usina — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-bairro-usina-antonio-carlos-sc-1415581141
+
+- **Sítio em Mato Francês - Rancho Queimado, SC**
+  - 💰 R$ 440.000 | 📐 25000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-mato-frances-rancho-queimado-sc-1383303633
+
+- **Sítio à venda no bairro Usina, Antônio Carlos - SC**
+  - 💰 R$ 3.600.000 | 📐 100 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-usina-antonio-carlos-sc-1415576196
+
+- **Terreno na Praia do Arpoador**
+  - 💰 R$ 58.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-do-arpoador-1432466158
+
+- **Sítio em Anitapolis - Verdadeiro Paraiso (VENDA)**
+  - 💰 R$ 280.000 | 📐 3000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-anitapolis-verdadeiro-paraiso-venda-1390276594
+
