@@ -60278,3 +60278,56 @@
   - 📍 Centro — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-para-venda-em-centro-948m-1491094400
 
+
+## 🆕 10 novos anúncios — 05/04/2026 05:26
+
+- **VENDA: Sítio com 6,5 hectares à Venda em Águas Mornas - Sc**
+  - 💰 R$ 1.350.000 | 📐 350 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-sitio-com-6-5-hectares-a-venda-em-aguas-mornas-sc-1491439921
+
+- **Terreno para Venda em Florianópolis, Cachoeira do Bom Jesus**
+  - 💰 R$ 6.800.000 | 📐 6844 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cachoeira-do-bom-jesus-1491438551
+
+- **Lote no bairro Deltaville, em Biguaçu - SC**
+  - 💰 R$ 239.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-bairro-deltaville-em-biguacu-sc-1491430981
+
+- **Lote em Morro da fumaça**
+  - 💰 R$ 79.900 | 📐 380 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-morro-da-fumaca-1491422425
+
+- **Terreno à venda em Jurerê Internacional, Florianópolis/SC**
+  - 💰 R$ 3.710.000 | 📐 651 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-jurere-internacional-florianopolis-sc-1430915614
+
+- **Vendo sítio**
+  - 💰 R$ 500.000 | 📐 27 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-1491416419
+
+- **Comercial  Terreno - Venda - 1.525,00 (M²) de Área Total - 1.525,00 (M**
+  - 💰 R$ 1.200.000 | 📐 1525 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/comercial-terreno-venda-1-525-00-m-de-area-total-1-525-00-m-de-area-privativa-1491415822
+
+- **Sítio para venda tem 3000 metros Potecas - São josé SC**
+  - 💰 R$ 138.000 | 📐 3000 m²
+  - 📍 Balneário Ponta do Papagaio — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-tem-3000-metros-potecas-sao-jose-sc-1491409461
+
+- **Jazigo Duplo à Venda - Jardim da Paz | Novo | Oportunidade**
+  - 💰 R$ 12.000 | 📐 4 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jazigo-duplo-a-venda-jardim-da-paz-novo-oportunidade-1491403654
+
+- **Vendo terreno no pântano do sul 800 mts da praia**
+  - 💰 R$ 170.000 | 📐 288 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-pantano-do-sul-800-mts-da-praia-1491398213
+
