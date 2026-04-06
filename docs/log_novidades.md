@@ -60849,3 +60849,316 @@
   - 📍 Daniela — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-480-metros-quadrados-em-daniela-florianopolis-sc-1491692660
 
+
+## 🆕 62 novos anúncios — 06/04/2026 21:52
+
+- **Área com 16.803,54m² a poucos minutos do Centro de Garopaba | Natureza**
+  - 💰 R$ 1.200.000 | 📐 16804 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-com-16-803-54m-a-poucos-minutos-do-centro-de-garopaba-natureza-vista-e-potencial-1491805541
+
+- **Terreno no Pantanal floripa**
+  - 💰 R$ 120.000 | 📐 110 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-pantanal-floripa-1491804183
+
+- **Terreno escriturado na região central da praia do Campo Bom**
+  - 💰 R$ 180.000 | 📐 480 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-na-regiao-central-da-praia-do-campo-bom-1491799486
+
+- **Sítio em IMA-310 - Vargem do Rio Duna - Imaruí/SC**
+  - 💰 R$ 1.799.350 | 📐 1100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-ima-310-vargem-do-rio-duna-imarui-sc-1491798132
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1491797907
+
+- **Sítio em Estrada Geral da Praia Vermelha - Praia Vermelha - Imaruí/SC**
+  - 💰 R$ 1.649.280 | 📐 100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-estrada-geral-da-praia-vermelha-praia-vermelha-imarui-sc-1491797688
+
+- **Lote em condomínio em Rua Esperança - Araçatuba - Imbituba/SC**
+  - 💰 R$ 749.310 | 📐 831 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-em-rua-esperanca-aracatuba-imbituba-sc-1491796303
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.449.300 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1491795194
+
+- **Lote em IMB 407 - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 1.695.300 | 📐 5000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-imb-407-ibiraquera-imbituba-sc-1491794477
+
+- **Terreno no Centro de Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 1.500.000 | 📐 1600 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-santo-amaro-da-imperatriz-sc-1491793843
+
+- **Lote em Loteamento Mares Garopaba - Gamboa - Garopaba/SC**
+  - 💰 R$ 679.880 | 📐 409 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-loteamento-mares-garopaba-gamboa-garopaba-sc-1491793203
+
+- **Lote em Rua do Rosa - Arroio do Rosa - Imbituba/SC**
+  - 💰 R$ 749.540 | 📐 2092 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-do-rosa-arroio-do-rosa-imbituba-sc-1491793157
+
+- **Lote em BR 101 - Alto Arroio - Imbituba/SC**
+  - 💰 R$ 5.959.340 | 📐 50000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-br-101-alto-arroio-imbituba-sc-1491792730
+
+- **Lote em Loteamento Mares Garopaba - Gamboa - Garopaba/SC**
+  - 💰 R$ 889.300 | 📐 500 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-loteamento-mares-garopaba-gamboa-garopaba-sc-1491792302
+
+- **Lote em Avenida Santa Catarina - Centro - Imbituba/SC**
+  - 💰 R$ 799.770 | 📐 380 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-avenida-santa-catarina-centro-imbituba-sc-1491791780
+
+- **Terreno Moçambique Patrimônio Nacional do Surf**
+  - 💰 R$ 300.000 | 📐 364 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-mocambique-patrimonio-nacional-do-surf-1474106779
+
+- **Terreno Guaiuba**
+  - 💰 R$ 150.000 | 📐 384 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-guaiuba-1491782233
+
+- **Terreno**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1491781798
+
+- **Lote/Terreno, Guaiuba - Imbituba**
+  - 💰 R$ 160.000 | 📐 322 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-guaiuba-imbituba-1491781008
+
+- **Chácara com Cachoeira - Ribeirão - Imaruí/SC**
+  - 💰 R$ 690.000 | 📐 110 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-cachoeira-ribeirao-imarui-sc-1491780627
+
+- **TERRENO NO RIO VERMELHO**
+  - 💰 R$ 120.000 | 📐 132 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-vermelho-1491780386
+
+- **Chácara na Varginha 1400m2**
+  - 💰 R$ 130.000 | 📐 1400 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-na-varginha-1400m2-1491773260
+
+- **Área 12.000m² Sul da Ilha c/ Escritura para Venda ou Incorporação**
+  - 💰 R$ 28.000.000 | 📐 12000 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-12-000m-sul-da-ilha-c-escritura-para-venda-ou-incorporacao-1491771679
+
+- **Oportunidade! Sítio com casa + terreno amplo em Laranjal**
+  - 💰 R$ 350.000 | 📐 6800 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-sitio-com-casa-terreno-amplo-em-laranjal-1491386539
+
+- **Belo terreno em Caldas da Imperatriz!**
+  - 💰 R$ 340.000 | 📐 1000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-terreno-em-caldas-da-imperatriz-1491754264
+
+- **Grnade sitio em Águas Mornas - SC**
+  - 💰 R$ 1.500.000 | 📐 210000 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/grnade-sitio-em-aguas-mornas-sc-1491750900
+
+- **Sitio proximo da cidade!**
+  - 💰 R$ 980.000 | 📐 11000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-da-cidade-1491750745
+
+- **Sitio em Águas Mornas - SC**
+  - 💰 R$ 220.000 | 📐 37000 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-sc-1491749899
+
+- **Vendo terreno com projeto aprovado!**
+  - 💰 R$ 300.000 | 📐 654 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-com-projeto-aprovado-1491733048
+
+- **Sítio**
+  - 💰 R$ 200.000 | 📐 5182 m²
+  - 📍  — Armazém
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1491747408
+
+- **Terreno com casa na Cachoeira do Bom Jesus - 40 m²**
+  - 💰 R$ 180.000 | 📐 42 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-na-cachoeira-do-bom-jesus-40-m-1491745303
+
+- **Terreno de 375m² Murado em Arroio do Silva/SC**
+  - 💰 R$ 125.000 | 📐 375 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-375m-murado-em-arroio-do-silva-sc-1491741012
+
+- **Imovel de frente para a BR-282 em Águas Mornas - SC**
+  - 💰 R$ 1.600.000 | 📐 2462 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-de-frente-para-a-br-282-em-aguas-mornas-sc-1491731393
+
+- **IMPERDÍVEL, TERRENO PRA INVESTIMENTO,  NA PRAIA**
+  - 💰 R$ 20.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imperdivel-terreno-pra-investimento-na-praia-1491727452
+
+- **Belo Sitio na Vargem Grande - Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 4.500.000 | 📐 250000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-na-vargem-grande-santo-amaro-da-imperatriz-sc-1491728041
+
+- **Terreno à Venda na Pedra Branca. Próximo ao Lago**
+  - 💰 R$ 744.000 | 📐 445 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-pedra-branca-proximo-ao-lago-1491726178
+
+- **Terreno para fins Industriais em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 4.000.000 | 📐 8615 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-fins-industriais-em-santo-amaro-da-imperatriz-sc-1491720821
+
+- **TERRENO À VENDA EM Imbituba - ÓTIMA LOCALIZAÇÃO!**
+  - 💰 R$ 80.000 | 📐 120 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-em-imbituba-otima-localizacao-1491719964
+
+- **Lote comercial de esquina à venda em Tijucas/SC**
+  - 💰 R$ 1.200.000 | 📐 644 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-comercial-de-esquina-a-venda-em-tijucas-sc-1491717530
+
+- **Terreno a 550 metros do mar Praia Caravelle pronto para construir**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-550-metros-do-mar-praia-caravelle-pronto-para-construir-1491715956
+
+- **Amplo terreno com 3,3 hectares em Pescaria Brava**
+  - 💰 R$ 3.000.000 | 📐 3300 m²
+  - 📍  — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-com-3-3-hectares-em-pescaria-brava-1226562388
+
+- **Terreno Urbano Nova Trento 1km do centro.**
+  - 💰 R$ 350.000 | 📐 25000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-nova-trento-1km-do-centro-1454434808
+
+- **2  terrenos(320m²) consecutivos 720m em São José**
+  - 💰 R$ 200.000 | 📐 720 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-320m-consecutivos-720m-em-sao-jose-1491712955
+
+- **Terreno**
+  - 💰 R$ 55.000 | 📐 132 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1491712732
+
+- **Chára em Rancho Queimado - SC**
+  - 💰 R$ 650.000 | 📐 109 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chara-em-rancho-queimado-sc-1491707820
+
+- **Vendo terreno**
+  - 💰 R$ 55.000 | 📐 132 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1491704615
+
+- **Alugo terreno para lavação**
+  - 💰 R$ 1.800 | 📐 12 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alugo-terreno-para-lavacao-1491704110
+
+- **Belo Sitio em Santo Amaro!**
+  - 💰 R$ 1.400.000 | 📐 27000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-santo-amaro-1491800523
+
+- **Chácara em São Pedro de Alcântara - SC**
+  - 💰 R$ 230.000 | 📐 3000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-sao-pedro-de-alcantara-sc-1491800275
+
+- **Chacara em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 380.000 | 📐 6000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-santo-amaro-da-imperatriz-sc-1491798161
+
+- **Terreno a venda, 360m², Forquilhinha - São José - SC**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360m-forquilhinha-sao-jose-sc-1491793340
+
+- **Sitio com linda vista proximo de Rancho Queimado!**
+  - 💰 R$ 700.000 | 📐 38000 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-proximo-de-rancho-queimado-1491792549
+
+- **Chácara pronta para uso em Águas Mornas - SC**
+  - 💰 R$ 500.000 | 📐 880 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-pronta-para-uso-em-aguas-mornas-sc-1491772963
+
+- **Sitio Proximo a Angelina - SC**
+  - 💰 R$ 350.000 | 📐 40000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-a-angelina-sc-1491763013
+
+- **Lote em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 160.000 | 📐 380 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-santo-amaro-da-imperatriz-sc-1491762603
+
+- **Terreno no Centro de Rancho Queimado - SC**
+  - 💰 R$ 4.500.000 | 📐 8689 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-rancho-queimado-sc-1491754627
+
+- **Sitio no Rio dos Cedros em Águas Mornas - SC**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-no-rio-dos-cedros-em-aguas-mornas-sc-1491741799
+
+- **Terreno de frente para a geral do Aririú - Palhoça - SC**
+  - 💰 R$ 8.000.000 | 📐 3400 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-frente-para-a-geral-do-aririu-palhoca-sc-1491740392
+
+- **Belo sitio em Santo Amaro da Imperatriz!**
+  - 💰 R$ 2.800.000 | 📐 70000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-santo-amaro-da-imperatriz-1491737038
+
+- **Lindo Terreno na Geral de Caldas da Imperatriz!**
+  - 💰 R$ 950.000 | 📐 28700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-na-geral-de-caldas-da-imperatriz-1491725723
+
+- **Melhor condominio de Santo Amaro da Imperatriz, Condominio Floreville!**
+  - 💰 R$ 450.000 | 📐 500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/melhor-condominio-de-santo-amaro-da-imperatriz-condominio-floreville-1491722339
+
+- **Sitio em São Pedro de Alcântara - SC**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-sao-pedro-de-alcantara-sc-1491720275
+
