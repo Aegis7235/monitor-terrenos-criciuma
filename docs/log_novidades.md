@@ -60590,3 +60590,76 @@
   - 📍  — Anitápolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-anitapolis-verdadeiro-paraiso-venda-1390276594
 
+
+## 🆕 14 novos anúncios — 06/04/2026 05:38
+
+- **LOTES EM ANTÔNIO CARLOS**
+  - 💰 R$ 184.000 | 📐 360 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-em-antonio-carlos-1491584671
+
+- **TERRENO SANTO AMARO**
+  - 💰 R$ 250.000 | 📐 2740 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-santo-amaro-1491573467
+
+- **Vendo chácara Sto Amaro da Imperatriz.**
+  - 💰 R$ 595.000 | 📐 6000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-chacara-sto-amaro-da-imperatriz-1491571520
+
+- **Terreno à venda no Loteamento Vila do Campo**
+  - 💰 R$ 425.000 | 📐 369 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-vila-do-campo-1491571094
+
+- **Terreno a Venda de Esquina no Pinguirito  336m² em Localização Privile**
+  - 💰 R$ 850.000 | 📐 336 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-de-esquina-no-pinguirito-336m-em-localizacao-privilegiada-1491571049
+
+- **Barbada! Vendo lote/terreno 250 m² na geral do Praianos - Ótima locali**
+  - 💰 R$ 140.000 | 📐 250 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lote-terreno-250-m-na-geral-do-praianos-otima-localizacao-1405699056
+
+- **Vendo área / terreno para Posto de combustível com  933 m² até 1.620 m**
+  - 💰 R$ 1.320.000 | 📐 1620 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-area-terreno-para-posto-de-combustivel-com-933-m-ate-1-620-m-em-sao-jose-1458546820
+
+- **Vendo ou troco.**
+  - 💰 R$ 650.000 | 📐 4300 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-1491562399
+
+- **Terreno no Alto Aririu**
+  - 💰 R$ 100.000 | 📐 189 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-alto-aririu-1491559691
+
+- **Sítio 3 hectares bem localizado em Anitápolis-SC**
+  - 💰 R$ 319.500 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-3-hectares-bem-localizado-em-anitapolis-sc-1491557336
+
+- **Terreno urubici**
+  - 💰 R$ 130.000 | 📐 360 m²
+  - 📍 Aririú da Formiga — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urubici-1491557351
+
+- **Vendo mini chácara direto com proprietário**
+  - 💰 R$ 420 | 📐 380 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-mini-chacara-direto-com-proprietario-1491555901
+
+- **Terreno Plano Murado 360m² no Aririú - Rua Tranquila e Perto de Tudo**
+  - 💰 R$ 360.000 | 📐 360 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-murado-360m-no-aririu-rua-tranquila-e-perto-de-tudo-1433044623
+
+- **Melhor terreno plano Jardim Ingleses condomínio**
+  - 💰 R$ 1.000.000 | 📐 472 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/melhor-terreno-plano-jardim-ingleses-condominio-1436047389
+
