@@ -60696,3 +60696,156 @@
   - 📍  — Imaruí
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-estrada-geral-da-praia-vermelha-praia-vermelha-imarui-sc-1491613250
 
+
+## 🆕 30 novos anúncios — 06/04/2026 16:04
+
+- **Imóvel para venda com 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1491699197
+
+- **Sitio em Águas Mornas - SC**
+  - 💰 R$ 380.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-sc-1491688619
+
+- **lindo Sitio em Rancho Queimado - SC**
+  - 💰 R$ 2.000.000 | 📐 150 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-em-rancho-queimado-sc-1491687143
+
+- **Imóvel para venda tem 455 metros quadrados em Rio Tavares - Florianópo**
+  - 💰 R$ 1.200.000 | 📐 455 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-455-metros-quadrados-em-rio-tavares-florianopolis-sc-1491682669
+
+- **Venda-Chácara-Palhoça-Sertão do Campo**
+  - 💰 R$ 850.000 | 📐 120 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-chacara-palhoca-sertao-do-campo-1491676704
+
+- **Sitio com linda vista em Aguas Mornas!**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-1491674624
+
+- **Linda Chacara em Rancho Queimado - SC**
+  - 💰 R$ 750.000 | 📐 200 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-chacara-em-rancho-queimado-sc-1491673185
+
+- **Terreno de esquina para investimento no Village Dunas II a 350m da bei**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-para-investimento-no-village-dunas-ii-a-350m-da-beira-mar-1491672604
+
+- **TERRENO RUA LARGA EXCELENTE LOCALIZAÇÃO**
+  - 💰 R$ 235.000 | 📐 198 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rua-larga-excelente-localizacao-1491670081
+
+- **Terreno em Imbituba, localizado no bairro Alto Arroio, na beira da lag**
+  - 💰 R$ 1.300.000 | 📐 2300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-localizado-no-bairro-alto-arroio-na-beira-da-lagoa-de-ibiraquera-1269594189
+
+- **Lindo Sitio proximo de Rancho Queimado!!**
+  - 💰 R$ 1.360.000 | 📐 20000 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-proximo-de-rancho-queimado-1491669291
+
+- **Terreno**
+  - 💰 R$ 120.000 | 📐 190 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1491668482
+
+- **Lote de esquina bairro Campestre, 731m2**
+  - 💰 R$ 270.000 | 📐 731 m²
+  - 📍 Campestre — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-bairro-campestre-731m2-1491665765
+
+- **Dois terrenos a venda no Alto Arroio, 260 metros da lagoa de Ibiraquer**
+  - 💰 R$ 410.000 | 📐 698 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-a-venda-no-alto-arroio-260-metros-da-lagoa-de-ibiraquera-1391980236
+
+- **Terreno localizado no Alto Arroio, Imbituba-SC**
+  - 💰 R$ 350.000 | 📐 733 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-no-alto-arroio-imbituba-sc-1459344929
+
+- **Terreno em Imbituba localizado no bairro Boa Vista**
+  - 💰 R$ 98.000 | 📐 365 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-localizado-no-bairro-boa-vista-1425818471
+
+- **Terreno no condomínio The Eko Beach Resort, Imbituba-SC**
+  - 💰 R$ 700.000 | 📐 1227 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-the-eko-beach-resort-imbituba-sc-1459064587
+
+- **TERRENO NA PEDRA BRANCA**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-pedra-branca-1424647449
+
+- **Terreno Criciuma - Bairro Operaria Nova/ Santo Antonio**
+  - 💰 R$ 195.000 | 📐 435 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-criciuma-bairro-operaria-nova-santo-antonio-1491653360
+
+- **Vende**
+  - 💰 R$ 1.500.000 | 📐 120000000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-1491651392
+
+- **Terreno Condominio San Simone em Criciuma**
+  - 💰 R$ 505.000 | 📐 553 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-san-simone-em-criciuma-1491640360
+
+- **Imóvel para venda possui 264 metros quadrados em ValVerde - Balneário **
+  - 💰 R$ 80.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-264-metros-quadrados-em-valverde-balneario-gaivota-sc-1491636669
+
+- **TERRENO EM COND FECHADO - GREEN HILLS 4**
+  - 💰 R$ 590.000 | 📐 392 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-cond-fechado-green-hills-4-1431340262
+
+- **Natureza Preservada- Estrutura e Lazer**
+  - 💰 R$ 1.550.000 | 📐 410000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/natureza-preservada-estrutura-e-lazer-1294544205
+
+- **Terreno em Barreiros rua faculdade Estácio**
+  - 💰 R$ 480.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-barreiros-rua-faculdade-estacio-1491625013
+
+- **Terreno/lote Laguna**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-laguna-1462485294
+
+- **CASA FAZENDA DO MAX**
+  - 💰 R$ 495.000 | 📐 300 m²
+  - 📍 Fazenda Santo Antônio — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-fazenda-do-max-1357760523
+
+- **TERR INDUSTRIAL/COML OPEN PARK BR 282/AV.SÃO CRISTÓVÃO**
+  - 💰 R$ 828.000 | 📐 628 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terr-industrial-coml-open-park-br-282-av-sao-cristovao-1390248134
+
+- **Terreno as margens da BR-101 SUL**
+  - 💰 R$ 414.000 | 📐 905 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-as-margens-da-br-101-sul-1491694542
+
+- **Imóvel para venda possui 480 metros quadrados em Daniela - Florianópol**
+  - 💰 R$ 1.350.000 | 📐 480 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-480-metros-quadrados-em-daniela-florianopolis-sc-1491692660
+
