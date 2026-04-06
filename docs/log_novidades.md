@@ -60663,3 +60663,36 @@
   - 📍 Ingleses do Rio Vermelho — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/melhor-terreno-plano-jardim-ingleses-condominio-1436047389
 
+
+## 🆕 6 novos anúncios — 06/04/2026 10:22
+
+- **Chale Na Serra Catarinense**
+  - 💰 R$ 325.000 | 📐 40 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chale-na-serra-catarinense-1439555865
+
+- **Condomínio Clube Jardim Tijucas - Terreno de 367m2 - Preço abaixo do m**
+  - 💰 R$ 640.000 | 📐 367 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-clube-jardim-tijucas-terreno-de-367m2-preco-abaixo-do-mercado-1491620528
+
+- **Terreno diferenciado**
+  - 💰 R$ 350.000 | 📐 449 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-diferenciado-1475107073
+
+- **Terreno com vista para o verde**
+  - 💰 R$ 260.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-o-verde-1475109823
+
+- **Lote em condomínio em Avenida Deltaville - Beira Rio - Biguaçu/SC**
+  - 💰 R$ 1.492.134 | 📐 1500 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-em-avenida-deltaville-beira-rio-biguacu-sc-1491613344
+
+- **Sítio em Estrada Geral da Praia Vermelha - Praia Vermelha - Imaruí/SC**
+  - 💰 R$ 1.649.660 | 📐 100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-estrada-geral-da-praia-vermelha-praia-vermelha-imarui-sc-1491613250
+
