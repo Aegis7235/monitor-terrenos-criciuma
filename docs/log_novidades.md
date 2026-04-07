@@ -61162,3 +61162,311 @@
   - 📍 Centro — São Pedro de Alcântara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-sao-pedro-de-alcantara-sc-1491720275
 
+
+## 🆕 61 novos anúncios — 07/04/2026 05:23
+
+- **Ótima oportunidade na Lagoa Cortada!**
+  - 💰 R$ 198.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-na-lagoa-cortada-1491919032
+
+- **Terreno Frente Norte a poucos metros do mar!**
+  - 💰 R$ 280.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-norte-a-poucos-metros-do-mar-1491918786
+
+- **Terreno à venda no Campeche**
+  - 💰 R$ 850.000 | 📐 375 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-campeche-1491918181
+
+- **Oportunidade Rara: Terreno a 200m do Mar em Santo Antônio de Lisboa! T**
+  - 💰 R$ 2.000.000 | 📐 649 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-rara-terreno-a-200m-do-mar-em-santo-antonio-de-lisboa-terreno-de-648-86m-1491913791
+
+- **TERRENO ESTRATÉGICO NA AV. IVO SILVEIRA | 1.320m² EM CORREDOR COMERCIA**
+  - 💰 R$ 8.000.000 | 📐 1320 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-estrategico-na-av-ivo-silveira-1-320m-em-corredor-comercial-de-alto-fluxo-1491906026
+
+- **TERRENO A VENDA PAGANI PALHOÇA**
+  - 💰 R$ 5.000.000 | 📐 767 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-pagani-palhoca-1491906003
+
+- **Terreno a venda no bairro Ratones**
+  - 💰 R$ 2.500.000 | 📐 5280 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ratones-1491902616
+
+- **Lindo terreno de 476,01m²**
+  - 💰 R$ 550.000 | 📐 476 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-de-476-01m-1491902439
+
+- **Lote plano no Real Parque - 475,97m²**
+  - 💰 R$ 550.000 | 📐 476 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-plano-no-real-parque-475-97m-1491901453
+
+- **Terreno à venda no alto da Ladeira dos Poncianos em Ibiraquera/Imbitub**
+  - 💰 R$ 220.000 | 📐 326 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-alto-da-ladeira-dos-poncianos-em-ibiraquera-imbituba-1491896680
+
+- **Sitio com 36 hectares na Grande Florianópolis 99% Mata Nativa**
+  - 💰 R$ 5.000.000 | 📐 360000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-36-hectares-na-grande-florianopolis-99-mata-nativa-1491890001
+
+- **Terreno Urbano - Venda - 976,62m2 à 2.263,29m2 - Condomínio Campestre **
+  - 💰 R$ 250.000 | 📐 976 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-venda-976-62m2-a-2-263-29m2-condominio-campestre-vila-dorf-gottingen-1491888217
+
+- **Terreno à venda, 2622 m² por R$ 737.566,88 - Caputera - Laguna/SC**
+  - 💰 R$ 737.567 | 📐 2622 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2622-m-por-r-737-566-88-caputera-laguna-sc-1491885952
+
+- **Terreno à venda, 3109 m² por R$ 1.088.213,00 - Caputera - Laguna/SC**
+  - 💰 R$ 1.088.213 | 📐 3109 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3109-m-por-r-1-088-213-00-caputera-laguna-sc-1491885811
+
+- **Terreno à venda, 3177 m² por R$ 893.801,25 - Caputera - Laguna/SC**
+  - 💰 R$ 893.801 | 📐 3178 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3177-m-por-r-893-801-25-caputera-laguna-sc-1491885766
+
+- **Terreno à venda, 5106 m² por R$ 1.787.226,00 - Caputera - Laguna/SC**
+  - 💰 R$ 1.787.226 | 📐 5106 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-5106-m-por-r-1-787-226-00-caputera-laguna-sc-1491885626
+
+- **Terreno à venda, 3152 m² por R$ 886.516,88 - Caputera - Laguna/SC**
+  - 💰 R$ 886.517 | 📐 3152 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3152-m-por-r-886-516-88-caputera-laguna-sc-1491885445
+
+- **Terreno à venda, 2632 m² por R$ 740.385,00 - Caputera - Laguna/SC**
+  - 💰 R$ 740.385 | 📐 2632 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2632-m-por-r-740-385-00-caputera-laguna-sc-1491885350
+
+- **Terreno à venda, 2696 m² por R$ 758.446,88 - Caputera - Laguna/SC**
+  - 💰 R$ 758.447 | 📐 2697 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2696-m-por-r-758-446-88-caputera-laguna-sc-1491885092
+
+- **Terreno à venda, 2663 m² por R$ 749.041,88 - Caputera - Laguna/SC**
+  - 💰 R$ 749.042 | 📐 2663 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2663-m-por-r-749-041-88-caputera-laguna-sc-1491885098
+
+- **Terreno à venda, 51842 m² por R$ 33.000.000,00 - Caputera - Laguna/SC**
+  - 💰 R$ 33.000.000 | 📐 51842 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-51842-m-por-r-33-000-000-00-caputera-laguna-sc-1491885075
+
+- **Terreno à venda, 2612 m² por R$ 734.625,00 - Caputera - Laguna/SC**
+  - 💰 R$ 734.625 | 📐 2612 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2612-m-por-r-734-625-00-caputera-laguna-sc-1491884981
+
+- **Terreno à venda, 3173 m² por R$ 892.653,75 - Caputera - Laguna/SC**
+  - 💰 R$ 892.654 | 📐 3174 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3173-m-por-r-892-653-75-caputera-laguna-sc-1491884592
+
+- **Terreno à venda, 3203 m² por R$ 901.074,38 - Caputera - Laguna/SC**
+  - 💰 R$ 901.074 | 📐 3204 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3203-m-por-r-901-074-38-caputera-laguna-sc-1491884598
+
+- **Sítio com casa de 2 quartos no bairro Potecas, São José**
+  - 💰 R$ 4.200 | 📐 150 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-de-2-quartos-no-bairro-potecas-sao-jose-1491884579
+
+- **Terreno à venda, 1425 m² por R$ 2.000.000,00 - Centro - Laguna/SC**
+  - 💰 R$ 2.000.000 | 📐 1425 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1425-m-por-r-2-000-000-00-centro-laguna-sc-1491884303
+
+- **Terreno à venda, 3186 m² por R$ 896.180,63 - Caputera - Laguna/SC**
+  - 💰 R$ 896.181 | 📐 3186 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3186-m-por-r-896-180-63-caputera-laguna-sc-1491884298
+
+- **Terreno à venda, 3011 m² por R$ 846.925,31 - Caputera - Laguna/SC**
+  - 💰 R$ 846.925 | 📐 3011 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3011-m-por-r-846-925-31-caputera-laguna-sc-1491884310
+
+- **Terreno à venda, 3164 m² por R$ 890.069,06 - Caputera - Laguna/SC**
+  - 💰 R$ 890.069 | 📐 3165 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3164-m-por-r-890-069-06-caputera-laguna-sc-1491884229
+
+- **Vendo  chalé Anitápolis**
+  - 💰 R$ 670.000 | 📐 45000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-chale-anitapolis-1491883899
+
+- **Terreno à venda, 2642 m² por R$ 743.200,31 - Caputera - Laguna/SC**
+  - 💰 R$ 743.200 | 📐 2642 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2642-m-por-r-743-200-31-caputera-laguna-sc-1491883886
+
+- **Terreno à venda, 2652 m² por R$ 746.018,44 - Caputera - Laguna/SC**
+  - 💰 R$ 746.018 | 📐 2653 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2652-m-por-r-746-018-44-caputera-laguna-sc-1491883796
+
+- **Terreno à venda, 3197 m² por R$ 899.296,88 - Caputera - Laguna/SC**
+  - 💰 R$ 899.297 | 📐 3198 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3197-m-por-r-899-296-88-caputera-laguna-sc-1491883795
+
+- **Terreno à venda, 3837 m² por R$ 1.079.246,25 - Caputera - Laguna/SC**
+  - 💰 R$ 1.079.246 | 📐 3837 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3837-m-por-r-1-079-246-25-caputera-laguna-sc-1491883315
+
+- **Ratones | Terreno**
+  - 💰 R$ 650.000 | 📐 455 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ratones-terreno-1491883180
+
+- **O melhor lote do Empreendimento**
+  - 💰 R$ 399.000 | 📐 450 m²
+  - 📍 Centro — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/o-melhor-lote-do-empreendimento-1491865065
+
+- **Terreno para Venda em Florianópolis, João Paulo**
+  - 💰 R$ 1.800.000 | 📐 613 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-joao-paulo-1491864889
+
+- **Vendo linda Chácara em Águas Mornas**
+  - 💰 R$ 360.000 | 📐 3000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-linda-chacara-em-aguas-mornas-1491864043
+
+- **Terreno à venda - Loteamento Rio das Pedras**
+  - 💰 R$ 110.000 | 📐 368 m²
+  - 📍 Vila São José — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-rio-das-pedras-1491857888
+
+- **Terreno a venda Florianopolis.**
+  - 💰 R$ 10.700.000 | 📐 926 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-florianopolis-1491855033
+
+- **Terreno sítio pagará São Sebastião palhoça**
+  - 💰 R$ 400.000 | 📐 3029 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sitio-pagara-sao-sebastiao-palhoca-1491851131
+
+- **TERRENO TODO MURADO**
+  - 💰 R$ 284.000 | 📐 211 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-todo-murado-1491850487
+
+- **Ótimo terreno, ótima localização, extrema com nações shopping Criciúma**
+  - 💰 R$ 1.500.000 | 📐 1480 m²
+  - 📍 Nossa Senhora da Salete — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-otima-localizacao-extrema-com-nacoes-shopping-criciuma-1491848837
+
+- **Terreno c/escritura em Forquilhas,  São José-SC**
+  - 💰 R$ 220.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-c-escritura-em-forquilhas-sao-jose-sc-1491844086
+
+- **Terreno / Lote 500m² com 5 Residências Alugadas - São José - EST**
+  - 💰 R$ 790.000 | 📐 500 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-500m-com-5-residencias-alugadas-sao-jose-est-1491847147
+
+- **Terreno / Lote 500m² com 5 Residências Alugadas - São José - JMS**
+  - 💰 R$ 790.000 | 📐 500 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-500m-com-5-residencias-alugadas-sao-jose-jms-1491844058
+
+- **Terreno a venda**
+  - 💰 R$ 1.675.000 | 📐 1571 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1491833510
+
+- **Terreno / Lote 500m² com 5 Residências Alugadas - São José**
+  - 💰 R$ 790.000 | 📐 500 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-500m-com-5-residencias-alugadas-sao-jose-1491833080
+
+- **Lindíssimo sítio com visual pra lagoa**
+  - 💰 R$ 200.000 | 📐 2000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindissimo-sitio-com-visual-pra-lagoa-1491824220
+
+- **ANITÁPOLIS/SC - terreno para sítio**
+  - 💰 R$ 120.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-para-sitio-1491828542
+
+- **Terreno / Lote 500m² com 5 Residências Alugadas - São José - CEN**
+  - 💰 R$ 790.000 | 📐 500 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-500m-com-5-residencias-alugadas-sao-jose-cen-1491825047
+
+- **Sítio**
+  - 💰 R$ 590.000 | 📐 13000 m²
+  - 📍 Coqueiros — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1491823910
+
+- **Terreno de 151 m² Beira Rio - Biguaçu**
+  - 💰 R$ 198.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-151-m-beira-rio-biguacu-1491822987
+
+- **Oportunidade em Passo de torres abaixo do valor**
+  - 💰 R$ 69.900 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-passo-de-torres-abaixo-do-valor-1491820903
+
+- **Sitio encantador no Pagará em São Pedro de Alcântara**
+  - 💰 R$ 286.000 | 📐 6000 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-encantador-no-pagara-em-sao-pedro-de-alcantara-1491816032
+
+- **Lindo terreno de esquina no loteamento nova governador Celso Ramos**
+  - 💰 R$ 215.900 | 📐 415 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-de-esquina-no-loteamento-nova-governador-celso-ramos-1491814377
+
+- **Terreno à Venda no Centro de Imbituba**
+  - 💰 R$ 830.000 | 📐 378 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-imbituba-1491808745
+
+- **Terreno à venda, 375 m² por R$ 235.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 235.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-235-000-00-bellatorres-passo-de-torres-sc-1385809604
+
+- **Chácara / sítio à venda na Zona Rural, Içara**
+  - 💰 R$ 600.000 | 📐 30000 m²
+  - 📍 Zona Rural — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-zona-rural-30000m2-RS600000/id-41252204/
+
+- **Chácara / sítio à venda na Zona Rural, Içara**
+  - 💰 R$ 450.000 | 📐 30000 m²
+  - 📍 Zona Rural — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-icara-zona-rural-30000m2-RS450000/id-41252203/
+
+- **Chácara / sítio com 3 quartos à venda na Zona Rural, Içara**
+  - 💰 R$ 550.000 | 📐 30000 m²
+  - 📍 Zona Rural — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-icara-zona-rural-30000m2-RS550000/id-41252202/
+
