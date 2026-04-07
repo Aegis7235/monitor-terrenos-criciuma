@@ -61470,3 +61470,216 @@
   - 📍 Zona Rural — Içara
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-icara-zona-rural-30000m2-RS550000/id-41252202/
 
+
+## 🆕 42 novos anúncios — 07/04/2026 10:21
+
+- **Sítio em Estrada Geral da Praia Vermelha - Praia Vermelha - Imaruí/SC**
+  - 💰 R$ 1.649.660 | 📐 100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-estrada-geral-da-praia-vermelha-praia-vermelha-imarui-sc-1491945287
+
+- **Lote em Rodovia Luiz Rosso - Quarta Linha - Criciúma/SC**
+  - 💰 R$ 2.399.860 | 📐 4483 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rodovia-luiz-rosso-quarta-linha-criciuma-sc-1491944849
+
+- **Lote em SC 445 - São José - Içara/SC**
+  - 💰 R$ 509.190 | 📐 879 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-sc-445-sao-jose-icara-sc-1491944335
+
+- **Lote em BR 101 - Alto Arroio - Imbituba/SC**
+  - 💰 R$ 5.959.310 | 📐 50000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-br-101-alto-arroio-imbituba-sc-1491943996
+
+- **ANITÁPOLIS/SC - Terreno com rio 7hectares**
+  - 💰 R$ 700.000 | 📐 70000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-com-rio-7hectares-1336426979
+
+- **ANITÁPOLIS/SC - Belíssimo sítio com excelente casal já pronta 4.8hecta**
+  - 💰 R$ 480.000 | 📐 48000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-belissimo-sitio-com-excelente-casal-ja-pronta-4-8hectares-1391673174
+
+- **Chacara, Distrito Industrial - São José**
+  - 💰 R$ 1.400.000 | 📐 2000 m²
+  - 📍 Distrito Industrial — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-distrito-industrial-sao-jose-1491937264
+
+- **Terreno com vista eterna ao mar, com 1.000 m², no Morro das Antenas ba**
+  - 💰 R$ 2.100.000 | 📐 1000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-eterna-ao-mar-com-1-000-m-no-morro-das-antenas-bairro-ferraz-garopab-1491935793
+
+- **Terreno à Venda na Praia do Pontal, Palhoça por R$220.000**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-do-pontal-palhoca-por-r-220-000-1491929311
+
+- **Terreno à venda em Garopaba-SC: 720m² no Campo Duna, a 100m da Lagoa d**
+  - 💰 R$ 500.000 | 📐 720 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-720m-no-campo-duna-a-100m-da-lagoa-de-ibiraquera-invist-1491925544
+
+- **Terreno na Trindade 360m² com viabilidade**
+  - 💰 R$ 2.500.000 | 📐 360 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-trindade-360m-com-viabilidade-1491924011
+
+- **Excelente oportunidade de adquirir um terreno em Santo Amaro da Impera**
+  - 💰 R$ 550.000 | 📐 1160 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-de-adquirir-um-terreno-em-santo-amaro-da-imperatriz-1491921137
+
+- **Sítio de 100.000 m² em Garopaba**
+  - 💰 R$ 2.100.000 | 📐 400 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-100-000-m-em-garopaba-1491920199
+
+- **Lindo Sitia à venda no bairro da Palhoça**
+  - 💰 R$ 2.120.000 | 📐 30000 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitia-a-venda-no-bairro-da-palhoca-1491920048
+
+- **Terreno à venda e locação em Carianos, FL**
+  - 💰 R$ 40.000 | 📐 10722 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-e-locacao-em-carianos-fl-1491919392
+
+- **Terreno frente BR 101 70m de frente em Imbituba SC bairro Guaiúba**
+  - 💰 R$ 1.590.000 | 📐 4790 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-br-101-70m-de-frente-em-imbituba-sc-bairro-guaiuba-1491941243
+
+- **02 terrenos com vista Mar na praia de São Miguel - Penha**
+  - 💰 R$ 1.190.000 | 📐 776 m²
+  - 📍 Morro da Fumaça — Estação Cocal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/02-terrenos-com-vista-mar-na-praia-de-sao-miguel-penha-1477419893
+
+- **Lote em Rua Francisco Peruchi - Pio Corrêa - Criciúma/SC**
+  - 💰 R$ 424.650 | 📐 362 m²
+  - 📍 Mina Brasil — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-francisco-peruchi-pio-correa-criciuma-sc-1491946312
+
+- **Fazenda em Estrada Geral do Moura - Moura - Canelinha/SC**
+  - 💰 R$ 14.989.850 | 📐 300000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-em-estrada-geral-do-moura-moura-canelinha-sc-1491946089
+
+- **Casa alvenaria alto padrão, Bairro Pinheirinho em Criciuma**
+  - 💰 R$ 759.000 | 📐 223 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-criciuma-pinheirinho-RS759000/id-35845744/
+
+- **Casa com 2 quartos à venda em Presidente Vargas, Içara**
+  - 💰 R$ 480.000 | 📐 100 m²
+  - 📍 Presidente Vargas — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-presidente-vargas-100m2-RS480000/id-29630498/
+
+- **Casa com 3 quartos à venda na Rua Geraldino João da Silva, 543, Arapon**
+  - 💰 R$ 620.000 | 📐 280 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-arapongas-360m2-RS620000/id-32853946/
+
+- **Sua nova casa com 3 dormitorios e suite proximo ao Parque Belinzone**
+  - 💰 R$ 430.000 | 📐 115 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-urussanguinha-300m2-RS430000/id-37863279/
+
+- **Casa com 3 quartos à venda no Coloninha, Araranguá**
+  - 💰 R$ 260.000 | 📐 110 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-coloninha-RS260000/id-28645829/
+
+- **Casa para Venda em Sombrio, Raizeira, 3 dormitórios, 1 suíte, 1 banhei**
+  - 💰 R$ 530.000 | 📐 450 m²
+  - 📍 Raizeira — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-raizeira-450m2-RS530000/id-25603071/
+
+- **Casa para Venda em Sombrio, São Luiz, 3 dormitórios, 1 suíte, 1 banhei**
+  - 💰 R$ 610.000 | 📐 444 m²
+  - 📍 São Luiz — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-sao-luiz-444m2-RS610000/id-33965252/
+
+- **Casa para Venda em Sombrio, Januária, 3 dormitórios, 1 suíte, 1 banhei**
+  - 💰 R$ 420.000 | 📐 184 m²
+  - 📍 Januária — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-januaria-184m2-RS420000/id-25603014/
+
+- **Casa para Venda em Sombrio, São Luiz, 2 dormitórios, 1 banheiro, 1 vag**
+  - 💰 R$ 350.000 | 📐 70 m²
+  - 📍 São Luiz — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-sao-luiz-389m2-RS350000/id-31675456/
+
+- **Casa para Venda em Sombrio, São Luiz, 3 dormitórios, 1 banheiro, 1 vag**
+  - 💰 R$ 265.000 | 📐 80 m²
+  - 📍 São Luiz — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-sao-luiz-357m2-RS265000/id-25603011/
+
+- **Casa com 3 dormitórios à venda, 93 m² por R$ 790.000 - Bellatorres - P**
+  - 💰 R$ 790.000 | 📐 93 m²
+  - 📍 Bela Torres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-bela-torres-325m2-RS790000/id-36646216/
+
+- **Casa em condomínio fechado com 3 quartos à venda no Paraiso, Passo de **
+  - 💰 R$ 2.190.000 | 📐 220 m²
+  - 📍 Paraiso — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-passo-de-torres-paraiso-220m2-RS2190000/id-40831744/
+
+- **Casa em condomínio fechado com 3 quartos à venda no Centro, Passo de T**
+  - 💰 R$ 2.667.288 | 📐 170 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-passo-de-torres-centro-170m2-RS2667288/id-32414241/
+
+- **Casa com 3 quartos à venda na Rua Do Camarao, 321, Balneário Rosa do M**
+  - 💰 R$ 1.215.745 | 📐 180 m²
+  - 📍 Balneário Rosa do Mar — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-balneario-rosa-do-mar-300m2-RS1215745/id-32787056/
+
+- **Linda Casa em condominio fechado,acesso ao Rio Mampituba em Passo de T**
+  - 💰 R$ 2.900.000 | 📐 367 m²
+  - 📍 Costa do Rio Mampituba — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-sc-passo-de-torres-costa-do-rio-mampituba-RS2900000/id-30559741/
+
+- **Casa com 3 dormitórios à venda, 96 m² por R$ 750.000,00 - Lagoa Cortad**
+  - 💰 R$ 750.000 | 📐 97 m²
+  - 📍 Lagoa Cortada — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-lagoa-cortada-300m2-RS750000/id-26895108/
+
+- **Casa à venda na Praia Turimar, Balneário Gaivota**
+  - 💰 R$ 174.000 | 📐 ? m²
+  - 📍 Praia Turimar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-balneario-gaivota-praia-turimar-RS174000/id-9828206/
+
+- **Casa com 2 quartos à venda na Zona Nova, Balneário Rincão**
+  - 💰 R$ 550.000 | 📐 141 m²
+  - 📍 Zona Nova — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-rincao-zona-nova-360m2-RS550000/id-39096727/
+
+- **Casa para Venda em Balneário Rincão, zona norte, 3 dormitórios, 1 suít**
+  - 💰 R$ 1.350.000 | 📐 200 m²
+  - 📍 Zona Norte — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-rincao-zona-norte-200m2-RS1350000/id-33873478/
+
+- **Casa em condomínio fechado com 3 quartos à venda na Lagoa Dos Esteves,**
+  - 💰 R$ 1.880.000 | 📐 227 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-227m2-RS1880000/id-40308853/
+
+- **Ótima Casa Mobiliada 4 quartos Próxima ao Mar Balneário Rincão SC**
+  - 💰 R$ 1.500.000 | 📐 300 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-balneario-rincao-zona-sul-300m2-RS1500000/id-40646090/
+
+- **Casa à Venda em Jaguaruna - Centro, 3 Quartos, 2 Vagas, 360 m² de Terr**
+  - 💰 R$ 890.000 | 📐 250 m²
+  - 📍 Centro — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-centro-360m2-RS890000/id-39206681/
+
+- **Sobrado de 2 quartos, 2 banheiros, pátio e 2 vagas em Jaguaruna BAIRRO**
+  - 💰 R$ 289.000 | 📐 60 m²
+  - 📍 Camacho — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-camacho-60m2-RS289000/id-41050805/
+
