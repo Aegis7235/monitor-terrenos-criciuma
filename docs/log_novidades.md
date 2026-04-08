@@ -62342,3 +62342,156 @@
   - 📍 Saco Grande — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-480-m-a-venda-em-saco-grande-florianopolis-1492177935
 
+
+## 🆕 30 novos anúncios — 08/04/2026 10:21
+
+- **Terreno com fundos pra lagoa e à 450m da praia com 1057,20m² escritura**
+  - 💰 R$ 1.100.000 | 📐 1057 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-fundos-pra-lagoa-e-a-450m-da-praia-com-1057-20m-escriturado-em-ibiraquera-imb-1492307818
+
+- **Terreno - Florianópolis SC**
+  - 💰 R$ 800.000 | 📐 401 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-florianopolis-sc-1492306209
+
+- **Terreno a venda Balneario Rincao**
+  - 💰 R$ 98.000 | 📐 288 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-balneario-rincao-1492304153
+
+- **Terreno à Venda no Loteamento Candiotto**
+  - 💰 R$ 130.000 | 📐 370 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-candiotto-1492295573
+
+- **Terreno à Venda no Cristo Rei, Içara**
+  - 💰 R$ 350.000 | 📐 49 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-cristo-rei-icara-1492295549
+
+- **Centro Esportivo à Venda - Terreno Comercial**
+  - 💰 R$ 3.500.000 | 📐 650 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/centro-esportivo-a-venda-terreno-comercial-1492295521
+
+- **Sítio à Venda em Águas Mornas com 2 Quartos por R$550 Mil**
+  - 💰 R$ 550.000 | 📐 3359887 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-aguas-mornas-com-2-quartos-por-r-550-mil-1492293957
+
+- **Área 21.293 m² - Fundos - Biguaçu - SC**
+  - 💰 R$ 4.900.000 | 📐 21293 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-21-293-m-fundos-biguacu-sc-1492293914
+
+- **Terreno de 300m² no Loteamento Reserva do Lago em Imbituba-SC: A oport**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300m-no-loteamento-reserva-do-lago-em-imbituba-sc-a-oportunidade-da-semana-1492290167
+
+- **Terreno 360m², Loteamento Alameda Cézanne, Canasvieiras, Florianópolis**
+  - 💰 R$ 525.000 | 📐 360 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-loteamento-alameda-cezanne-canasvieiras-florianopolis-sc-1492289760
+
+- **TERRENO NA MELHOR LOCALIZAÇÃO DA SC 401 COM 19.75 METROS**
+  - 💰 R$ 60.000.000 | 📐 19745 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-melhor-localizacao-da-sc-401-com-19-75-metros-1492289529
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 600.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289434
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289428
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 700.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289431
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 600.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289417
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289409
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 700.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289402
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 600.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289392
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 650.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289138
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 650.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289162
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 500.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289179
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289205
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 600.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289210
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 600.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289183
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 600.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289142
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 500.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289096
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492289008
+
+- **Sítio c/ 2 hectares- Direto com a construtora, São Pedro de Alcantra**
+  - 💰 R$ 650.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-hectares-direto-com-a-construtora-sao-pedro-de-alcantra-1492288961
+
+- **Oportunidade Única em CRICIUMA - SC | Tipo: Terreno | Negociação: Lici**
+  - 💰 R$ 68.787 | 📐 361 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-criciuma-sc-tipo-terreno-negociacao-licitacao-aberta-situa-1492287831
+
+- **Grande Área para loteamento troco imóveis ou carros**
+  - 💰 R$ 5.900.000 | 📐 220000000 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/grande-area-para-loteamento-troco-imoveis-ou-carros-1492284805
+
