@@ -62658,3 +62658,201 @@
   - 📍 Centro — Timbé do Sul
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-timbe-do-sul-centro-55000m2-RS2650000/id-41273425/
 
+
+## 🆕 39 novos anúncios — 08/04/2026 21:57
+
+- **Terreno de 374 m² à venda no bairro Carianos, em Florianópolis/SC.**
+  - 💰 R$ 600.000 | 📐 375 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-374-m-a-venda-no-bairro-carianos-em-florianopolis-sc-1492513890
+
+- **Terreno às margens da BR-101 no bairro Serraria, em São José/SC.**
+  - 💰 R$ 1.800.000 | 📐 378 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-as-margens-da-br-101-no-bairro-serraria-em-sao-jose-sc-1492513570
+
+- **Lote para venda São José Bairro Real Parque Próximo Avenida das Torres**
+  - 💰 R$ 335.000 | 📐 12 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-para-venda-sao-jose-bairro-real-parque-proximo-avenida-das-torres-1492504973
+
+- **Terreno com 161m2 em condomínio fechado no bairro planejado DeltaVille**
+  - 💰 R$ 250.000 | 📐 161 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-161m2-em-condominio-fechado-no-bairro-planejado-deltaville-em-biguacu-sc-1492497692
+
+- **Terreno com 195m2 em condomínio fechado no bairro planejado DeltaVille**
+  - 💰 R$ 290.000 | 📐 195 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-195m2-em-condominio-fechado-no-bairro-planejado-deltaville-em-biguacu-sc-1492497050
+
+- **Terreno com 300m² a venda em Barreiros, São José/SC!**
+  - 💰 R$ 480.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-300m-a-venda-em-barreiros-sao-jose-sc-1492496317
+
+- **Terreno Residencial em Cacupé**
+  - 💰 R$ 3.700.000 | 📐 762 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-cacupe-1492496157
+
+- **Vendo Terreno no bairro Sertão do Maruim - São José/SC.**
+  - 💰 R$ 375.000 | 📐 451 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-bairro-sertao-do-maruim-sao-jose-sc-1492495790
+
+- **Vendo Terreno no bairro Sertão do Maruim - São José/SC.**
+  - 💰 R$ 419.900 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-bairro-sertao-do-maruim-sao-jose-sc-1492494862
+
+- **Imóvel para venda possui 360 metros quadrados em Daniela - Florianópol**
+  - 💰 R$ 890.000.000 | 📐 360 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-360-metros-quadrados-em-daniela-florianopolis-sc-1492492050
+
+- **TERRENO EM BALNEÁRIO ARROIO DO SILVA - SC**
+  - 💰 R$ 49.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-arroio-do-silva-sc-1492492571
+
+- **Vendo terreno no loteamento Bosque Imbituba**
+  - 💰 R$ 55.000 | 📐 ? m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-loteamento-bosque-imbituba-1492502210
+
+- **BARBADA:  Terreno em São José**
+  - 💰 R$ 365.000 | 📐 600 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-em-sao-jose-1492501292
+
+- **Direto proprietário | Terreno 450m² Real Parque | Melhor preço**
+  - 💰 R$ 480.000 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/direto-proprietario-terreno-450m-real-parque-melhor-preco-1492489173
+
+- **Vendo Terreno. Ótima Oportunidade.**
+  - 💰 R$ 300.000 | 📐 654 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-otima-oportunidade-1492478810
+
+- **Terreno com 161m2 em condomínio fechado no bairro planejado DeltaVille**
+  - 💰 R$ 250.000 | 📐 161 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-161m2-em-condominio-fechado-no-bairro-planejado-deltaville-em-biguacu-sc-1492477267
+
+- **Área para loteamento**
+  - 💰 R$ 11.200.000 | 📐 170000 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-para-loteamento-1492476009
+
+- **Terreno com 195m2 em condomínio fechado no bairro planejado DeltaVille**
+  - 💰 R$ 290.000 | 📐 195 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-195m2-em-condominio-fechado-no-bairro-planejado-deltaville-em-biguacu-sc-1492474969
+
+- **Vendo Terreno no bairro Sertão do Maruim - São José/SC.**
+  - 💰 R$ 375.000 | 📐 451 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-bairro-sertao-do-maruim-sao-jose-sc-1492474427
+
+- **Terreno Residencial em Forquilhinhas**
+  - 💰 R$ 265.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-forquilhinhas-1492473985
+
+- **Vendo Terreno no bairro Sertão do Maruim - São José/SC.**
+  - 💰 R$ 419.900 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-bairro-sertao-do-maruim-sao-jose-sc-1492473855
+
+- **Terreno Comercial em Forquilhinhas**
+  - 💰 R$ 8.000.000 | 📐 141947 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-forquilhinhas-1492473853
+
+- **Terreno com 300m² a venda em Barreiros, São José/SC!**
+  - 💰 R$ 480.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-300m-a-venda-em-barreiros-sao-jose-sc-1492473825
+
+- **Vendo terreno rural**
+  - 💰 R$ 90.000 | 📐 2133 m²
+  - 📍  — Morro Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-rural-1492473773
+
+- **Terreno Residencial em Cacupé**
+  - 💰 R$ 3.700.000 | 📐 762 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-cacupe-1492473201
+
+- **Imóvel para venda possui 20000 metros quadrados em Barro Preto - Alfre**
+  - 💰 R$ 170.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-20000-metros-quadrados-em-barro-preto-alfredo-wagner-sc-1492471264
+
+- **Oportunidade! Terreno em Campeche - FLORIANÓPOLIS**
+  - 💰 R$ 14.665 | 📐 488 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-campeche-florianopolis-1492458951
+
+- **Oportunidade Única em GOVERNADOR CELSO RAMOS - SC | Tipo: Terreno | Ne**
+  - 💰 R$ 187.000 | 📐 359 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-governador-celso-ramos-sc-tipo-terreno-negociacao-leilao-s-1492455308
+
+- **Terreno em canelinha**
+  - 💰 R$ 100.000 | 📐 ? m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-canelinha-1492459993
+
+- **Sítio pra vender**
+  - 💰 R$ 750.000 | 📐 6000 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-pra-vender-1492431929
+
+- **Terreno 760m² em Condomínio - Bosque das Mansões - BRN**
+  - 💰 R$ 2.997.000 | 📐 760 m²
+  - 📍 Bosque das Mansões — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-760m-em-condominio-bosque-das-mansoes-brn-1492431421
+
+- **Terreno plano com 392,78 m². Lote de esquina, em frente a uma área de **
+  - 💰 R$ 1.298.000 | 📐 392 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-com-392-78-m-lote-de-esquina-em-frente-a-uma-area-de-preservacao-da-mata-1492430569
+
+- **Terreno à venda em Forquilinhas, São José**
+  - 💰 R$ 300.000 | 📐 421 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-forquilinhas-sao-jose-1492430061
+
+- **Imóvel para venda possui 150 metros quadrados com 3 quartos em Aririú **
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1492427266
+
+- **Terreno plano à venda - Pinheira, Palhoça/SC**
+  - 💰 R$ 500.000 | 📐 431 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-a-venda-pinheira-palhoca-sc-1492423332
+
+- **TERRENO EM FRENTE A LAGOA DA CONCEIÇÃO EM FLORIANÓPOLIS 307m²**
+  - 💰 R$ 1.000.000 | 📐 307 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-frente-a-lagoa-da-conceicao-em-florianopolis-307m-1434235825
+
+- **OPORTUNIDADE - TERRENO FRENTE NORTE COM LOCALIZAÇÂO PRIVILEGIADA**
+  - 💰 R$ 195.000 | 📐 330 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-frente-norte-com-localizacao-privilegiada-1492421284
+
+- **Vende-se terreno em Timbé do sul, bairro Amola Faca, terreno possui 14**
+  - 💰 R$ 90.000 | 📐 1437 m²
+  - 📍  — Timbé do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-em-timbe-do-sul-bairro-amola-faca-terreno-possui-1437-metros-quadrados-1492421022
+
+- **Terreno plano à venda - Areias, Paulo Lopes/SC**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-a-venda-areias-paulo-lopes-sc-1492419640
+
