@@ -62129,3 +62129,216 @@
   - 📍 Jardim Bela Vista — Cocal do Sul
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-sc-cocal-do-sul-jardim-bela-vista-1500m2-RS2680000/id-41274986/
 
+
+## 🆕 42 novos anúncios — 08/04/2026 05:24
+
+- **Terreno à venda em Garopaba-SC, bairro Areias de Palhocinha, 408m² de **
+  - 💰 R$ 440.000 | 📐 408 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-bairro-areias-de-palhocinha-408m-de-area-adquira-ja-1492284138
+
+- **Terreno 6.000,78 m² financiável no Campeche**
+  - 💰 R$ 10.650.000 | 📐 6001 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-6-000-78-m-financiavel-no-campeche-1492283484
+
+- **Terreno de leilão em DE VILLA / URUSSANGA / SC | Leilão SFI - Edital Ú**
+  - 💰 R$ 210.415 | 📐 507 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-de-villa-urussanga-sc-leilao-sfi-edital-unico-1492274447
+
+- **Terreno em Alfredo Wagner oportunidade  investimento**
+  - 💰 R$ 1.900.000 | 📐 30000000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-alfredo-wagner-oportunidade-investimento-1492272646
+
+- **Lote em condomínio fechado no Villa Ratones em Florianópolis/SC**
+  - 💰 R$ 1.300.000 | 📐 407 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-no-villa-ratones-em-florianopolis-sc-1492268986
+
+- **Terreno à venda, 300 m² por R$ 280.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 280.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-280-000-bellatorres-passo-de-torres-sc-1492264036
+
+- **Terreno à venda de esquina, 360 m² por R$ 175.000 - Miratorres - Passo**
+  - 💰 R$ 175.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-de-esquina-360-m-por-r-175-000-miratorres-passo-de-torres-sc-1492261011
+
+- **Terrenos à venda, 600 m² por R$ 220.000 - Sumaré II - Passo de Torres/**
+  - 💰 R$ 220.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-600-m-por-r-220-000-sumare-ii-passo-de-torres-sc-1492260547
+
+- **Terreno à venda, 300 m² por R$ 195.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 195.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-195-000-00-bellatorres-passo-de-torres-sc-1492260473
+
+- **Terreno residencial e comercial**
+  - 💰 R$ 150.000 | 📐 407 m²
+  - 📍 Vendaval — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-e-comercial-1492259380
+
+- **Lindo Hotel fazenda**
+  - 💰 R$ 4.200.000 | 📐 30000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-hotel-fazenda-1492257297
+
+- **Terreno à venda em Tapera da Base, Florianópolis**
+  - 💰 R$ 3.000.000 | 📐 2001 m²
+  - 📍 Tapera da Base — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-tapera-da-base-florianopolis-1492257050
+
+- **Terreno no Roçado, São José - Oportunidade!**
+  - 💰 R$ 6.000.000 | 📐 37334 m²
+  - 📍 Roçado — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rocado-sao-jose-oportunidade-1492255185
+
+- **Terreno à venda em São José - SC**
+  - 💰 R$ 350.000 | 📐 378 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-jose-sc-1492254369
+
+- **Terreno Saco dos Limoes**
+  - 💰 R$ 2.316.000 | 📐 587 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-saco-dos-limoes-1492254348
+
+- **Terreno 36 Hectares Localizado em TIJUCAS/SC**
+  - 💰 R$ 20.000.000 | 📐 359532 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-36-hectares-localizado-em-tijucas-sc-1492254347
+
+- **Terreno na Trindade 360m² com viabilidade**
+  - 💰 R$ 2.500.000 | 📐 360 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-trindade-360m-com-viabilidade-1492254352
+
+- **Terreno à venda, 576 m² por R$ 500.000,00 - Daniela - Florianópolis/SC**
+  - 💰 R$ 500.000 | 📐 576 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-576-m-por-r-500-000-00-daniela-florianopolis-sc-1492250627
+
+- **Lindo lote na Laureano cm 294 metros quadrados com projeto aprovado**
+  - 💰 R$ 580.000 | 📐 218 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-lote-na-laureano-cm-294-metros-quadrados-com-projeto-aprovado-1492249220
+
+- **Oportunidade única no condomínio mais desejado de Ratones! Villa Raton**
+  - 💰 R$ 1.067.000 | 📐 421 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-no-condominio-mais-desejado-de-ratones-villa-ratones-1492248951
+
+- **Terreno Financiável Sul da Ilha**
+  - 💰 R$ 700.000 | 📐 375 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-financiavel-sul-da-ilha-1492248953
+
+- **Terreno à venda, Campeche, FLORIANOPOLIS - SC**
+  - 💰 R$ 22.000.000 | 📐 18000 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-campeche-florianopolis-sc-1492248129
+
+- **Vendo, Terreno de 381m² / Esquina, no Bosque São José**
+  - 💰 R$ 310.000 | 📐 381 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-de-381m-esquina-no-bosque-sao-jose-1492250124
+
+- **Amplo terreno à venda, com 3 casas de alvenaria, Caiacanga, FLORIANÓPO**
+  - 💰 R$ 6.000.000 | 📐 17000 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-a-venda-com-3-casas-de-alvenaria-caiacanga-florianopolis-sc-1492247521
+
+- **Terreno para Venda em Florianópolis, Carianos**
+  - 💰 R$ 660.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-carianos-1492227564
+
+- **Terreno à venda na Praia da Barra**
+  - 💰 R$ 446.000 | 📐 392 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-da-barra-1492224585
+
+- **TERRENO NA MELHOR LOCALIZAÇÃO DA SC 401 COM 19.75 METROS**
+  - 💰 R$ 60.000.000 | 📐 19745 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-melhor-localizacao-da-sc-401-com-19-75-metros-1492220430
+
+- **Terreno financiado**
+  - 💰 R$ 109.000 | 📐 300 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-financiado-1452163021
+
+- **Oportunidade Única em CRICIUMA - SC | Tipo: Terreno | Negociação: Lici**
+  - 💰 R$ 68.787 | 📐 361 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-criciuma-sc-tipo-terreno-negociacao-licitacao-aberta-situa-1492219487
+
+- **Sítio para venda com 1500 metros quadrados com 3 quartos em Sertão do **
+  - 💰 R$ 750.000 | 📐 1500 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-com-1500-metros-quadrados-com-3-quartos-em-sertao-do-valongo-porto-belo-1492216832
+
+- **Terreno para venda em Ratones**
+  - 💰 R$ 1.300.000 | 📐 407 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-ratones-1492215048
+
+- **Terreno Residencial em Vargem Do Bom Jesus**
+  - 💰 R$ 550.000 | 📐 450 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-vargem-do-bom-jesus-1492214944
+
+- **Fazenda/Sítio/Chácara para venda tem 2000 metros quadrados com 3 quart**
+  - 💰 R$ 1.350.000 | 📐 2000 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-sitio-chacara-para-venda-tem-2000-metros-quadrados-com-3-quartos-1492214609
+
+- **Vendo dois terrenos**
+  - 💰 R$ 90.000 | 📐 ? m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-dois-terrenos-1492214037
+
+- **More no melhor bairro de Floripa - TRINDADE**
+  - 💰 R$ 1.060.000 | 📐 540 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/more-no-melhor-bairro-de-floripa-trindade-1492203046
+
+- **OPORTUNIDADE LINDO LOTE NA RUA DA LAGOA**
+  - 💰 R$ 350.000 | 📐 350 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-lindo-lote-na-rua-da-lagoa-1492202974
+
+- **OPORTUNIDADE UNICA EM JURERÊ INTERNACIONAL - Terreno de 900m² em Jurer**
+  - 💰 R$ 7.500.000 | 📐 900 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-jurere-internacional-terreno-de-900m-em-jurere-internacional-1492197460
+
+- **Sítio em Tijucas/SC**
+  - 💰 R$ 195.000 | 📐 1716 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-tijucas-sc-970869514
+
+- **Área para Sítio em Tijucas**
+  - 💰 R$ 495.000 | 📐 4 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-para-sitio-em-tijucas-1381285977
+
+- **Terreno com linda vista em Paulo Lopes**
+  - 💰 R$ 159.990 | 📐 1500 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-linda-vista-em-paulo-lopes-1492188669
+
+- **Terreno à venda no Bela Vista - Palhoça/SC**
+  - 💰 R$ 265.000 | 📐 12 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bela-vista-palhoca-sc-1492178793
+
+- **Terreno com 480 m² à venda em Saco Grande, Florianópolis.**
+  - 💰 R$ 480.000 | 📐 480 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-480-m-a-venda-em-saco-grande-florianopolis-1492177935
+
