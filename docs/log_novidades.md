@@ -63202,3 +63202,111 @@
   - 📍 Rio Tavares — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-pamplona-1492605623
 
+
+## 🆕 21 novos anúncios — 09/04/2026 16:31
+
+- **Vendo terreno no bosque São José**
+  - 💰 R$ 220.000 | 📐 252 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-bosque-sao-jose-1446133714
+
+- **Terreno com metragem de 11x20**
+  - 💰 R$ 180.000 | 📐 220 m²
+  - 📍 Enseada do Brito — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-metragem-de-11x20-1492701815
+
+- **vendo lote. na praia do sol. ou dou em troca de sítio pela região. ***
+  - 💰 R$ 200.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-na-praia-do-sol-ou-dou-em-troca-de-sitio-pela-regiao-1492686189
+
+- **Chácaras em santo Amaro**
+  - 💰 R$ 190.000 | 📐 2350000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacaras-em-santo-amaro-1492668265
+
+- **Terreno no Ribeirão da ilha vista mar**
+  - 💰 R$ 1.600.000 | 📐 724 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-ribeirao-da-ilha-vista-mar-1492664683
+
+- **Terreno Passo de Torres**
+  - 💰 R$ 228.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-passo-de-torres-1492660571
+
+- **Sítio Rural à venda em Antônio Carlos (Santa Bárbara)  13.412,41 m², R**
+  - 💰 R$ 2.550.000 | 📐 13412 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-rural-a-venda-em-antonio-carlos-santa-barbara-13-412-41-m-r-2-550-000-00-1492661225
+
+- **Sitio em biguaçu**
+  - 💰 R$ 900.000 | 📐 3728 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-biguacu-1492661150
+
+- **TERRENO ESCRITURADO A POUCOS METROS DO MAR PRONTO PARA CONTRUÇÃO**
+  - 💰 R$ 80.000 | 📐 324 m²
+  - 📍 Centro — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-a-poucos-metros-do-mar-pronto-para-contrucao-1492658334
+
+- **Condomínio clube Costa azul Biguaçu aceito troca**
+  - 💰 R$ 185.000 | 📐 150 m²
+  - 📍  — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-clube-costa-azul-biguacu-aceito-troca-1492655681
+
+- **Vendo Terreno em Tijucas**
+  - 💰 R$ 195.000 | 📐 250 m²
+  - 📍 Centro — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-tijucas-1492647171
+
+- **Terreno à Venda  Green Park Residence, Termas do Gravatal/SC**
+  - 💰 R$ 320.000 | 📐 445 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-green-park-residence-termas-do-gravatal-sc-1492646841
+
+- **Vendo Terreno bairro aurora - Içara-SC**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍 Aurora — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-bairro-aurora-icara-sc-1492646028
+
+- **Vendo terreno medindo 100×300 não KM 41 no Ramal do Zé góes.**
+  - 💰 R$ 60.000 | 📐 3000 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-medindo-100-300-nao-km-41-no-ramal-do-ze-goes-1492640643
+
+- **Vendo lindo terreno em Governador Celso Ramos**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lindo-terreno-em-governador-celso-ramos-1492639562
+
+- **Vendo terreno na costeira**
+  - 💰 R$ 100.000 | 📐 70 m²
+  - 📍 Costeira do Pirajubaé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-costeira-1492636479
+
+- **Terreno à venda em Florianópolis no bairro Ingleses do Rio Vermelho**
+  - 💰 R$ 1.500.000 | 📐 600 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-florianopolis-no-bairro-ingleses-do-rio-vermelho-1492632935
+
+- **Terreno para Venda em Imbituba, Barra de Ibiraquera**
+  - 💰 R$ 950.000 | 📐 420 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-barra-de-ibiraquera-1492630873
+
+- **Fazenda para Venda em São Pedro de Alcântara, Alta Varginha**
+  - 💰 R$ 6.000.000 | 📐 30000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-para-venda-em-sao-pedro-de-alcantara-alta-varginha-1492624940
+
+- **Vendo 650 metros com projeto para 14 apartamentos  em Canasvieiras - F**
+  - 💰 R$ 590.000 | 📐 650 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-650-metros-com-projeto-para-14-apartamentos-em-canasvieiras-florianopolis-sc-1492683127
+
+- **Apartamento à venda no Barro Branco, Lauro Müller**
+  - 💰 R$ 150.000 | 📐 20 m²
+  - 📍 Barro Branco — Lauro Müller
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-sc-lauro-muller-barro-branco-20m2-RS150000/id-41366771/
+
