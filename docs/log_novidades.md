@@ -63310,3 +63310,181 @@
   - 📍 Barro Branco — Lauro Müller
   - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-sc-lauro-muller-barro-branco-20m2-RS150000/id-41366771/
 
+
+## 🆕 35 novos anúncios — 09/04/2026 21:59
+
+- **OPORTUNIDADE de investimento Terreno a preço de custo no Portal Cambir**
+  - 💰 R$ 165.000 | 📐 200 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-terreno-a-preco-de-custo-no-portal-cambirela-1492808036
+
+- **Flores de Sal Bairro Cidade , O maior do Sul do Brasil**
+  - 💰 R$ 428.000 | 📐 366 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/flores-de-sal-bairro-cidade-o-maior-do-sul-do-brasil-1492807435
+
+- **Terreno Plano em São José/SC - Excelente Localização e Alto Potencial **
+  - 💰 R$ 600.000 | 📐 330 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-em-sao-jose-sc-excelente-localizacao-e-alto-potencial-de-valorizacao-1492806698
+
+- **Terreno à venda na Guarda do Cubatão - Palhoça/SC**
+  - 💰 R$ 149.900 | 📐 195 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-guarda-do-cubatao-palhoca-sc-1492806506
+
+- **Terreno à venda em São José/SC Localização estratégica!**
+  - 💰 R$ 600.000 | 📐 330 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-jose-sc-localizacao-estrategica-1492805861
+
+- **Terreno Passa Vinte**
+  - 💰 R$ 15.000 | 📐 767 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-passa-vinte-1492805752
+
+- **Terreno à venda na Rua Felipe Neves, Canto - Florianópolis**
+  - 💰 R$ 720.000 | 📐 125 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-rua-felipe-neves-canto-florianopolis-1492805085
+
+- **Imóvel para venda com 6000 metros quadrados em São João do Rio Vermelh**
+  - 💰 R$ 489.000 | 📐 6000 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-6000-metros-quadrados-em-sao-joao-do-rio-vermelho-florianopolis-1492804738
+
+- **Terreno de 450m² Próximo à Av. Centenário**
+  - 💰 R$ 254.500 | 📐 450 m²
+  - 📍 Operária Nova — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-450m-proximo-a-av-centenario-1492801725
+
+- **WE - EXCELENTE LOTE NO BAIRRO AREIAS COM 816M²**
+  - 💰 R$ 680.000 | 📐 816 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/we-excelente-lote-no-bairro-areias-com-816m-1492799649
+
+- **Terreno de 200m² em Laguna**
+  - 💰 R$ 90.000 | 📐 200 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-200m-em-laguna-1492797739
+
+- **Terreno à venda em Santo Antônio de Lisboa, com 15.581,25m², às margen**
+  - 💰 R$ 15.000.000 | 📐 15581 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-santo-antonio-de-lisboa-com-15-581-25m-as-margens-da-sc-401-1492797604
+
+- **Terreno na Pinheira (praia de cima)**
+  - 💰 R$ 435.000 | 📐 300 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-pinheira-praia-de-cima-1492796962
+
+- **WE - O MAIS BARATO DA REGIÃO TERRENO COM 360M² NO LOTEAMENTO BOSQUE DA**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/we-o-mais-barato-da-regiao-terreno-com-360m-no-loteamento-bosque-da-pedra-1492796907
+
+- **Terreno 2150m² - Sul do Rio - imv**
+  - 💰 R$ 999.000 | 📐 2150 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2150m-sul-do-rio-imv-1492796043
+
+- **Terreno Fundos Lago no Reserva da Pedra - Pedra Branca - imv**
+  - 💰 R$ 950.000 | 📐 320 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-fundos-lago-no-reserva-da-pedra-pedra-branca-imv-1492796040
+
+- **WE - BELO LOTE PLANO COM 252M² NO LOTEAMENTO VIVENDAS SÃO JOSÉ**
+  - 💰 R$ 265.000 | 📐 253 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/we-belo-lote-plano-com-252m-no-loteamento-vivendas-sao-jose-1492795962
+
+- **Terreno 464m² - Pedra Branca - imv**
+  - 💰 R$ 900.000 | 📐 464 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-464m-pedra-branca-imv-1492795431
+
+- **WE - EXCELENTE LOTE PLANO A VENDA NO LOTEAMENTO LISBOA COM 235M²**
+  - 💰 R$ 250.000 | 📐 235 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/we-excelente-lote-plano-a-venda-no-loteamento-lisboa-com-235m-1492790889
+
+- **Terreno com 450 m2, pronto para construir entre o Giassi e Square SC**
+  - 💰 R$ 797.000 | 📐 450 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-450-m2-pronto-para-construir-entre-o-giassi-e-square-sc-1492789691
+
+- **Oportunidade !! Terreno em condominio fechado alto padrão em Santo Ant**
+  - 💰 R$ 780.000 | 📐 643 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-condominio-fechado-alto-padrao-em-santo-antonio-de-lisboa-1492789641
+
+- **Terreno em Condomínio a 200m da Praia da Cachoeira - 447m²**
+  - 💰 R$ 900.000 | 📐 447 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-200m-da-praia-da-cachoeira-447m-1467134743
+
+- **Oportunidade única sitío com vista para o mar no Ribeirão da Ilha em F**
+  - 💰 R$ 3.000.000 | 📐 36340 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-sitio-com-vista-para-o-mar-no-ribeirao-da-ilha-em-florianopolis-1492783305
+
+- **TERRENO NO NOVO HORIZONTE- SÃO JOSÉ**
+  - 💰 R$ 290.000 | 📐 277 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-novo-horizonte-sao-jose-1424647452
+
+- **Terreno à venda em Santo Antônio de Lisboa, com 15.581,25m², às margen**
+  - 💰 R$ 15.000.000 | 📐 15581 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-santo-antonio-de-lisboa-com-15-581-25m-as-margens-da-sc-401-1492772214
+
+- **SÍTIO / 13KM DO ROSA**
+  - 💰 R$ 259.999 | 📐 8000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-13km-do-rosa-1492770142
+
+- **ótima oportunidade na terra da Colônia Azambuja-Pedras Grandes**
+  - 💰 R$ 100.000 | 📐 ? m²
+  - 📍  — Pedras Grandes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-na-terra-da-colonia-azambuja-pedras-grandes-1492770121
+
+- **Lote à Venda com 360 m² (Escriturado)**
+  - 💰 R$ 80.000 | 📐 360 m²
+  - 📍  — Sangão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-com-360-m-escriturado-1492769496
+
+- **Vendo 2 casas no terreno**
+  - 💰 R$ 500.000 | 📐 300 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-2-casas-no-terreno-1492756872
+
+- **Terreno na serrarias**
+  - 💰 R$ 290.000 | 📐 36180 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-serrarias-1492737078
+
+- **Vendo terreno 5x18**
+  - 💰 R$ 130.000 | 📐 90 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-5x18-1492727638
+
+- **Sítio em condomínio fechado em Águas mornas**
+  - 💰 R$ 120.000 | 📐 1000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-condominio-fechado-em-aguas-mornas-1492724222
+
+- **TERRENO NO VILLAGE DUNAS NORTE ABAIXO DO VALOR DE MERCADO**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-village-dunas-norte-abaixo-do-valor-de-mercado-1492752244
+
+- **Imóvel para venda possui 350 metros quadrados em Coqueiros - Florianóp**
+  - 💰 R$ 4.000.000 | 📐 350 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-350-metros-quadrados-em-coqueiros-florianopolis-sc-1492726676
+
+- **Linda Casa Com Piscina, área gourmet e Terreno Amplo em Cocal do Sul**
+  - 💰 R$ 1.350.000 | 📐 220 m²
+  - 📍 Centro — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-centro-990m2-RS1350000/id-41395497/
+
