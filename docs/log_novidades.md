@@ -63119,3 +63119,86 @@
   - 📍 Lagoa da Serra — Araranguá
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-ararangua-lagoa-da-serra-4202m2-RS1000000/id-41347252/
 
+
+## 🆕 16 novos anúncios — 09/04/2026 10:25
+
+- **Terreno para Venda em São José, Forquilhas**
+  - 💰 R$ 1.300.000 | 📐 3643 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-sao-jose-forquilhas-1492619871
+
+- **Lote para Locação no Abraão, Florianópolis por R$ 4.900**
+  - 💰 R$ 4.900 | 📐 439 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-para-locacao-no-abraao-florianopolis-por-r-4-900-1492617682
+
+- **TERRENO À VENDA NO RIO MAINA!!!**
+  - 💰 R$ 800.000 | 📐 825 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-no-rio-maina-1492613142
+
+- **Terreno no Bairro Mina do Mato**
+  - 💰 R$ 140.000 | 📐 360 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-mina-do-mato-1492613067
+
+- **TERRENO À VENDA**
+  - 💰 R$ 4.750.000 | 📐 9100 m²
+  - 📍 Universitário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-1492612990
+
+- **AREA - CENTRO - SC**
+  - 💰 R$ 190.000 | 📐 447 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-centro-sc-1492612588
+
+- **Terreno à venda, 949 m² por R$ 1.700.000,00 - Agronômica - Florianópol**
+  - 💰 R$ 1.700.000 | 📐 949 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-949-m-por-r-1-700-000-00-agronomica-florianopolis-sc-1492612560
+
+- **Lote no Jardim América no Passo de Torres SC**
+  - 💰 R$ 206.000 | 📐 318 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-jardim-america-no-passo-de-torres-sc-1492611944
+
+- **Terreno Rural para Venda, LINHA DO CHAVES**
+  - 💰 R$ 349.000 | 📐 20003 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-para-venda-linha-do-chaves-1492608739
+
+- **Terreno Rural para Venda em Angelina, LINHA DO CHAVES**
+  - 💰 R$ 1.380.000 | 📐 120209 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-para-venda-em-angelina-linha-do-chaves-1492608751
+
+- **Sitio de Luxo à Venda em Águas Mornas-SC 3 Quartos, 1 Suíte, 2 Salas, **
+  - 💰 R$ 1.650.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-luxo-a-venda-em-aguas-mornas-sc-3-quartos-1-suite-2-salas-3-banheiros-2-vagas-1492608567
+
+- **Imperdível terreno à venda em Imbituba-SC, no bairro Sambaqui: 720m² p**
+  - 💰 R$ 130.000 | 📐 720 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imperdivel-terreno-a-venda-em-imbituba-sc-no-bairro-sambaqui-720m-por-r-130-000-aprove-1492607356
+
+- **Terreno Frente Mar | 510m² | Praia dos Açores - Florianópolis**
+  - 💰 R$ 3.000.000 | 📐 510 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-510m-praia-dos-acores-florianopolis-1492606298
+
+- **Flores de Sal Bairro Cidade , O maior do Sul do Brasil**
+  - 💰 R$ 428.000 | 📐 366 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/flores-de-sal-bairro-cidade-o-maior-do-sul-do-brasil-1492605841
+
+- **Terreno à venda em Tubarão/SC com 10 HA e 4,3 Km da BR 101 - Bairro Bo**
+  - 💰 R$ 2.500.000 | 📐 104000 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-tubarao-sc-com-10-ha-e-4-3-km-da-br-101-bairro-bom-pastor-1492605703
+
+- **Terreno Loteamento Pamplona**
+  - 💰 R$ 1.200.000 | 📐 456 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-pamplona-1492605623
+
