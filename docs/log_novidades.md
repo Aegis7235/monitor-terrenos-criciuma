@@ -63711,3 +63711,16 @@
   - 📍 São João do Rio Vermelho — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sao-joao-do-rio-vermelho-hb-294042-1492822150
 
+
+## 🆕 2 novos anúncios — 10/04/2026 10:20
+
+- **Terreno 1.281 m² em condomínio fechado- Santo Amaro da Imperatriz-SC**
+  - 💰 R$ 266.000 | 📐 1281 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-281-m-em-condominio-fechado-santo-amaro-da-imperatriz-sc-1376441890
+
+- **Terreno no Reserva da Pedra - Pedra Branca - BRN**
+  - 💰 R$ 954.000 | 📐 303 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-reserva-da-pedra-pedra-branca-brn-1492911471
+
