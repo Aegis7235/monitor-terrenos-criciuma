@@ -64268,3 +64268,116 @@
   - 📍  — Alfredo Wagner
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-completo-com-rio-lagoa-e-frutas-7-hectares-em-alfredo-wagner-sc-1475775482
 
+
+## 🆕 22 novos anúncios — 11/04/2026 09:54
+
+- **Seu terreno em Pescaria Brava te espera! | 250 m² | Região em crescime**
+  - 💰 R$ 100.000 | 📐 250 m²
+  - 📍 Barreiros — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-terreno-em-pescaria-brava-te-espera-250-m-regiao-em-crescimento-1493208443
+
+- **Área com vista para lagoa e mar | 12.825m² na Costa do Macacu - Garopa**
+  - 💰 R$ 1.915.000 | 📐 12825 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-com-vista-para-lagoa-e-mar-12-825m-na-costa-do-macacu-garopaba-1493208446
+
+- **Seu terreno em Pescaria Brava te espera! | 250 m² | Região em crescime**
+  - 💰 R$ 60.000 | 📐 250 m²
+  - 📍 Barreiros — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-terreno-em-pescaria-brava-te-espera-250-m-regiao-em-crescimento-1493208406
+
+- **Terrenos ótima localização em Santo Amaro da Imperatriz-SC**
+  - 💰 R$ 250.000 | 📐 420 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-otima-localizacao-em-santo-amaro-da-imperatriz-sc-1344402861
+
+- **"Oportunidade para investidores" Área 8 hectares em Santo Amaro da Imp**
+  - 💰 R$ 6.450.000 | 📐 80000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-investidores-area-8-hectares-em-santo-amaro-da-imperatriz-sc-1394525203
+
+- **Terreno em condomínio fechado no meio da natureza**
+  - 💰 R$ 550.000 | 📐 673 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-meio-da-natureza-1344404377
+
+- **Vende se terreno com Localização estratégica próximo a Universidade em**
+  - 💰 R$ 287.300 | 📐 375 m²
+  - 📍 Morrotes — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-com-localizacao-estrategica-proximo-a-universidade-em-tubarao-no-bairro-m-1493207358
+
+- **Terreno residencial**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍 Prado — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1493199313
+
+- **Terreno residencial em condomínio fechado**
+  - 💰 R$ 250.000 | 📐 228 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-condominio-fechado-1493199077
+
+- **Terreno à venda, Bairro Ponte Imaruim, Palhoça SC**
+  - 💰 R$ 3.500.000 | 📐 4386 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-ponte-imaruim-palhoca-sc-1493198097
+
+- **TERRENO EM QUADRA MAR NA PRAIA DOS AÇORES - OPORTUNIDADE RARA!**
+  - 💰 R$ 2.000.000 | 📐 360 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-quadra-mar-na-praia-dos-acores-oportunidade-rara-1493194535
+
+- **Terreno Frente Mar | 510m² | Praia dos Açores - Florianópolis**
+  - 💰 R$ 3.000.000 | 📐 510 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-510m-praia-dos-acores-florianopolis-1493194330
+
+- **Terreno para Venda em São José, Ipiranga**
+  - 💰 R$ 1.750.000 | 📐 2203 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-sao-jose-ipiranga-1493194025
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1493193889
+
+- **Terreno a venda no Marina Phillipi**
+  - 💰 R$ 2.150.000 | 📐 450 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-marina-phillipi-1493193466
+
+- **Terreno ADI, para construção de até 7 andades**
+  - 💰 R$ 4.985.000 | 📐 1367 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-adi-para-construcao-de-ate-7-andades-1493193377
+
+- **Terreno 361m² em Condomínio - Ponta de Baixo**
+  - 💰 R$ 439.000 | 📐 362 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-361m-em-condominio-ponta-de-baixo-1493192560
+
+- **Terreno 263m² - Campinas, São José - BRN**
+  - 💰 R$ 2.200.000 | 📐 263 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-263m-campinas-sao-jose-brn-1479327895
+
+- **Terreno com 309m² à venda no Pagani**
+  - 💰 R$ 560.000 | 📐 309 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-309m-a-venda-no-pagani-1493188358
+
+- **Terreno de 1.925m² à venda em Rancho Queimado**
+  - 💰 R$ 490.000 | 📐 1925 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1-925m-a-venda-em-rancho-queimado-1493188501
+
+- **Terreno de 386m² à venda nos Açores**
+  - 💰 R$ 690.000 | 📐 384 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-386m-a-venda-nos-acores-1493185944
+
+- **Terreno à venda no Campeche**
+  - 💰 R$ 3.180.000 | 📐 1618 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-campeche-1493185935
+
