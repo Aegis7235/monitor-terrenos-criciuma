@@ -64381,3 +64381,116 @@
   - 📍 Campeche — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-campeche-1493185935
 
+
+## 🆕 22 novos anúncios — 11/04/2026 15:47
+
+- **Terreno no Ribeirão da Ilha em Florianópolis**
+  - 💰 R$ 240.000 | 📐 200 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-ribeirao-da-ilha-em-florianopolis-1493262871
+
+- **Vende se terreno**
+  - 💰 R$ 110.000 | 📐 363 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-1493260496
+
+- **Lotes 12x12 Ribeirão da Ilha**
+  - 💰 R$ 250.000 | 📐 144 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-12x12-ribeirao-da-ilha-1493256980
+
+- **Terreno com casa beira mar**
+  - 💰 R$ 5.350.000 | 📐 1474 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-beira-mar-1493244543
+
+- **Terreno com casa beira mar**
+  - 💰 R$ 2.800.000 | 📐 600 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-beira-mar-1493244539
+
+- **Terreno com casa beira mar**
+  - 💰 R$ 3.000.000 | 📐 300 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-beira-mar-1493244461
+
+- **Oportunidade Única Terreno 10.500 m² no Ribeirão da Ilha - Frente Mar **
+  - 💰 R$ 1.595.000 | 📐 10500 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-10-500-m-no-ribeirao-da-ilha-frente-mar-c-escritura-1493244465
+
+- **Chácara à venda, 2 quartos, São Sebastião - Palhoça/SC**
+  - 💰 R$ 300.000 | 📐 1092 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-2-quartos-sao-sebastiao-palhoca-sc-1493243540
+
+- **Lote em Condomínio Residencial Fechado em Biguaçu**
+  - 💰 R$ 1.150.000 | 📐 3245 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-residencial-fechado-em-biguacu-1493240638
+
+- **Terreno no bairro Praia João Rosa - Biguaçu**
+  - 💰 R$ 350.000 | 📐 300 m²
+  - 📍 Praia João Rosa — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-praia-joao-rosa-biguacu-1493239817
+
+- **Rancho em Santa Barbara - Antônio Carlos**
+  - 💰 R$ 2.550.000 | 📐 13412 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/rancho-em-santa-barbara-antonio-carlos-1493239761
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas**
+  - 💰 R$ 235.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-1493225034
+
+- **Residencial  Lote/Terreno - Venda - 200,00 (M²) de Área Total - 200,00**
+  - 💰 R$ 265.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-venda-200-00-m-de-area-total-200-00-m-de-area-privat-1493223845
+
+- **Terreno no bairro Carianos**
+  - 💰 R$ 549.000 | 📐 360 m²
+  - 📍 Bom Abrigo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-carianos-1493223357
+
+- **Terreno à venda no bairro Forquilhas - São José/SC**
+  - 💰 R$ 250.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-forquilhas-sao-jose-sc-1493215634
+
+- **Terreno à venda no bairro Forquilhas - São José/SC**
+  - 💰 R$ 275.000 | 📐 312 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-forquilhas-sao-jose-sc-1493215463
+
+- **TERRENO EM CONDOMINIO**
+  - 💰 R$ 980.000 | 📐 376 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-1493210359
+
+- **Vendo sítio de porteira fechada**
+  - 💰 R$ 1.500.000 | 📐 43000 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-de-porteira-fechada-1476063920
+
+- **Vista incrível para lagoa e mar | 2.401m² na Costa do Macacu - Garopab**
+  - 💰 R$ 745.000 | 📐 2401 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vista-incrivel-para-lagoa-e-mar-2-401m-na-costa-do-macacu-garopaba-sc-1493209140
+
+- **Terreno para Venda em Palhoça / SC no bairro Pedra Branca**
+  - 💰 R$ 860.000 | 📐 420 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-palhoca-sc-no-bairro-pedra-branca-1493208867
+
+- **Vendo sítio com casa mobiliada**
+  - 💰 R$ 490.000 | 📐 550 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-casa-mobiliada-1493154914
+
+- **Sítio à venda, Moura, Canelinha, SC**
+  - 💰 R$ 444.900 | 📐 10 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-moura-canelinha-sc-1493214765
+
