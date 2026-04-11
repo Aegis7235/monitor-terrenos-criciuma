@@ -64155,3 +64155,116 @@
   - 📍  — Governador Celso Ramos
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-areias-do-meio-governador-celso-ramos-sc-leilao-sfi-edital-un-1493025792
 
+
+## 🆕 22 novos anúncios — 11/04/2026 05:08
+
+- **Terrenos na Sumare II**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-na-sumare-ii-1493185187
+
+- **terreno à venda em Garopaba/SC, com matrícula**
+  - 💰 R$ 615.000 | 📐 417 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-com-matricula-1493184330
+
+- **Terreno na BR101 em Imbituba**
+  - 💰 R$ 750.000 | 📐 3278 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-br101-em-imbituba-1493174229
+
+- **Terreno residencial a venda no Itacorubi**
+  - 💰 R$ 1.226.000 | 📐 534 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-a-venda-no-itacorubi-1493174139
+
+- **Terreno à venda em São José, Centro, com 480 m²**
+  - 💰 R$ 250.000 | 📐 480 m²
+  - 📍 Centro — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-jose-centro-com-480-m-1493165780
+
+- **Terreno à venda no Real Parque - São José**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-real-parque-sao-jose-1493165631
+
+- **Terreno com 385m² - São José**
+  - 💰 R$ 350.000 | 📐 385 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-385m-sao-jose-1493165141
+
+- **Terreno - Loteamento Milano - Forquilhas**
+  - 💰 R$ 1.200.000 | 📐 1525 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-milano-forquilhas-1493164575
+
+- **TERRENO DE 1161M² PORTAL DA COLINA SÃO JOSÉ**
+  - 💰 R$ 570.000 | 📐 1060 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1161m-portal-da-colina-sao-jose-1493164044
+
+- **Terreno à venda, 459 m² por R$ 550.000 - São João do Rio Vermelho - Fl**
+  - 💰 R$ 550.000 | 📐 459 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-459-m-por-r-550-000-sao-joao-do-rio-vermelho-florianopolis-sc-1493158740
+
+- **abraão | Terreno**
+  - 💰 R$ 1.450.000 | 📐 444 m²
+  - 📍 Abraão — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/abraao-terreno-1493156476
+
+- **Alugo lavacar kobrasol**
+  - 💰 R$ 3.200 | 📐 100 m²
+  - 📍 Kobrasol — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alugo-lavacar-kobrasol-1493150141
+
+- **Terreno de 2.050 m² com vista panorâmica para o mar, lagoa e dunas do **
+  - 💰 R$ 900.000 | 📐 2050 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-050-m-com-vista-panoramica-para-o-mar-lagoa-e-dunas-do-siriu-1493145646
+
+- **Vendo terreno no bairro Córrego Grande, em Florianópolis.**
+  - 💰 R$ 1.100.000 | 📐 237 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-bairro-corrego-grande-em-florianopolis-1493144733
+
+- **Terreno Rio Vermelho SC**
+  - 💰 R$ 180.000 | 📐 120 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rio-vermelho-sc-1493134762
+
+- **Terreno à venda, 461 m² por R$ 319.000,00 - Sertão do Maruim - São Jos**
+  - 💰 R$ 319.000 | 📐 461 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-461-m-por-r-319-000-00-sertao-do-maruim-sao-jose-sc-1424929186
+
+- **Oportunidade!!!**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-1493125836
+
+- **REFÚGIO MEIO MANÉ MEIO SERRANO- NEGÓCIO RURAL EM FUNCIONAMENTO**
+  - 💰 R$ 1.950.000 | 📐 34000000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/refugio-meio-mane-meio-serrano-negocio-rural-em-funcionamento-1493124020
+
+- **Sítio Rural à Venda em Biguaçu (Sorocaba)**
+  - 💰 R$ 2.200.000 | 📐 129000 m²
+  - 📍 Vendaval — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-rural-a-venda-em-biguacu-sorocaba-1493124270
+
+- **Lote no Condomínio Fechado Terrá Wave Resort(Direto com Proprietário)**
+  - 💰 R$ 275.000 | 📐 126 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-condominio-fechado-terra-wave-resort-direto-com-proprietario-1439687213
+
+- **Alugo sítio próximo a guarda do Embaú**
+  - 💰 R$ 111.111 | 📐 7000 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alugo-sitio-proximo-a-guarda-do-embau-1324516292
+
+- **? Sítio completo com rio, lagoa e frutas - 7 hectares em Alfredo Wagne**
+  - 💰 R$ 609.000 | 📐 72000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-completo-com-rio-lagoa-e-frutas-7-hectares-em-alfredo-wagner-sc-1475775482
+
