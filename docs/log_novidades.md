@@ -64494,3 +64494,51 @@
   - 📍  — Canelinha
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-moura-canelinha-sc-1493214765
 
+
+## 🆕 9 novos anúncios — 11/04/2026 21:47
+
+- **BARBADA! TERRENO DE 1.800 em Guaratuba - PR ( 4 lotes de 370 m2 )**
+  - 💰 R$ 750.000 | 📐 1480 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-de-1-800-em-guaratuba-pr-4-lotes-de-370-m2-1392032140
+
+- **ALUGUEL TERRENO EM TIJUQUINHAS - BIGUAÇU 200m²**
+  - 💰 R$ 650 | 📐 200 m²
+  - 📍 Tijuquinhas (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aluguel-terreno-em-tijuquinhas-biguacu-200m-1493323653
+
+- **Sítio em São Bonifácio**
+  - 💰 R$ 640.000 | 📐 150000 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-sao-bonifacio-1419456617
+
+- **2 hectares**
+  - 💰 R$ 175.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-hectares-1493309045
+
+- **Terreno Residencial em Sertão do Imaruim**
+  - 💰 R$ 350.000 | 📐 477 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-sertao-do-imaruim-1493298669
+
+- **Terreno à Venda - 1302m2 - Campeche**
+  - 💰 R$ 4.800.000 | 📐 1302 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1302m2-campeche-1493298670
+
+- **Vendo um terreno com uma kitnet valor 150.000**
+  - 💰 R$ 150.000 | 📐 171 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-um-terreno-com-uma-kitnet-valor-150-000-1493284313
+
+- **? VENDA TERRENO - RIO VERMELHO**
+  - 💰 R$ 170.000 | 📐 130 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-rio-vermelho-1493280478
+
+- **Terreno à venda, Bela Vista, Palhoça, SC**
+  - 💰 R$ 120.000 | 📐 10 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bela-vista-palhoca-sc-1493297320
+
