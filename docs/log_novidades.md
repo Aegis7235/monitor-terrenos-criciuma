@@ -64636,3 +64636,141 @@
   - 📍 Bela Vista — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-top-no-bela-vista-1493409314
 
+
+## 🆕 27 novos anúncios — 12/04/2026 21:50
+
+- **Terreno padrão à Venda, Garopaba, Garopaba, SC**
+  - 💰 R$ 1.500.001 | 📐 80 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-padrao-a-venda-garopaba-garopaba-sc-1493526190
+
+- **TERRENO A VENDA NO ARIRIU**
+  - 💰 R$ 395.000 | 📐 375 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-aririu-1493519320
+
+- **Vendo Terreno no Condomínio Vista da Pedra no bairro Forquilhas em São**
+  - 💰 R$ 399.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-condominio-vista-da-pedra-no-bairro-forquilhas-em-sao-jose-sc-1493516423
+
+- **Terreno para venda Ilha próximo a praias do Norte em Florianópolis, Ba**
+  - 💰 R$ 2.900.000 | 📐 14520 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-ilha-proximo-a-praias-do-norte-em-florianopolis-bairro-ratones-1493516511
+
+- **Terreno à Venda na Ponte do Imaruim, Palhoça com 2.425,25 m²**
+  - 💰 R$ 12.000.000 | 📐 2425 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-ponte-do-imaruim-palhoca-com-2-425-25-m-1493516524
+
+- **TERRENO FRENTE MAR PRAIA DOS AÇORES**
+  - 💰 R$ 3.000.000 | 📐 510 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-praia-dos-acores-1493516516
+
+- **TERRENO EM CANASVIEIRAS**
+  - 💰 R$ 550.000 | 📐 675 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-canasvieiras-1493516501
+
+- **Terreno para venda Ilha próximo a praias do Norte em Florianópolis, Ba**
+  - 💰 R$ 2.900.000 | 📐 14520 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-ilha-proximo-a-praias-do-norte-em-florianopolis-bairro-ratones-1493500486
+
+- **TERRENO FRENTE MAR PRAIA DOS AÇORES**
+  - 💰 R$ 3.000.000 | 📐 510 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-praia-dos-acores-1493500498
+
+- **TERRENO EM CANASVIEIRAS**
+  - 💰 R$ 550.000 | 📐 675 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-canasvieiras-1493500496
+
+- **Terreno Residencial em Ratones**
+  - 💰 R$ 600.000 | 📐 455 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-ratones-1493500479
+
+- **Terreno à Venda na Ponte do Imaruim, Palhoça com 2.425,25 m²**
+  - 💰 R$ 12.000.000 | 📐 2425 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-ponte-do-imaruim-palhoca-com-2-425-25-m-1493500365
+
+- **Vendo Terreno no Condomínio Vista da Pedra no bairro Forquilhas em São**
+  - 💰 R$ 399.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-condominio-vista-da-pedra-no-bairro-forquilhas-em-sao-jose-sc-1493500302
+
+- **Terreno em Três Riachos- Só pegar o construir**
+  - 💰 R$ 150.000 | 📐 1000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-tres-riachos-so-pegar-o-construir-1493493879
+
+- **Terreno plano de 384,00m2**
+  - 💰 R$ 165.000 | 📐 384 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-de-384-00m2-1475093091
+
+- **Terreno Rural com 5 hectares em Anitápolis/SC**
+  - 💰 R$ 265.000 | 📐 50000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-com-5-hectares-em-anitapolis-sc-1493482888
+
+- **Terreno Alto em rua sem saída Santo Amaro**
+  - 💰 R$ 195.000 | 📐 472 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-alto-em-rua-sem-saida-santo-amaro-1444305699
+
+- **Terreno em Laguna com 202.287,00 m2**
+  - 💰 R$ 7.300.000 | 📐 202287 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-laguna-com-202-287-00-m2-1493479091
+
+- **Excelente terreno no bairro Açores**
+  - 💰 R$ 1.500.000 | 📐 480 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-no-bairro-acores-1493479102
+
+- **Terreno de 4.225,8 m² no bairro Jardim Janaína - Biguaçu SC**
+  - 💰 R$ 7.308.700 | 📐 4225 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-4-225-8-m-no-bairro-jardim-janaina-biguacu-sc-1493479104
+
+- **Chácara Biguacu, Fazendinha**
+  - 💰 R$ 240.000 | 📐 1000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-biguacu-fazendinha-1493478373
+
+- **Terreno 255m² na Pinheira a 600m da Praia**
+  - 💰 R$ 290.000 | 📐 255 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-255m-na-pinheira-a-600m-da-praia-1493473854
+
+- **BARBADA LOTE/TERRENO NO BLUE CCOM FUNDOS PARA O LAGO**
+  - 💰 R$ 230.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-lote-terreno-no-blue-ccom-fundos-para-o-lago-1493473637
+
+- **Lote/terreno no blue  deltaville com praia artificial e vista para ave**
+  - 💰 R$ 320.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-no-blue-deltaville-com-praia-artificial-e-vista-para-avenida-1493472949
+
+- **Vendo terreno grande**
+  - 💰 R$ 322.000 | 📐 1100 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-grande-1493469418
+
+- **Vende-se terreno**
+  - 💰 R$ 300.000 | 📐 ? m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-1493460165
+
+- **Oportunidade única.**
+  - 💰 R$ 90.000 | 📐 3000 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-1493449768
+
