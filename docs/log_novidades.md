@@ -64588,3 +64588,51 @@
   - 📍 Pantanal — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-pantanal-r-140-00-00-1493398543
 
+
+## 🆕 9 novos anúncios — 12/04/2026 15:50
+
+- **SÍTIO A VENDA em  CANELINHA**
+  - 💰 R$ 580.000 | 📐 7500 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-canelinha-1476355755
+
+- **Alexandre**
+  - 💰 R$ 72.000 | 📐 ? m²
+  - 📍 Jardim Eldorado — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alexandre-1493440499
+
+- **Terreno com vista paradisíaca.**
+  - 💰 R$ 150.000 | 📐 198 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-paradisiaca-1493434161
+
+- **Imóvel a venda em Rancho Queimado**
+  - 💰 R$ 460.000 | 📐 5414 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-a-venda-em-rancho-queimado-1394984758
+
+- **Terreno mais lindo e barato do Rio Vermelho**
+  - 💰 R$ 170.000 | 📐 150 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-mais-lindo-e-barato-do-rio-vermelho-1493424311
+
+- **Terreno em SC Bellatorres Passo de Torres**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sc-bellatorres-passo-de-torres-1493420391
+
+- **Lote Residencial à Venda em Campeche, Florianópolis  300 m² com Financ**
+  - 💰 R$ 1.180.000 | 📐 300 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-residencial-a-venda-em-campeche-florianopolis-300-m-com-financiamento-1493419377
+
+- **LOTE A VENDA, ÓTIMA OPORTUNIDADE**
+  - 💰 R$ 80.000 | 📐 ? m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-otima-oportunidade-1493414698
+
+- **Terreno top no Bela Vista**
+  - 💰 R$ 475.000 | 📐 380 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-top-no-bela-vista-1493409314
+
