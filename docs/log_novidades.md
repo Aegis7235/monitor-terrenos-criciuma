@@ -64542,3 +64542,36 @@
   - 📍 Bela Vista — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bela-vista-palhoca-sc-1493297320
 
+
+## 🆕 6 novos anúncios — 12/04/2026 05:38
+
+- **OPORTUNIDADE ÚNICA NA PRAIA DO ROSA**
+  - 💰 R$ 420.000 | 📐 459 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-na-praia-do-rosa-1493388966
+
+- **Terreno à venda, 300 m² por R$ 180.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-180-000-bellatorres-passo-de-torres-sc-1493382084
+
+- **Chácara em Anitapolis**
+  - 💰 R$ 340.000 | 📐 2500 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-anitapolis-1493362688
+
+- **Terreno com 95.000 m2**
+  - 💰 R$ 1.600.000 | 📐 95000 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-95-000-m2-1493352850
+
+- **Vendo Terreno em Laguna**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-laguna-1493349435
+
+- **Terreno na Avenida Praia do Sol - Laguna/SC - 540m2 - Esquina**
+  - 💰 R$ 380.000 | 📐 540 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-avenida-praia-do-sol-laguna-sc-540m2-esquina-1493310774
+
