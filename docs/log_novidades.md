@@ -64575,3 +64575,16 @@
   - 📍  — Laguna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-avenida-praia-do-sol-laguna-sc-540m2-esquina-1493310774
 
+
+## 🆕 2 novos anúncios — 12/04/2026 10:00
+
+- **Terreno a venda no Recanto da Natureza São José / SC**
+  - 💰 R$ 275.000 | 📐 312 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-recanto-da-natureza-sao-jose-sc-1493406142
+
+- **Vendo terreno no Pantanal R$ 140,00,00**
+  - 💰 R$ 140.000 | 📐 ? m²
+  - 📍 Pantanal — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-pantanal-r-140-00-00-1493398543
+
