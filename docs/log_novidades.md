@@ -64832,3 +64832,21 @@
   - 📍 Centro — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-aririu-da-formiga-terreno-com-3-100m-1493536141
 
+
+## 🆕 3 novos anúncios — 13/04/2026 10:59
+
+- **LOTEAMEM VERONA/SERTÃO DO IMARUIM - EXCELENTES LOTES**
+  - 💰 R$ 299.999 | 📐 399 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamem-verona-sertao-do-imaruim-excelentes-lotes-1469530697
+
+- **Terreno de 300m² em Arroio do Silva/SC**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300m-em-arroio-do-silva-sc-1443401302
+
+- **Terreno à Venda - Frente Avenida | Alto Potencial Construtivo - Palhoç**
+  - 💰 R$ 630.000 | 📐 717 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-frente-avenida-alto-potencial-construtivo-palhoca-sc-1477088752
+
