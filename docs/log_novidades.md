@@ -64774,3 +64774,61 @@
   - 📍 Ipiranga — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-1493449768
 
+
+## 🆕 11 novos anúncios — 13/04/2026 05:54
+
+- **Terreno no montenegro Marine em biguaçu- direto com o proprietário**
+  - 💰 R$ 255.000 | 📐 180 m²
+  - 📍 Jardim Cidade de Florianópolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-montenegro-marine-em-biguacu-direto-com-o-proprietario-1493582469
+
+- **Oportunidade Imóvel com Vista Panorâmica**
+  - 💰 R$ 359.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-imovel-com-vista-panoramica-1493564398
+
+- **Terreno em Paulo Lopes**
+  - 💰 R$ 75.000 | 📐 360 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-paulo-lopes-1493564541
+
+- **TERRENO EM CANASVIEIRAS**
+  - 💰 R$ 550.000 | 📐 675 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-canasvieiras-1493554735
+
+- **Vendo Terreno no Condomínio Vista da Pedra no bairro Forquilhas em São**
+  - 💰 R$ 399.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-condominio-vista-da-pedra-no-bairro-forquilhas-em-sao-jose-sc-1493554595
+
+- **Terreno de 260m² em Tijucas/SC**
+  - 💰 R$ 324.002 | 📐 260 m²
+  - 📍 Nova Descoberta — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-260m-em-tijucas-sc-1443616924
+
+- **Vendo ou troco minha casa por chacara ou casa praia**
+  - 💰 R$ 440.000 | 📐 ? m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-minha-casa-por-chacara-ou-casa-praia-1493541286
+
+- **Vende-se**
+  - 💰 R$ 280.000 | 📐 300000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-1493538962
+
+- **Vendo capela cemitério municipal criciuma**
+  - 💰 R$ 27.000 | 📐 4 m²
+  - 📍 Milanese — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-capela-cemiterio-municipal-criciuma-1493537782
+
+- **terreno nos ingleses**
+  - 💰 R$ 600.000 | 📐 362 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nos-ingleses-1493536976
+
+- **Terreno Aririu da formiga Terreno com 3.100m²**
+  - 💰 R$ 1.550.000 | 📐 3100 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-aririu-da-formiga-terreno-com-3-100m-1493536141
+
