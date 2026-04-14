@@ -65442,3 +65442,421 @@
   - 📍 Pedra Branca — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-540m-a-venda-na-pedra-branca-1493912313
 
+
+## 🆕 83 novos anúncios — 14/04/2026 16:22
+
+- **Oportunidade! Terreno em Kobrasol - São José**
+  - 💰 R$ 19.500 | 📐 360 m²
+  - 📍 Kobrasol — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-kobrasol-sao-jose-1494017933
+
+- **Terreno 500m²**
+  - 💰 R$ 210.000 | 📐 500 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-500m-1494006257
+
+- **Venda-Sítio-Imaruí-Figueira Grande**
+  - 💰 R$ 1.100.000 | 📐 67000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-sitio-imarui-figueira-grande-1494001018
+
+- **Terreno 361m² em Santo Amaro - Escriturado, Vista Linda, Sem Enchente**
+  - 💰 R$ 170.000 | 📐 361 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-361m-em-santo-amaro-escriturado-vista-linda-sem-enchente-1493999659
+
+- **TERRENO PRÓXIMO A BR101**
+  - 💰 R$ 450.000 | 📐 364 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-br101-1493992016
+
+- **Imóvel para venda possui 360 metros quadrados em Jurerê - Florianópoli**
+  - 💰 R$ 10.500.000 | 📐 360 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-360-metros-quadrados-em-jurere-florianopolis-sc-1493988826
+
+- **Sítio em Loeffelscheidt - Águas Mornas**
+  - 💰 R$ 480.000 | 📐 110 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-loeffelscheidt-aguas-mornas-1493985042
+
+- **Lote Proximo do Centro de Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 160.000 | 📐 380 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-proximo-do-centro-de-santo-amaro-da-imperatriz-sc-1493984912
+
+- **Lote Grande, com escritura e sem risco de alagamentos!**
+  - 💰 R$ 340.000 | 📐 1000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-grande-com-escritura-e-sem-risco-de-alagamentos-1493982481
+
+- **Terreno à venda, 1831 m² por R$ 199.000,00 - Varginha - Santo Amaro da**
+  - 💰 R$ 199.000 | 📐 1831 m²
+  - 📍 Centro — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1831-m-por-r-199-000-00-varginha-santo-amaro-da-imperatriz-sc-1177422815
+
+- **Sitio com linda vista Proximo de Rancho Queimado!**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-proximo-de-rancho-queimado-1493981137
+
+- **Sitio proximo de Centro de Rancho Queimado!!**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-de-centro-de-rancho-queimado-1493980141
+
+- **Vende-se Terreno no São Simão - Oportunidade: R$ 150 mil (Abaixo do Me**
+  - 💰 R$ 150.000 | 📐 420 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-no-sao-simao-oportunidade-r-150-mil-abaixo-do-mercado-1493978362
+
+- **Terreno com 362,09m² - Loteamento Bremen - Centro - Antônio Carlos - S**
+  - 💰 R$ 255.000 | 📐 362 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-362-09m-loteamento-bremen-centro-antonio-carlos-sc-1493978455
+
+- **Terreno em Canudos - Antônio Carlos**
+  - 💰 R$ 183.859 | 📐 360 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-canudos-antonio-carlos-1493977780
+
+- **Área 20.000 m² - Ingleses - Florianópolis - SC**
+  - 💰 R$ 24.900.000 | 📐 20000 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-20-000-m-ingleses-florianopolis-sc-1493975585
+
+- **Terreno na Nova Torres a 350m da Beira-Mar**
+  - 💰 R$ 57.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-nova-torres-a-350m-da-beira-mar-1493974575
+
+- **Sitio em Águas Mornas - SC**
+  - 💰 R$ 380.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-sc-1493973097
+
+- **Chácara em São Pedro de Alcântara - SC**
+  - 💰 R$ 230.000 | 📐 3000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-sao-pedro-de-alcantara-sc-1493971822
+
+- **Linda casa em Rancho Queimado - SC**
+  - 💰 R$ 750.000 | 📐 200 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-casa-em-rancho-queimado-sc-1493971137
+
+- **Condominio Fechado entregue em Caldas da Imperatriz!**
+  - 💰 R$ 450.000 | 📐 500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-fechado-entregue-em-caldas-da-imperatriz-1493968480
+
+- **Terreno em Serraria**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-serraria-1493964641
+
+- **Lindo sitio proximo de Rancho Queimado!**
+  - 💰 R$ 700.000 | 📐 38000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-proximo-de-rancho-queimado-1493963022
+
+- **Terreno para aluguel em Criciúma - JARDIM MARISTELA**
+  - 💰 R$ 1.100 | 📐 503 m²
+  - 📍 Jardim Maristela — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-jardim-maristela-1493963026
+
+- **Belo sitio proximo da praça de Angelina - SC**
+  - 💰 R$ 350.000 | 📐 40000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-proximo-da-praca-de-angelina-sc-1493961763
+
+- **chacára pronta para uso! Imovel com piscina riacho, área de festa e ca**
+  - 💰 R$ 500.000 | 📐 880 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-pronta-para-uso-imovel-com-piscina-riacho-area-de-festa-e-casa-mobiliada-aguas-1493961088
+
+- **Sítio à venda no bairro SANTA BARBARA - Antônio Carlos/SC**
+  - 💰 R$ 2.550.000 | 📐 13412 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-santa-barbara-antonio-carlos-sc-1493961112
+
+- **TERRENO RESIDENCIAL em Governador Celso Ramos - SC, Areias de Baixo**
+  - 💰 R$ 257.000 | 📐 390 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-governador-celso-ramos-sc-areias-de-baixo-1493961084
+
+- **Terreno à venda em Criciúma - São Luiz**
+  - 💰 R$ 2.200.000 | 📐 709 m²
+  - 📍 São Luiz — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-sao-luiz-1493960458
+
+- **Terreno à Venda no Pinheirinho, próximo as universidades.**
+  - 💰 R$ 180.000 | 📐 375 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-pinheirinho-proximo-as-universidades-1493960308
+
+- **Terreno para aluguel em Içara, SC**
+  - 💰 R$ 550 | 📐 362 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-icara-sc-1493959902
+
+- **Terreno para aluguel, Criciúma - SC**
+  - 💰 R$ 3.000 | 📐 825 m²
+  - 📍 Michel — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-criciuma-sc-1493959755
+
+- **Terreno à venda em Criciúma, bairro Primeira Linha**
+  - 💰 R$ 140.000 | 📐 361 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-bairro-primeira-linha-1493956855
+
+- **Terreno à venda no Terra Ville, Criciúma**
+  - 💰 R$ 430.000 | 📐 545 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-terra-ville-criciuma-1493958901
+
+- **Terreno à venda no Jardim Angélica, Criciúma.**
+  - 💰 R$ 290.000 | 📐 580 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-jardim-angelica-criciuma-1493958761
+
+- **Terreno para aluguel em Vera Cruz, Criciúma**
+  - 💰 R$ 1.000 | 📐 468 m²
+  - 📍 Vera Cruz — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-vera-cruz-criciuma-1493956778
+
+- **Terreno para aluguel em Criciúma - Bairro Pinheirinho.**
+  - 💰 R$ 1.500 | 📐 1395 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-bairro-pinheirinho-1493958489
+
+- **Terreno para aluguel em Criciúma**
+  - 💰 R$ 2.600 | 📐 800 m²
+  - 📍 Mina União — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-1493956595
+
+- **Terreno para aluguel em Criciúma - Jardim Maristela**
+  - 💰 R$ 450 | 📐 437 m²
+  - 📍 Nossa Senhora da Salete — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-jardim-maristela-1493956722
+
+- **Terreno à venda em Mina do Mato, Criciúma**
+  - 💰 R$ 192.500 | 📐 424 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-mina-do-mato-criciuma-1493957999
+
+- **Terreno para aluguel em Criciúma, Bairro Pinheirinho**
+  - 💰 R$ 1.500 | 📐 660 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-bairro-pinheirinho-1493957732
+
+- **Terreno à venda no bairro Canudos - Antônio Carlos/SC**
+  - 💰 R$ 850.000 | 📐 7344 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-canudos-antonio-carlos-sc-1493957118
+
+- **Terreno para Aluguel em Santa Bárbara, Criciúma**
+  - 💰 R$ 1.500 | 📐 305 m²
+  - 📍 Santa Bárbara — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-santa-barbara-criciuma-1493957114
+
+- **Terreno à Venda no bairro Santo Antônio, em Criciúma/SC.**
+  - 💰 R$ 231.000 | 📐 375 m²
+  - 📍 Santo Antônio — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-santo-antonio-em-criciuma-sc-1493957016
+
+- **Terreno à venda no bairro Presidente Vargas, em Içara/SC**
+  - 💰 R$ 385.000 | 📐 402 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-presidente-vargas-em-icara-sc-1493956999
+
+- **Terreno para aluguel em Criciúma, Operária Nova**
+  - 💰 R$ 1.500 | 📐 550 m²
+  - 📍 Operária Nova — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-operaria-nova-1493956979
+
+- **Terreno à venda em São Luiz, Criciúma**
+  - 💰 R$ 5.500.000 | 📐 4957 m²
+  - 📍 São Luiz — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-luiz-criciuma-1493956976
+
+- **Terreno para aluguel em Criciúma, Vila Floresta**
+  - 💰 R$ 2.250 | 📐 400 m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-vila-floresta-1493956984
+
+- **Terreno à venda no Condomínio Das Palmeiras**
+  - 💰 R$ 800.000 | 📐 1357 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-das-palmeiras-1493956947
+
+- **Terreno à venda em Mina Brasil, Criciúma**
+  - 💰 R$ 9.000 | 📐 1808 m²
+  - 📍 Mina Brasil — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-mina-brasil-criciuma-1493956903
+
+- **Terreno à venda em Laranjinha - Criciúma**
+  - 💰 R$ 130.000 | 📐 565 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-laranjinha-criciuma-1493956915
+
+- **Terreno à venda no Loteamento Genebra em Coloninha Zilli, Criciúma**
+  - 💰 R$ 200.000 | 📐 432 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-genebra-em-coloninha-zilli-criciuma-1493956913
+
+- **Terreno à venda no bairro Santo Antonio, em Criciúma/SC**
+  - 💰 R$ 240.000 | 📐 500 m²
+  - 📍 Santo Antônio — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-santo-antonio-em-criciuma-sc-1493956905
+
+- **Terreno próximo ao colégio Michel, em Criciúma/SC.**
+  - 💰 R$ 170.000 | 📐 315 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-ao-colegio-michel-em-criciuma-sc-1493956848
+
+- **Terreno à venda na Zona Sul de Balneário Rincão**
+  - 💰 R$ 350.000 | 📐 436 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-zona-sul-de-balneario-rincao-1493956854
+
+- **Terreno à venda em Criciúma - Bairro Santo Antônio**
+  - 💰 R$ 150.000 | 📐 500 m²
+  - 📍 Santo Antônio — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-bairro-santo-antonio-1493956830
+
+- **Terreno à venda em Mina do Mato, Criciúma**
+  - 💰 R$ 190.000 | 📐 303 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-mina-do-mato-criciuma-1493956826
+
+- **Terreno para aluguel em Criciúma - São Luiz**
+  - 💰 R$ 1.500 | 📐 604 m²
+  - 📍 São Luiz — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-sao-luiz-1493956835
+
+- **Terreno para aluguel em Criciúma**
+  - 💰 R$ 3.200 | 📐 1600 m²
+  - 📍 Mina Brasil — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-1493956805
+
+- **Terreno à venda no bairro São Defende, na cidade de Criciúma/SC**
+  - 💰 R$ 110.000 | 📐 348 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-sao-defende-na-cidade-de-criciuma-sc-1493956794
+
+- **Terreno para aluguel em Criciúma, área total de 360m²**
+  - 💰 R$ 500 | 📐 360 m²
+  - 📍 Nossa Senhora da Salete — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-area-total-de-360m-1493956802
+
+- **Terreno à venda na Avenida Caeté, Criciúma**
+  - 💰 R$ 325.000 | 📐 630 m²
+  - 📍 Imperatriz — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-avenida-caete-criciuma-1493956786
+
+- **Terreno à venda no bairro Vila Floresta, em Criciúma/SC**
+  - 💰 R$ 600.000 | 📐 3347 m²
+  - 📍 Vila Floresta II — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-vila-floresta-em-criciuma-sc-1493956763
+
+- **Terreno para aluguel em Criciúma**
+  - 💰 R$ 3.500 | 📐 1600 m²
+  - 📍 Mina Brasil — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-1493956724
+
+- **Terreno em Condomínio Fechado, na cidade de Criciúma/SC.**
+  - 💰 R$ 477.000 | 📐 1628 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-na-cidade-de-criciuma-sc-1493956703
+
+- **Terreno à Venda em Criciúma - Esmeralda**
+  - 💰 R$ 850.000 | 📐 1230 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-esmeralda-1493956710
+
+- **Terreno à Venda em Criciúma**
+  - 💰 R$ 230.000 | 📐 398 m²
+  - 📍 Lote Seis — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-1493956681
+
+- **Terreno à venda em Criciúma, bairro Primeira Linha**
+  - 💰 R$ 140.000 | 📐 393 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-bairro-primeira-linha-1493956679
+
+- **Terreno para aluguel em Criciúma - Bairro Argentina**
+  - 💰 R$ 100 | 📐 760 m²
+  - 📍 Próspera — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-bairro-argentina-1493956618
+
+- **Terreno à venda em Criciúma, Santo Antônio**
+  - 💰 R$ 155.000 | 📐 330 m²
+  - 📍 Santo Antônio — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-santo-antonio-1493956611
+
+- **Terreno à venda em Morro Estevão, Criciúma**
+  - 💰 R$ 2.300.000 | 📐 550000 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-morro-estevao-criciuma-1493956583
+
+- **Terreno para aluguel em Criciúma, Rodovia Luiz Rosso**
+  - 💰 R$ 750 | 📐 584 m²
+  - 📍 Jardim das Paineiras — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-rodovia-luiz-rosso-1493956570
+
+- **Terreno para aluguel em Criciúma - Avenida do Imigrantes**
+  - 💰 R$ 5.240 | 📐 782 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-em-criciuma-avenida-do-imigrantes-1493956573
+
+- **Sitio com linda casa, riacho e uma bela vista proximo de Rancho Queima**
+  - 💰 R$ 1.360.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-casa-riacho-e-uma-bela-vista-proximo-de-rancho-queimado-1493956204
+
+- **Apto 3 suítes - 124m2 - 2 vagas Kobrasol, novembro/26**
+  - 💰 R$ 1.690.000 | 📐 124 m²
+  - 📍 Kobrasol — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/apto-3-suites-124m2-2-vagas-kobrasol-novembro-26-1414295331
+
+- **Vendo terreno na praia da Solidão Florianópolis SC**
+  - 💰 R$ 250.000 | 📐 450 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-da-solidao-florianopolis-sc-1493949770
+
+- **MELHOR TERRENO 360m2 DA DANIELA**
+  - 💰 R$ 799.000 | 📐 360 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/melhor-terreno-360m2-da-daniela-1493948296
+
+- **Sitio**
+  - 💰 R$ 350 | 📐 1000 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1493944694
+
+- **Terreno escriturado no Arpoador SC**
+  - 💰 R$ 60.000 | 📐 250 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-no-arpoador-sc-1310653703
+
+- **Casa com 3 quartos à venda no Jardim das Avenidas, Araranguá**
+  - 💰 R$ 220.000 | 📐 75 m²
+  - 📍 Jardim das Avenidas — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-jardim-das-avenidas-RS220000/id-35133425/
+
+- **Casa com 4 quartos à venda na 12, 1, itapuã, Balneário Gaivota**
+  - 💰 R$ 550.000 | 📐 146 m²
+  - 📍 itapuã — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-balneario-gaivota-itapua-288m2-RS550000/id-40714916/
+
+- **Casa de Alvenaria 2 dormitórios  - Pedreiras - Balneário Rincão**
+  - 💰 R$ 550.000 | 📐 139 m²
+  - 📍 Pedreiras — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-rincao-pedreiras-139m2-RS550000/id-28806661/
+
+- **Casa com 2 quartos à venda na Rua Manoel Francisco De Souza, Zona Sul,**
+  - 💰 R$ 295.000 | 📐 70 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-rincao-zona-sul-288m2-RS295000/id-37278751/
+
