@@ -65359,3 +65359,86 @@
   - 📍 Balneário Esplanada — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-jaguaruna-balneario-esplanada-70m2-RS370000/id-41252201/
 
+
+## 🆕 16 novos anúncios — 14/04/2026 10:27
+
+- **SITIO RECANTO JARDIM**
+  - 💰 R$ 1.500.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-recanto-jardim-1493924170
+
+- **Terreno à venda, 33000 m² por R$ 25.000.000,00 - Vargem Grande - Flori**
+  - 💰 R$ 25.000.000 | 📐 33000 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-33000-m-por-r-25-000-000-00-vargem-grande-florianopolis-sc-1493924161
+
+- **Terreno à venda, 302 m² por R$ 1.010.000,00 - Lagoa da Conceição - Flo**
+  - 💰 R$ 1.010.000 | 📐 302 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-302-m-por-r-1-010-000-00-lagoa-da-conceicao-florianopolis-sc-1493923442
+
+- **Terreno Escriturado à Venda em Garopaba-SC: 307,77 m² no Bairro Campo **
+  - 💰 R$ 270.000 | 📐 307 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-a-venda-em-garopaba-sc-307-77-m-no-bairro-campo-duna-por-r-270-mil-1493918022
+
+- **Terreno para Venda em São José, Ipiranga**
+  - 💰 R$ 1.750.000 | 📐 2203 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-sao-jose-ipiranga-1493917089
+
+- **Terreno em Aririú, Palhoça**
+  - 💰 R$ 2.500.000 | 📐 2569 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-aririu-palhoca-1493916978
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1493916868
+
+- **Terreno 444 m², Carianos, Florianópolis - SC**
+  - 💰 R$ 695.000 | 📐 445 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-444-m-carianos-florianopolis-sc-1493916591
+
+- **Terreno na praia do Rosa, Garopaba - SC**
+  - 💰 R$ 600.000 | 📐 690 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-do-rosa-garopaba-sc-1493916565
+
+- **Terreno com matricula na Ponta da Piteira com vista pra Lagoa**
+  - 💰 R$ 1.600.000 | 📐 1470 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-matricula-na-ponta-da-piteira-com-vista-pra-lagoa-1493916510
+
+- **O Belo loteamento do Altos da Pedra, na Palhoça.**
+  - 💰 R$ 684.000 | 📐 360 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/o-belo-loteamento-do-altos-da-pedra-na-palhoca-1493916362
+
+- **Terreno de esquina próximo ao Trapiche da Praia João Rosa**
+  - 💰 R$ 800.000 | 📐 609 m²
+  - 📍 Praia João Rosa — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-proximo-ao-trapiche-da-praia-joao-rosa-1493913103
+
+- **Terreno Residencial- Deltaville, Biguaçu, Santa Catarina**
+  - 💰 R$ 180.000 | 📐 228 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-deltaville-biguacu-santa-catarina-1493913108
+
+- **Terreno no bairro Canto dos Ganchos em Governador Celso Ramos**
+  - 💰 R$ 650.000 | 📐 550 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-canto-dos-ganchos-em-governador-celso-ramos-1493913035
+
+- **Terreno com 150,50m² condomínio Blue Home club - Deltaville**
+  - 💰 R$ 350.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-150-50m-condominio-blue-home-club-deltaville-1493913037
+
+- **Terreno de 540m² à venda na Pedra Branca**
+  - 💰 R$ 880.000 | 📐 540 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-540m-a-venda-na-pedra-branca-1493912313
+
