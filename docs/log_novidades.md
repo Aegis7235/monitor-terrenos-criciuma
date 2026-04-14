@@ -65860,3 +65860,206 @@
   - 📍 Zona Sul — Balneário Rincão
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-rincao-zona-sul-288m2-RS295000/id-37278751/
 
+
+## 🆕 40 novos anúncios — 14/04/2026 22:05
+
+- **Maravilhoso sítio de lazer de alto padrão, disponível para venda no ba**
+  - 💰 R$ 4.500.000 | 📐 30000 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/maravilhoso-sitio-de-lazer-de-alto-padrao-disponivel-para-venda-no-bairro-rio-miguel-agu-1494121769
+
+- **Sítio com casa ampla e iluminada em Ratones**
+  - 💰 R$ 3.000.000 | 📐 4000 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-ampla-e-iluminada-em-ratones-1494114910
+
+- **Terreno à venda face leste - Forquilhas, São José/SC**
+  - 💰 R$ 700.000 | 📐 700 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-face-leste-forquilhas-sao-jose-sc-1494114618
+
+- **Terreno com 383m² face leste à venda - Forquilhas, São José/SC**
+  - 💰 R$ 350.000 | 📐 383 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-383m-face-leste-a-venda-forquilhas-sao-jose-sc-1494113470
+
+- **Terreno de 2460 m² com pavilhão à venda próximo a UNESC em Criciúma**
+  - 💰 R$ 3.900.000 | 📐 1153 m²
+  - 📍 Universitário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2460-m-com-pavilhao-a-venda-proximo-a-unesc-em-criciuma-1494113137
+
+- **Chácara com área total de 2.285m², oferecendo amplo espaço e lazer com**
+  - 💰 R$ 750.000 | 📐 2285 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-area-total-de-2-285m-oferecendo-amplo-espaco-e-lazer-completo-com-piscina-1494101569
+
+- **Terreno na passagem do maciambu**
+  - 💰 R$ 165.000 | 📐 320 m²
+  - 📍 Enseada do Brito — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-passagem-do-maciambu-1474793431
+
+- **Terreno a venda**
+  - 💰 R$ 110.000 | 📐 378 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1494069753
+
+- **Terreno em Biguaçu**
+  - 💰 R$ 35.000 | 📐 225 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-biguacu-1494067623
+
+- **Oportunidade Única em SAO JOSE - SC | Tipo: Terreno | Negociação: Leil**
+  - 💰 R$ 314.000 | 📐 316 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-sao-jose-sc-tipo-terreno-negociacao-leilao-situacao-imove-1494065822
+
+- **Oportunidade Única em SAO JOSE - SC | Tipo: Terreno | Negociação: Leil**
+  - 💰 R$ 358.191 | 📐 316 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-sao-jose-sc-tipo-terreno-negociacao-leilao-situacao-imove-1494065676
+
+- **Oportunidade Única em SAO JOSE - SC | Tipo: Terreno | Negociação: Leil**
+  - 💰 R$ 604.900 | 📐 633 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-sao-jose-sc-tipo-terreno-negociacao-leilao-situacao-imove-1494065246
+
+- **Terrenos parcelados na praia Sulmar em Balneário Gaivota**
+  - 💰 R$ 28.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-na-praia-sulmar-em-balneario-gaivota-1494061643
+
+- **Vendo 2 terrenos juntos em excelente localização em Pescaria Brava - B**
+  - 💰 R$ 100.000 | 📐 576 m²
+  - 📍  — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-2-terrenos-juntos-em-excelente-localizacao-em-pescaria-brava-barreiros-1494061110
+
+- **Terreno com 2.859m² no Ribeirão da Ilha, Florianópolis**
+  - 💰 R$ 4.000.000 | 📐 2859 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2-859m-no-ribeirao-da-ilha-florianopolis-1494058427
+
+- **Terreno a venda, 300m², Areias - São José - SC**
+  - 💰 R$ 420.000 | 📐 300 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300m-areias-sao-jose-sc-1494057129
+
+- **Sitio 4.400 m² Tranquilidade no sul da ilha  (rua sem saída)!**
+  - 💰 R$ 700.000 | 📐 4400 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-4-400-m-tranquilidade-no-sul-da-ilha-rua-sem-saida-1155754690
+
+- **Costa de dentro sul da ilha**
+  - 💰 R$ 160.000 | 📐 220 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/costa-de-dentro-sul-da-ilha-1494056118
+
+- **Venda do imóvel da (AABB) Imbituba (SC)**
+  - 💰 R$ 21.600.000 | 📐 31461 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-do-imovel-da-aabb-imbituba-sc-1306089395
+
+- **Venda do imóvel da (AABB) Orleans (SC)**
+  - 💰 R$ 2.700.000 | 📐 19730 m²
+  - 📍  — Orleans
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-do-imovel-da-aabb-orleans-sc-1306088361
+
+- **TERRENO DE ESQUINA A POUCOS METROS DO MAR!**
+  - 💰 R$ 79.000 | 📐 300 m²
+  - 📍  — Jacinto Machado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-poucos-metros-do-mar-1494047138
+
+- **TERRENO DE ESQUINA A POUCOS METROS DO MAR!**
+  - 💰 R$ 79.000 | 📐 300 m²
+  - 📍  — Jacinto Machado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-poucos-metros-do-mar-1494047132
+
+- **EXCELENTE OPORTUNIDADE NO LITORAL!**
+  - 💰 R$ 160.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-no-litoral-1494047139
+
+- **Terreno para investir maravilha centro avenida**
+  - 💰 R$ 500.000 | 📐 538 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investir-maravilha-centro-avenida-1494031806
+
+- **Casa com 1 quarto à venda na Rua Antônio Serafim, 486, Laranjinha, Cri**
+  - 💰 R$ 390.000 | 📐 154 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-1-quarto-sc-criciuma-laranjinha-405m2-RS390000/id-41020314/
+
+- **Casa para Venda em Içara, Jardim Elizabete, 3 dormitórios, 1 banheiro**
+  - 💰 R$ 430.000 | 📐 450 m²
+  - 📍 Jardim Elizabete — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-icara-jardim-elizabete-450m2-RS430000/id-39090417/
+
+- **Casa com 3 quartos à venda no Morro Bonito, Içara**
+  - 💰 R$ 1.049.000 | 📐 152 m²
+  - 📍 Morro Bonito — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-icara-morro-bonito-360m2-RS1049000/id-36462874/
+
+- **Casa com 3 quartos à venda no Caverazinho, Araranguá**
+  - 💰 R$ 400.000 | 📐 75 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-caverazinho-398m2-RS400000/id-41273378/
+
+- **Casa com 3 dormitórios à venda, 170 m² por R$ 750.000 - Urussanguinha **
+  - 💰 R$ 750.000 | 📐 170 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-ararangua-urussanguinha-435m2-RS750000/id-40635666/
+
+- **Casa à venda no Parque das Avenidas, Sombrio**
+  - 💰 R$ 650.000 | 📐 821 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-sombrio-parque-das-avenidas-821m2-RS650000/id-25603033/
+
+- **Casa para Venda em Sombrio, Parque das Avenidas, 3 dormitórios, 1 banh**
+  - 💰 R$ 550.000 | 📐 522 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-parque-das-avenidas-522m2-RS550000/id-25603068/
+
+- **Casa para Venda em Sombrio, Parque das Avenidas, 2 dormitórios, 1 banh**
+  - 💰 R$ 430.000 | 📐 360 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-parque-das-avenidas-360m2-RS430000/id-25603070/
+
+- **Casa em condomínio fechado com 3 quartos à venda na Prefeito João Luiz**
+  - 💰 R$ 1.500.000 | 📐 230 m²
+  - 📍 Novo Passo — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-passo-de-torres-novo-passo-230m2-RS1500000/id-35146423/
+
+- **Casa com 3 dormitórios à venda, 119 m² por R$ 795.000,00 - Bosque das **
+  - 💰 R$ 795.000 | 📐 119 m²
+  - 📍 Bosque das Figueiras — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-passo-de-torres-bosque-das-figueiras-228m2-RS795000/id-27587283/
+
+- **Casa com 2 quartos à venda na Praia Ribeiro, Passo de Torres**
+  - 💰 R$ 450.000 | 📐 91 m²
+  - 📍 Praia Ribeiro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-passo-de-torres-praia-ribeiro-300m2-RS450000/id-29546507/
+
+- **Casa á venda com 2 dormitórios no bairro Village Dunas em Balneário Ga**
+  - 💰 R$ 279.000 | 📐 70 m²
+  - 📍 Village Dunas I — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-balneario-gaivota-village-dunas-i-300m2-RS279000/id-30096102/
+
+- **Casa com 2 quartos à venda na Ultramar, 1, Jardim Ultramar, Balneário **
+  - 💰 R$ 490.000 | 📐 300 m²
+  - 📍 Jardim Ultramar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-jardim-ultramar-300m2-RS490000/id-36389818/
+
+- **Casa com 5 quartos à venda na Rua Clesio Búrigo, 100, Zona Sul, Balneá**
+  - 💰 R$ 1.290.000 | 📐 350 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-sc-balneario-rincao-zona-sul-384m2-RS1290000/id-34135346/
+
+- **Casa com 2 quartos à venda no Centro, Balneário Rincão**
+  - 💰 R$ 290.000 | 📐 70 m²
+  - 📍 Centro — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-rincao-centro-288m2-RS290000/id-27503467/
+
+- **Casa com 3 quartos à venda na Rua Francisco Procópio Da Silva, Zona Su**
+  - 💰 R$ 349.000 | 📐 ? m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-balneario-rincao-zona-sul-RS349000/id-39755231/
+
