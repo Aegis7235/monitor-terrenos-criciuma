@@ -65211,3 +65211,151 @@
   - 📍 Forquilhinha — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/312-48-m2-terreno-no-recanto-da-natureza-1493711851
 
+
+## 🆕 29 novos anúncios — 14/04/2026 05:37
+
+- **Terreno plano à venda no Ratones**
+  - 💰 R$ 2.500.000 | 📐 5280 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-a-venda-no-ratones-1493908058
+
+- **TERRENO A VENDA**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1493900364
+
+- **Terreno 504m² murado e escriturado por R$ 550 mil**
+  - 💰 R$ 550.000 | 📐 504 m²
+  - 📍 Recife — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-504m-murado-e-escriturado-por-r-550-mil-1493888422
+
+- **Terreno plano no Rio Vermelho**
+  - 💰 R$ 415.000 | 📐 382 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-no-rio-vermelho-1493871782
+
+- **Terreno de esquina em Loteamento Campeche**
+  - 💰 R$ 1.298.000 | 📐 393 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-loteamento-campeche-1493871350
+
+- **Vende-se área frente na praia do Forte, Florianópolis.**
+  - 💰 R$ 3.700.000 | 📐 6764 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-area-frente-na-praia-do-forte-florianopolis-1443135941
+
+- **Terreno 30.000m2 com cachoeiras na Vargem Grande**
+  - 💰 R$ 2.000.000 | 📐 30000 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-30-000m2-com-cachoeiras-na-vargem-grande-1425207000
+
+- **Terreno com vista Mar**
+  - 💰 R$ 1.300.000 | 📐 1800 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-mar-1493870693
+
+- **Excelente terreno de esquina na Nova Palhoça**
+  - 💰 R$ 590.000 | 📐 378 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-de-esquina-na-nova-palhoca-1493868841
+
+- **Terreno frente mar em Jurerê Internacional, Florianópolis**
+  - 💰 R$ 14.900.000 | 📐 800 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-em-jurere-internacional-florianopolis-1493864974
+
+- **TERRENO BARATO**
+  - 💰 R$ 88.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-barato-1493862246
+
+- **Terreno com eucaliptos**
+  - 💰 R$ 120.000 | 📐 11000 m²
+  - 📍  — Treze de Maio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-eucaliptos-1493857901
+
+- **Terreno 363m² - Pedra Branca - mrt**
+  - 💰 R$ 650.000 | 📐 363 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-363m-pedra-branca-mrt-1493843373
+
+- **Terreno 450m² - Pedra Branca**
+  - 💰 R$ 850.000 | 📐 450 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450m-pedra-branca-1493830600
+
+- **Terreno**
+  - 💰 R$ 95.000 | 📐 350 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1493830441
+
+- **Terreno no Deltaville com 150 m² fundo para o lago.**
+  - 💰 R$ 250.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-com-150-m-fundo-para-o-lago-1493821587
+
+- **Terreno à venda no Centro da Praia da Pinheira - Excelente localização**
+  - 💰 R$ 750.000 | 📐 508 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-da-praia-da-pinheira-excelente-localizacao-1493820334
+
+- **Oportunidade no Sertão do Maruim: Espaço, Tranquilidade e Valorização **
+  - 💰 R$ 590.000 | 📐 817 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-no-sertao-do-maruim-espaco-tranquilidade-e-valorizacao-codigo-308683-1493820189
+
+- **Vendo terreno, rural .**
+  - 💰 R$ 100.000 | 📐 37500 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-rural-1493819109
+
+- **Terreno com viabilidade para 120 metros codigo: 308821**
+  - 💰 R$ 20.000.000 | 📐 2925 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-para-120-metros-codigo-308821-1493818865
+
+- **Terreno à venda, 648 m² por R$ 2.000.000,00 - Santo Antônio de Lisboa **
+  - 💰 R$ 2.000.000 | 📐 649 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-648-m-por-r-2-000-000-00-santo-antonio-de-lisboa-florianopolis-sc-1493813696
+
+- **Sitio com linda cachoeira  na divisa Rancho Queimado/Angelina**
+  - 💰 R$ 2.300.000 | 📐 633000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-cachoeira-na-divisa-rancho-queimado-angelina-1477112101
+
+- **VENDO LOTE 335m2  Alínea Vivenda Praianos**
+  - 💰 R$ 315.000 | 📐 335 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-335m2-alinea-vivenda-praianos-1485507826
+
+- **Terreno 360m² na Vila Moema em ponto comercial**
+  - 💰 R$ 1.300.000 | 📐 360 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-na-vila-moema-em-ponto-comercial-1493888686
+
+- **Terreno plano no Rio Caveiras com 361m² e murado**
+  - 💰 R$ 390.000 | 📐 361 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-no-rio-caveiras-com-361m-e-murado-1493822014
+
+- **Casa para Venda em Sombrio, São Pedro, 2 dormitórios, 2 banheiros**
+  - 💰 R$ 300.000 | 📐 462 m²
+  - 📍 São Pedro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-sombrio-sao-pedro-462m2-RS300000/id-36671426/
+
+- **Casa para Venda em Sombrio, São Pedro, 3 dormitórios, 1 suíte, 3 banhe**
+  - 💰 R$ 600.000 | 📐 ? m²
+  - 📍 São Pedro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-sao-pedro-RS600000/id-25395752/
+
+- **Casa para Venda em Sombrio, Parque das Avenidas, 2 dormitórios, 1 banh**
+  - 💰 R$ 480.000 | 📐 81 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-parque-das-avenidas-390m2-RS480000/id-25603059/
+
+- **Casa alvenaria próxima ao mar - Balneário Esplanada - Jaguaruna/SC**
+  - 💰 R$ 370.000 | 📐 70 m²
+  - 📍 Balneário Esplanada — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-jaguaruna-balneario-esplanada-70m2-RS370000/id-41252201/
+
