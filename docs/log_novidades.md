@@ -66359,3 +66359,186 @@
   - 📍 Forquilhas — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-pronto-para-construir-1494205543
 
+
+## 🆕 36 novos anúncios — 15/04/2026 16:18
+
+- **TERRENO À VENDA**
+  - 💰 R$ 60.000 | 📐 5000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-1480177797
+
+- **Bela chácara em  Anitápolis - SC**
+  - 💰 R$ 460.000 | 📐 165 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/bela-chacara-em-anitapolis-sc-1494297211
+
+- **Belo Chácara na Vargem do Braço em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 380.000 | 📐 6000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-chacara-na-vargem-do-braco-em-santo-amaro-da-imperatriz-sc-1494295802
+
+- **Belo Terreno Comercial no Centro de Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 1.500.000 | 📐 1600 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-terreno-comercial-no-centro-de-santo-amaro-da-imperatriz-sc-1494294747
+
+- **ANITÁPOLIS/SC - Ótimo terreno para sítio com 2.8hectares**
+  - 💰 R$ 150.000 | 📐 28000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-otimo-terreno-para-sitio-com-2-8hectares-1475643330
+
+- **ANITÁPOLIS/SC - Terreno com vista panorâmica 2hectares**
+  - 💰 R$ 150.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-com-vista-panoramica-2hectares-1461679591
+
+- **ANITÁPOLIS/SC - Oportunidade de investimento próximo a Serra geral**
+  - 💰 R$ 4.000.000 | 📐 750000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-oportunidade-de-investimento-proximo-a-serra-geral-1461678575
+
+- **ANITÁPOLIS/SC - Lindo sítio já pronto com visita para serra geral 4hec**
+  - 💰 R$ 598.000 | 📐 40000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-sitio-ja-pronto-com-visita-para-serra-geral-4hectares-1426053640
+
+- **ANITÁPOLIS/SC - Terreno com a melhor vista para serra geral de Anitápo**
+  - 💰 R$ 395.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-com-a-melhor-vista-para-serra-geral-de-anitapolis-1426825752
+
+- **Terreno - São Pedro de Alcântara**
+  - 💰 R$ 65.000 | 📐 600 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sao-pedro-de-alcantara-1389132874
+
+- **ANITÁPOLIS/SC - Terreno em frente a SC -108 com 15.2 hectares**
+  - 💰 R$ 900.000 | 📐 152000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-em-frente-a-sc-108-com-15-2-hectares-1426829125
+
+- **Terreno no Centro de Rancho Queimado - SC**
+  - 💰 R$ 4.500.000 | 📐 8689 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-rancho-queimado-sc-1494289830
+
+- **Terreno com 372m² - Areião, Canelinha/SC**
+  - 💰 R$ 125.000 | 📐 372 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-372m-areiao-canelinha-sc-1494288007
+
+- **Grande Sitio em  Águas Mornas - SC**
+  - 💰 R$ 1.500.000 | 📐 210000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/grande-sitio-em-aguas-mornas-sc-1494286418
+
+- **Terreno rural com 4 hectares em Paulo Lopes (Penha), próximo a Garopab**
+  - 💰 R$ 250.000 | 📐 40000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-com-4-hectares-em-paulo-lopes-penha-proximo-a-garopaba-1494285717
+
+- **Sitio com escritura publica em Águas Mornas - SC**
+  - 💰 R$ 220.000 | 📐 37000 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-publica-em-aguas-mornas-sc-1494283104
+
+- **Sitio em Águas Mornas - SC**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-sc-1494282173
+
+- **Chácara, Rio Canudos, São Bonifácio/SC**
+  - 💰 R$ 220.000 | 📐 4482 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-rio-canudos-sao-bonifacio-sc-1364235303
+
+- **Terreno de frente para a geral do  Aririú Palhoça - SC**
+  - 💰 R$ 8.000.000 | 📐 3400 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-frente-para-a-geral-do-aririu-palhoca-sc-1494280434
+
+- **Belo Sitio em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 2.800.000 | 📐 70000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-santo-amaro-da-imperatriz-sc-1494278909
+
+- **Terreno em Areias do meio - Governador Celso Ramos**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-areias-do-meio-governador-celso-ramos-1494275384
+
+- **Venda | Terreno Ponta das Canas**
+  - 💰 R$ 2.030.000 | 📐 1856 m²
+  - 📍 Ponta das Canas — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-ponta-das-canas-1494274344
+
+- **Ótimo  terreno**
+  - 💰 R$ 160.000 | 📐 550 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-1494270679
+
+- **Vendo terreno**
+  - 💰 R$ 95.000 | 📐 1065 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1494268486
+
+- **Vende-se terreno com 500m²**
+  - 💰 R$ 2.000.000 | 📐 500 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-com-500m-1494255199
+
+- **Terreno plano em condomínio fechado**
+  - 💰 R$ 535.000 | 📐 450 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-em-condominio-fechado-1494252712
+
+- **Sitio com casa e duas cabanas em Caldas da Imperatriz!**
+  - 💰 R$ 980.000 | 📐 11000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-e-duas-cabanas-em-caldas-da-imperatriz-1494251930
+
+- **Sitio na Vargem Grande - Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 4.500.000 | 📐 250000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-na-vargem-grande-santo-amaro-da-imperatriz-sc-1494251870
+
+- **Sitio em Caldas da Imperatriz!**
+  - 💰 R$ 950.000 | 📐 28700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-caldas-da-imperatriz-1494251799
+
+- **Linda e Funcional**
+  - 💰 R$ 790.000 | 📐 35000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-e-funcional-1494247954
+
+- **Sitio com escritura publica em São Pedro de Alcântara - SC!**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-publica-em-sao-pedro-de-alcantara-sc-1494243173
+
+- **Excelente Terreno na praia da Lagoinha, Florianópolis/SC**
+  - 💰 R$ 15.000.000 | 📐 2688 m²
+  - 📍 Ponta das Canas — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-na-praia-da-lagoinha-florianopolis-sc-1494242599
+
+- **Terreno industrial em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 4.000.000 | 📐 8615 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-em-santo-amaro-da-imperatriz-sc-1494242402
+
+- **Chácara em Rancho Queimado - SC**
+  - 💰 R$ 650.000 | 📐 109 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-rancho-queimado-sc-1494234869
+
+- **Belo Sitio em Rancho Queimado - SC**
+  - 💰 R$ 2.000.000 | 📐 150 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-rancho-queimado-sc-1494234077
+
+- **Terreno de 487m² à venda no Campeche - Florianópolis/SC**
+  - 💰 R$ 1.220.000 | 📐 487 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-487m-a-venda-no-campeche-florianopolis-sc-1494230755
+
