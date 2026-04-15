@@ -66241,3 +66241,121 @@
   - 📍  — Sombrio
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-em-sombrio-1494203221
 
+
+## 🆕 23 novos anúncios — 15/04/2026 10:28
+
+- **Terreno à venda, 427m² - Ribeirão da Ilha - Florianópolis/SC**
+  - 💰 R$ 854.000 | 📐 427 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-427m-ribeirao-da-ilha-florianopolis-sc-1494228050
+
+- **Terreno - Florianópolis SC**
+  - 💰 R$ 2.150.000 | 📐 450 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-florianopolis-sc-1494226502
+
+- **Terreno em Condomínio Clube**
+  - 💰 R$ 265.000 | 📐 133 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-clube-1494226144
+
+- **Terreno com VIABILIDADE MULTIFAMILIAR, 612 m² por R$ 6.000.000 - Cacho**
+  - 💰 R$ 6.000.000 | 📐 612 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-multifamiliar-612-m-por-r-6-000-000-cachoeira-do-bom-jesus-1494224254
+
+- **Terreno à venda no Residencial Reserva da Pedra, no bairro Pedra Branc**
+  - 💰 R$ 950.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-residencial-reserva-da-pedra-no-bairro-pedra-branca-palhoca-sc-1494218282
+
+- **Chácara à Venda em Papagaios, Canelinha: 2 Quartos, 70m²**
+  - 💰 R$ 3.885.000 | 📐 70 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-em-papagaios-canelinha-2-quartos-70m-1494218136
+
+- **Terreno à venda em Garopaba-SC, bairro Morrinhos, Loteamento Mirante d**
+  - 💰 R$ 2.000.000 | 📐 525 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-bairro-morrinhos-loteamento-mirante-de-garopaba-com-525m-1494214547
+
+- **Terreno à venda em Garopaba-SC, Campo Duna: 361,00 m² de área. Escritu**
+  - 💰 R$ 300.000 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-campo-duna-361-00-m-de-area-escritura-publica-pronto-p-1494214422
+
+- **Terreno incrível à venda ou locação em Garopaba-SC, no Bairro Campo Du**
+  - 💰 R$ 265.000 | 📐 330 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-incrivel-a-venda-ou-locacao-em-garopaba-sc-no-bairro-campo-duna-nao-perca-a-chan-1494213531
+
+- **Terreno em condominio fechado à venda 390 m² - Rio Tavares - Florianóp**
+  - 💰 R$ 1.000.000 | 📐 390 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-a-venda-390-m-rio-tavares-florianopolis-1494213062
+
+- **Lancamento Loteamento com vários diferenciais - ruas pavimentadas, red**
+  - 💰 R$ 315.000 | 📐 335 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lancamento-loteamento-com-varios-diferenciais-ruas-pavimentadas-rede-eletrica-arrea-ve-1494212237
+
+- **Terreno à venda, no Bairro Forquilhas, São José-SC**
+  - 💰 R$ 420.000 | 📐 497 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-forquilhas-sao-jose-sc-1494208173
+
+- **Lote em condomínio à venda, no Bairro Pedra Branca, Condomínio Reserva**
+  - 💰 R$ 1.250.000 | 📐 371 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-a-venda-no-bairro-pedra-branca-condominio-reserva-da-pedra-palhoca-s-1494207949
+
+- **Terreno à venda, no Bairro Beira Rio, Biguaçu-SC. Com Tamanho de 150,0**
+  - 💰 R$ 285.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-beira-rio-biguacu-sc-com-tamanho-de-150-00m-1494207820
+
+- **Terreno para aluguel, no Bairro Caminho Novo, Palhoça-SC**
+  - 💰 R$ 3.800 | 📐 750 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-no-bairro-caminho-novo-palhoca-sc-1494207412
+
+- **Terreno para aluguel, no Bairro Bela Vista, Palhoça-SC. Com Tamanho de**
+  - 💰 R$ 3.800 | 📐 750 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-no-bairro-bela-vista-palhoca-sc-com-tamanho-de-750-00m-1494207435
+
+- **Terreno à venda no Bairro Beira Rio em Biguaçu-SC, com ,**
+  - 💰 R$ 450.000 | 📐 371 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-beira-rio-em-biguacu-sc-com-1494207434
+
+- **Terreno para aluguel no Bairro Balneário em Florianópolis-SC, com ,**
+  - 💰 R$ 3.000 | 📐 350 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-no-bairro-balneario-em-florianopolis-sc-com-1494207424
+
+- **Terreno à venda no Bairro Campinas em São José-SC, com , 10 vagas**
+  - 💰 R$ 1.100.000 | 📐 487 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-campinas-em-sao-jose-sc-com-10-vagas-1494207426
+
+- **Terreno para aluguel no Bairro Balneário em Florianópolis-SC, com ,**
+  - 💰 R$ 3.000 | 📐 350 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-no-bairro-balneario-em-florianopolis-sc-com-1494207415
+
+- **Terreno à venda no Residencial Reserva da Pedra, no bairro Pedra Branc**
+  - 💰 R$ 950.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-residencial-reserva-da-pedra-no-bairro-pedra-branca-palhoca-sc-1494206582
+
+- **Terreno de esquina à venda no Residencial Reserva da Pedra, no bairro **
+  - 💰 R$ 949.000 | 📐 376 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-no-residencial-reserva-da-pedra-no-bairro-pedra-branca-palhoc-1494206563
+
+- **Terreno plano pronto para construir**
+  - 💰 R$ 260.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-pronto-para-construir-1494205543
+
