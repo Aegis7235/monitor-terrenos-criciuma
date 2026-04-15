@@ -66542,3 +66542,171 @@
   - 📍 Campeche — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-487m-a-venda-no-campeche-florianopolis-sc-1494230755
 
+
+## 🆕 33 novos anúncios — 15/04/2026 22:06
+
+- **Terrenos no centro da cidade**
+  - 💰 R$ 290.000 | 📐 600 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-centro-da-cidade-1427757875
+
+- **Terreno a Venda**
+  - 💰 R$ 280.000 | 📐 950 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1427755738
+
+- **Chácara encantadora/ 150 mil Entrada**
+  - 💰 R$ 582.000 | 📐 2100 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-encantadora-150-mil-entrada-1494419123
+
+- **Sítio com 2.2 hectares em Alfredo Wagner**
+  - 💰 R$ 260.000 | 📐 22000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-2-2-hectares-em-alfredo-wagner-1494418624
+
+- **Terreno (Em rua) à Venda, 322m² - Bairro Recanto Verde em Criciúma**
+  - 💰 R$ 150.000 | 📐 322 m²
+  - 📍 Recanto Verde — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-rua-a-venda-322m-bairro-recanto-verde-em-criciuma-1494417786
+
+- **Terreno com residência, disponível para venda, localizado no Centro, c**
+  - 💰 R$ 900.000 | 📐 584 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-residencia-disponivel-para-venda-localizado-no-centro-cidade-palhoca-sc-1494417744
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro Capão Bonito em Crici**
+  - 💰 R$ 115.000 | 📐 360 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-capao-bonito-em-criciuma-1494417768
+
+- **Terreno à venda, 141947 m² - Forquilhas - São José/SC**
+  - 💰 R$ 8.000.500 | 📐 142 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-141947-m-forquilhas-sao-jose-sc-1494417428
+
+- **Terreno de esquina para investimento bairro Arpoador**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-para-investimento-bairro-arpoador-1494413254
+
+- **Chácara/sítio à venda em São Bonifácio/SC**
+  - 💰 R$ 400.000 | 📐 30000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-sitio-a-venda-em-sao-bonifacio-sc-1494411035
+
+- **ENDO OU TROCO TERRENO NA PASSAGEM DO MACIAMBU 11,0X30,0**
+  - 💰 R$ 170.000 | 📐 330 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/endo-ou-troco-terreno-na-passagem-do-maciambu-11-0x30-0-1494410242
+
+- **Terreno ressacada em Garopaba 13x30**
+  - 💰 R$ 200.000 | 📐 390 m²
+  - 📍 Campo D'una — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ressacada-em-garopaba-13x30-1494409117
+
+- **TERRENO ARMAÇÃO DO PANTANO DO SUL FLORIANÓPOLIS - SC**
+  - 💰 R$ 2.200.000 | 📐 2431 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-armacao-do-pantano-do-sul-florianopolis-sc-1494407650
+
+- **Terreno amplo, de 336 m² Prado - Biguaçu**
+  - 💰 R$ 350.000 | 📐 336 m²
+  - 📍 Prado — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-336-m-prado-biguacu-1494404789
+
+- **Terreno com viabilidade multifamiliar.**
+  - 💰 R$ 1.500.000 | 📐 360 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-multifamiliar-1494399057
+
+- **Terreno amplo, com rua asfaltada, de 300 m² Prado - Biguaçu**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍 Prado — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-com-rua-asfaltada-de-300-m-prado-biguacu-1494397085
+
+- **Terreno escriturado na segunda quadra do mar**
+  - 💰 R$ 130.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-na-segunda-quadra-do-mar-1494394391
+
+- **Terreno com 38.417,29m2 à venda na Ponta de Baixo com vista para a Baí**
+  - 💰 R$ 18.000.000 | 📐 38 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-38-417-29m2-a-venda-na-ponta-de-baixo-com-vista-para-a-baia-de-sao-jose-1494388636
+
+- **Vende-se terreno em Jacinto Machado SC**
+  - 💰 R$ 150.000 | 📐 612 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-em-jacinto-machado-sc-1494390642
+
+- **Terreno amplo, em condomínio, de 150 m² Bairro Deltaville - Biguaçu**
+  - 💰 R$ 198.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-em-condominio-de-150-m-bairro-deltaville-biguacu-1494385993
+
+- **TERRENO ARMAÇÃO DO PANTANO DO SUL FLORIANÓPOLIS - SC**
+  - 💰 R$ 2.200.000 | 📐 2431 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-armacao-do-pantano-do-sul-florianopolis-sc-1494381363
+
+- **Terreno 400m² com Boa Localização - Beira Rio - BRN**
+  - 💰 R$ 520.000 | 📐 400 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-400m-com-boa-localizacao-beira-rio-brn-1494357308
+
+- **Terreno Área Rural com 34.200,00 m2 em Forquilhas**
+  - 💰 R$ 4.250.000 | 📐 34200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-area-rural-com-34-200-00-m2-em-forquilhas-1494355959
+
+- **Terreno com 407mª nos Ingleses do Rio Vermelho, Florianópolis.**
+  - 💰 R$ 4.200.000 | 📐 407 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-407m-nos-ingleses-do-rio-vermelho-florianopolis-1494355768
+
+- **Terreno com 673mª em Jurerê, Florianópolis**
+  - 💰 R$ 3.540.185 | 📐 673 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-673m-em-jurere-florianopolis-1494355644
+
+- **Com proprietário: terreno no Reserva da Pedra**
+  - 💰 R$ 930.000 | 📐 323 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/com-proprietario-terreno-no-reserva-da-pedra-1494352667
+
+- **Terreno com 551,63m2, Aririu, Palhoça-SC**
+  - 💰 R$ 500.000 | 📐 12 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-551-63m2-aririu-palhoca-sc-1494352122
+
+- **Imóvel para venda possui 457 metros quadrados em São Luiz - Criciúma -**
+  - 💰 R$ 132.000 | 📐 457 m²
+  - 📍 São Luiz — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-457-metros-quadrados-em-sao-luiz-criciuma-sc-1494346162
+
+- **Imóvel para venda tem 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1494338563
+
+- **Lote 304m² no Reserva da Pedra - Pedra Branca**
+  - 💰 R$ 890.000 | 📐 304 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-304m-no-reserva-da-pedra-pedra-branca-1494338029
+
+- **Imóvel para venda possui 1204 metros quadrados em Pachecos - Palhoça -**
+  - 💰 R$ 2.500.000 | 📐 1204 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-1204-metros-quadrados-em-pachecos-palhoca-sc-1494328378
+
+- **Terreno à Venda no Alto Aririú com 264m²**
+  - 💰 R$ 195.000 | 📐 264 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-alto-aririu-com-264m-1494327124
+
+- **Casa com 4 quartos à venda na Vila São José, Araranguá , 239 m2 por R$**
+  - 💰 R$ 1.300.000 | 📐 239 m²
+  - 📍 Vila São José — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-ararangua-vila-sao-jose-468m2-RS1300000/id-40840137/
+
