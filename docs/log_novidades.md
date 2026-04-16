@@ -67033,3 +67033,96 @@
   - 📍 Guarda do Cubatão — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-guarda-do-cubatao-sc-1494478778
 
+
+## 🆕 18 novos anúncios — 16/04/2026 10:28
+
+- **Terreno à venda, 482 m² por R$ 650.000,00 - Ratones - Florianópolis/SC**
+  - 💰 R$ 650.000 | 📐 482 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-482-m-por-r-650-000-00-ratones-florianopolis-sc-1494512592
+
+- **Terreno PRAIA DO SIRIÚ - OPORTUNIDADE**
+  - 💰 R$ 690.000 | 📐 730 m²
+  - 📍 Invernada — Grão Pará
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-do-siriu-oportunidade-1494512175
+
+- **TERRENO RESIDENCIAL em FLORIANÓPOLIS - SC, SÃO JOÃO DO RIO VERMELHO**
+  - 💰 R$ 437.400 | 📐 360 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-florianopolis-sc-sao-joao-do-rio-vermelho-1494510282
+
+- **Terreno 360m² em Condomínio - Vila Becker - imv**
+  - 💰 R$ 290.000 | 📐 360 m²
+  - 📍 Vila Becker — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-em-condominio-vila-becker-imv-1494510145
+
+- **Terreno na Cachoeira do Bom Jesus 324m²**
+  - 💰 R$ 240.000 | 📐 324 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-cachoeira-do-bom-jesus-324m-1494509117
+
+- **Terreno à venda na Barra da Lagoa com 800m², próximo à Lagoa da Concei**
+  - 💰 R$ 1.280.000 | 📐 100 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-barra-da-lagoa-com-800m-proximo-a-lagoa-da-conceicao-1494509112
+
+- **Terreno 360m² em Condomínio - Vila Becker - imv**
+  - 💰 R$ 290.000 | 📐 360 m²
+  - 📍 Vila Becker — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-em-condominio-vila-becker-imv-1494506822
+
+- **Terreno 360m² em rua asfaltada - Real Parque, São José**
+  - 💰 R$ 349.000 | 📐 360 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-em-rua-asfaltada-real-parque-sao-jose-1494501062
+
+- **Terreno em condomínio à venda com 450m² em Garopaba / SC.**
+  - 💰 R$ 540.000 | 📐 450 m²
+  - 📍 Campo D'una — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-com-450m-em-garopaba-sc-1494500786
+
+- **Terreno em Vila Santana, Santo Amaro da Imperatriz/SC**
+  - 💰 R$ 420.000 | 📐 800 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-vila-santana-santo-amaro-da-imperatriz-sc-1494499593
+
+- **PONTO COMERCIAL RARO AV. JOSUÉ DI BERNARDI - ALTA RENTABILIDADE/360m²/**
+  - 💰 R$ 2.520.000 | 📐 360 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ponto-comercial-raro-av-josue-di-bernardi-alta-rentabilidade-360m-campinas-s-j-fpolis-1494498266
+
+- **Terreno de 200m² à venda no Loteamento Villa Toscana em Palhoça**
+  - 💰 R$ 290.000 | 📐 200 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-200m-a-venda-no-loteamento-villa-toscana-em-palhoca-1494497510
+
+- **Terreno de 200m² à venda no Loteamento Villa Toscana em Palhoça**
+  - 💰 R$ 290.000 | 📐 200 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-200m-a-venda-no-loteamento-villa-toscana-em-palhoca-1494497310
+
+- **Terreno de 200m² à venda no Loteamento Villa Toscana em Palhoça**
+  - 💰 R$ 290.000 | 📐 200 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-200m-a-venda-no-loteamento-villa-toscana-em-palhoca-1494497207
+
+- **Terreno residencial de 300m² à venda em Serraria**
+  - 💰 R$ 540.000 | 📐 300 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-de-300m-a-venda-em-serraria-1494496452
+
+- **Terreno de 300m² à venda em Areias**
+  - 💰 R$ 420.000 | 📐 300 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300m-a-venda-em-areias-1494496071
+
+- **Terreno residencial de 300m² à venda em Serraria**
+  - 💰 R$ 540.000 | 📐 300 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-de-300m-a-venda-em-serraria-1494496043
+
+- **Terreno de 200m² à venda no Loteamento Villa Toscana em Palhoça**
+  - 💰 R$ 290.000 | 📐 200 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-200m-a-venda-no-loteamento-villa-toscana-em-palhoca-1494496049
+
