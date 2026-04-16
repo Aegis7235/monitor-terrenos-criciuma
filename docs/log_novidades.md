@@ -67126,3 +67126,191 @@
   - 📍 Nova Palhoça — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-200m-a-venda-no-loteamento-villa-toscana-em-palhoca-1494496049
 
+
+## 🆕 37 novos anúncios — 16/04/2026 16:35
+
+- **SÍTIO EM ALFREDO WAGNER**
+  - 💰 R$ 250.000 | 📐 1400 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-1494599493
+
+- **TERRENO RURAL em São Pedro de Alcântara SC**
+  - 💰 R$ 270.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-em-sao-pedro-de-alcantara-sc-1494591171
+
+- **Terreno vista mar, à venda, em condomínio fechado no Cacupé, Florianóp**
+  - 💰 R$ 3.700.000 | 📐 763 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vista-mar-a-venda-em-condominio-fechado-no-cacupe-florianopolis-sc-1494590868
+
+- **Terreno com 510 m² frente mar no loteamento Açores no Pântano do Sul e**
+  - 💰 R$ 3.000.000 | 📐 510 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-510-m-frente-mar-no-loteamento-acores-no-pantano-do-sul-em-florianopolis-1494590841
+
+- **Terreno com 510 m² frente mar no loteamento Açores no Pântano do Sul e**
+  - 💰 R$ 3.000.000 | 📐 510 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-510-m-frente-mar-no-loteamento-acores-no-pantano-do-sul-em-florianopolis-1494590702
+
+- **Terreno rural 12 hectares**
+  - 💰 R$ 700.000 | 📐 120000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-12-hectares-1494589134
+
+- **Terreno à Venda no Exclusivo em Condomínio fechado no Cacupé, em Flori**
+  - 💰 R$ 3.500.000 | 📐 602 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-exclusivo-em-condominio-fechado-no-cacupe-em-florianopolis-sc-1494587658
+
+- **Terreno Jordão  Gov. Celso Ramos**
+  - 💰 R$ 120.000 | 📐 390 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jordao-gov-celso-ramos-1494579941
+
+- **Excelente Área no Timbé  26.150 m² com Casa e Galpões**
+  - 💰 R$ 3.500.000 | 📐 197 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-area-no-timbe-26-150-m-com-casa-e-galpoes-1494576260
+
+- **Vendo sítio na Vargem do Braço**
+  - 💰 R$ 500.000 | 📐 28000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-na-vargem-do-braco-1468984538
+
+- **Sítio para locação em Santo Amaro da Imperatriz**
+  - 💰 Não informado | 📐 10000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-locacao-em-santo-amaro-da-imperatriz-934135499
+
+- **Terreno (sítio) em Anitápolis**
+  - 💰 R$ 240.000 | 📐 55000 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sitio-em-anitapolis-1469365017
+
+- **Terreno/Sítio Anitápolis SC**
+  - 💰 R$ 110.000 | 📐 31000 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sitio-anitapolis-sc-1474711137
+
+- **TERRENO NA PRAIA DE PASSO DE TORRES - SC**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-de-passo-de-torres-sc-1494568367
+
+- **Terreno à venda na Praia do Rosa - Excelente oportunidade de investime**
+  - 💰 R$ 350.000 | 📐 440 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-do-rosa-excelente-oportunidade-de-investimento-1468595895
+
+- **Chácara em Alto de Varginha - São Pedro de Alcântara**
+  - 💰 R$ 600.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-alto-de-varginha-sao-pedro-de-alcantara-1494565065
+
+- **Chácara em Alto da Varginha - São Pedro de Alcântara**
+  - 💰 R$ 500.000 | 📐 20001 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-alto-da-varginha-sao-pedro-de-alcantara-1494565100
+
+- **Lote / Terreno em Saudade - Biguaçu**
+  - 💰 R$ 211.000 | 📐 377 m²
+  - 📍 Encruzilhada — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-saudade-biguacu-1494565067
+
+- **Lote / Terreno em Saudade - Biguaçu**
+  - 💰 R$ 201.600 | 📐 360 m²
+  - 📍 Encruzilhada — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-saudade-biguacu-1494564826
+
+- **Lote / Terreno em Saco dos Limões - Florianópolis**
+  - 💰 R$ 200.000 | 📐 379 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-saco-dos-limoes-florianopolis-1494564615
+
+- **ANITÁPOLIS/SC - Terreno para sítio com 2hectares valor R$45mil por hec**
+  - 💰 R$ 45.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-para-sitio-com-2hectares-valor-r-45mil-por-hectar-1494564162
+
+- **Sitio aprox. 3.000m² com casa de 4 quartos de 200m² e praia particular**
+  - 💰 R$ 889.000 | 📐 3000 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-aprox-3-000m-com-casa-de-4-quartos-de-200m-e-praia-particular-fundo-para-lagoa-no-1494558904
+
+- **ANITÁPOLIS/SC - Terreno para sítio com 2hectares**
+  - 💰 R$ 120.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-para-sitio-com-2hectares-1494558293
+
+- **Terreno Plano 377m² à Venda em São José SC | Potecas**
+  - 💰 R$ 350.000 | 📐 377 m²
+  - 📍 Kobrasol — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-377m-a-venda-em-sao-jose-sc-potecas-1494557454
+
+- **Preço de Ocasião Terreno de 390m² escriturado e documentado. Praia do **
+  - 💰 R$ 145.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/preco-de-ocasiao-terreno-de-390m-escriturado-e-documentado-praia-do-sol-1494555371
+
+- **Terreno 978m² com Boa Localização - Campeche**
+  - 💰 R$ 2.860.000 | 📐 978 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-978m-com-boa-localizacao-campeche-1494551755
+
+- **Barbada! Vendo lote/ terreno plano em Pescaria/ Laguna a partir de  20**
+  - 💰 R$ 8.700 | 📐 200 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lote-terreno-plano-em-pescaria-laguna-a-partir-de-200-m2-1472676791
+
+- **Area rural das mais lindas da região de Bom Retiro**
+  - 💰 R$ 750.000 | 📐 65000 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-das-mais-lindas-da-regiao-de-bom-retiro-1494548803
+
+- **Parcele direto c/ proprietário! 200 m do mar! Terreno 390m² escriturad**
+  - 💰 R$ 175.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parcele-direto-c-proprietario-200-m-do-mar-terreno-390m-escriturado-negocicao-facilit-1494547243
+
+- **ANITÁPOLIS/SC - Terreno com 2 hectares para sítio**
+  - 💰 R$ 105.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-com-2-hectares-para-sitio-1494541433
+
+- **Pronto pra construir terreno plano.**
+  - 💰 R$ 4.700.000 | 📐 5275 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/pronto-pra-construir-terreno-plano-1494539637
+
+- **ANITÁPOLIS/SC - Terreno para sítio oportunidade imperdível**
+  - 💰 R$ 130.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-para-sitio-oportunidade-imperdivel-1494537141
+
+- **Lote Residencial Loteamento Nova Governador Celso Ramos**
+  - 💰 R$ 210.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-residencial-loteamento-nova-governador-celso-ramos-1411905889
+
+- **Terreno 300m2**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m2-1341084640
+
+- **Terreno 300m2**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m2-1349647441
+
+- **Terreno disponível para venda, bairro de Jurere Tradicional**
+  - 💰 R$ 18.000.000 | 📐 7500 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-disponivel-para-venda-bairro-de-jurere-tradicional-1494531063
+
+- **Terreno  de 2 hectares em Rancho Queimado**
+  - 💰 R$ 800.000 | 📐 20000000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-hectares-em-rancho-queimado-1494530441
+
