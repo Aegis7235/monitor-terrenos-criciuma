@@ -67314,3 +67314,101 @@
   - 📍  — Rancho Queimado
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-hectares-em-rancho-queimado-1494530441
 
+
+## 🆕 19 novos anúncios — 16/04/2026 21:57
+
+- **À venda | Terreno de 762 m² em condomínio fechado de alto padrão - Cac**
+  - 💰 R$ 3.100.000 | 📐 762 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-de-762-m-em-condominio-fechado-de-alto-padrao-cacupe-em-florianopoli-1494694462
+
+- **Terreno Residencial 384,00 m²- Gov Celso Ramos**
+  - 💰 R$ 230.000 | 📐 384 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-384-00-m-gov-celso-ramos-1494693869
+
+- **Barbada ! Vendo lote plano com 200 m² no Loteamento Novo Horizonte**
+  - 💰 R$ 235.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lote-plano-com-200-m-no-loteamento-novo-horizonte-1494634839
+
+- **Vendo lote plano com 200 m² no Lisboa 3!**
+  - 💰 R$ 215.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-plano-com-200-m-no-lisboa-3-1494687791
+
+- **Oportunidade em Treviso - 30 hectares com eucalipto, açude e rio**
+  - 💰 R$ 1.900.000 | 📐 300000 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-treviso-30-hectares-com-eucalipto-acude-e-rio-1494681102
+
+- **TERRENO FRENTE MAR PRAIA DOS AÇORES**
+  - 💰 R$ 6.000.000 | 📐 1020 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-praia-dos-acores-1494680014
+
+- **Vila de cabanas em condomínio Rancho Queimado**
+  - 💰 R$ 390.000 | 📐 ? m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vila-de-cabanas-em-condominio-rancho-queimado-1468501622
+
+- **Dois Lotes à venda lado a lado totalizando 773,20m2, no Lot. Nova São **
+  - 💰 R$ 850.000 | 📐 767 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-lotes-a-venda-lado-a-lado-totalizando-773-20m2-no-lot-nova-sao-jose-sao-jose-sc-1494662826
+
+- **Imóvel para venda com 1557 metros quadrados em Córrego Grande - Floria**
+  - 💰 R$ 8.000.000 | 📐 1557 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-1557-metros-quadrados-em-corrego-grande-florianopolis-sc-1494663812
+
+- **Chácara para alugar com 3 quartos localizado em Tijucas-SC**
+  - 💰 R$ 5.500 | 📐 80 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-para-alugar-com-3-quartos-localizado-em-tijucas-sc-1494659258
+
+- **TERRENO FRENTE MAR PRAIA DOS AÇORES**
+  - 💰 R$ 6.000.000 | 📐 1020 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-praia-dos-acores-1494653892
+
+- **Excelente Lote em Condomínio Fechado - Deltaville - 150 m²**
+  - 💰 R$ 212.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-lote-em-condominio-fechado-deltaville-150-m-1494640282
+
+- **Sítio em Major Gercino**
+  - 💰 R$ 490.000 | 📐 8000 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-major-gercino-1494614609
+
+- **Vendo sítio**
+  - 💰 R$ 1.500.000 | 📐 9755798 m²
+  - 📍 Praia João Rosa — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-1494616237
+
+- **Terreno à venda na Barra do Aririu Palhoça**
+  - 💰 R$ 320.000 | 📐 429 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-barra-do-aririu-palhoca-1494625806
+
+- **Terreno em condomínio fechado em Cacupé**
+  - 💰 R$ 2.770.000 | 📐 762 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-em-cacupe-1494618333
+
+- **Terreno rural em três riachos**
+  - 💰 R$ 240.000 | 📐 800 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-em-tres-riachos-1494616102
+
+- **Sítio em Major Gercino**
+  - 💰 R$ 490.000 | 📐 8000 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-major-gercino-1494607084
+
+- **Tereno são Pedro Alcântara**
+  - 💰 R$ 150.000 | 📐 500 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tereno-sao-pedro-alcantara-1494602535
+
