@@ -66710,3 +66710,326 @@
   - 📍 Vila São José — Araranguá
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-ararangua-vila-sao-jose-468m2-RS1300000/id-40840137/
 
+
+## 🆕 64 novos anúncios — 16/04/2026 05:45
+
+- **Terreno 400m² com Boa Localização - Beira Rio - PLC**
+  - 💰 R$ 520.000 | 📐 400 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-400m-com-boa-localizacao-beira-rio-plc-1494492508
+
+- **Chácara em Alto da Varginha - São Pedro de Alcântara**
+  - 💰 R$ 500.000 | 📐 20001 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-alto-da-varginha-sao-pedro-de-alcantara-1494491124
+
+- **Chácara em Alto de Varginha - São Pedro de Alcântara**
+  - 💰 R$ 600.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-alto-de-varginha-sao-pedro-de-alcantara-1494491051
+
+- **Lote / Terreno em Saco dos Limões - Florianópolis**
+  - 💰 R$ 200.000 | 📐 379 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-saco-dos-limoes-florianopolis-1494489942
+
+- **Lote / Terreno em Saudade - Biguaçu**
+  - 💰 R$ 211.000 | 📐 377 m²
+  - 📍 Encruzilhada — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-saudade-biguacu-1494489932
+
+- **Lote / Terreno em Saudade - Biguaçu**
+  - 💰 R$ 201.600 | 📐 360 m²
+  - 📍 Encruzilhada — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-saudade-biguacu-1494489927
+
+- **Terreno de 95mil m² em Governador Celso Ramos**
+  - 💰 R$ 1.600.000 | 📐 95000 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-95mil-m-em-governador-celso-ramos-1494484315
+
+- **Terreno Comercial em Passo de Torres**
+  - 💰 R$ 285.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-passo-de-torres-1494473544
+
+- **Terreno em Campeche, Florianópolis/SC**
+  - 💰 R$ 14.440.000 | 📐 7220 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-campeche-florianopolis-sc-1494468868
+
+- **Área Residencial/Comercial em Ingleses do Rio Vermelho, Florianópolis/**
+  - 💰 R$ 90.000.000 | 📐 125000 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-residencial-comercial-em-ingleses-do-rio-vermelho-florianopolis-sc-1494468453
+
+- **Terreno em Condomínio em Cachoeira do Bom Jesus, Florianópolis/SC**
+  - 💰 R$ 648.000 | 📐 448 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-em-cachoeira-do-bom-jesus-florianopolis-sc-1494468280
+
+- **LOTE COMERCIAL DELTAVILLE 360 METROS**
+  - 💰 R$ 685.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-comercial-deltaville-360-metros-1494456335
+
+- **Terreno loteamento três caminhos**
+  - 💰 R$ 127.000 | 📐 252 m²
+  - 📍 Santa Luzia — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-tres-caminhos-1494455886
+
+- **Terreno com viabilidade multifamiliar.**
+  - 💰 R$ 1.500.000 | 📐 360 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-multifamiliar-1494454942
+
+- **TERRENO RESIDENCIAL em FLORIANÓPOLIS - SC, TRINDADE**
+  - 💰 R$ 355.600 | 📐 140 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-florianopolis-sc-trindade-1494453135
+
+- **Terreno 360m² em Condomínio - Vila Becker - mrt**
+  - 💰 R$ 290.000 | 📐 360 m²
+  - 📍 Vila Becker — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-em-condominio-vila-becker-mrt-1494452436
+
+- **Oportunidade terreno de 1080 m² na Vila Nova**
+  - 💰 R$ 500.000 | 📐 1080 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-de-1080-m-na-vila-nova-1494450944
+
+- **Terreno à venda no Loteamento Awyra REF: 349689335**
+  - 💰 R$ 315.000 | 📐 944 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-awyra-ref-349689335-1494450946
+
+- **Sítio à Venda em Maruí - Vista Espetacular para o Vale!**
+  - 💰 R$ 300.000 | 📐 70 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-marui-vista-espetacular-para-o-vale-1494450931
+
+- **Terreno Exclusivo à venda a 880 m² .Imbituba Itapiruba REF: 349689499**
+  - 💰 R$ 190.000 | 📐 880 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-a-venda-a-880-m-imbituba-itapiruba-ref-349689499-1494450916
+
+- **Terreno 378 m2 em Ibiraquera  Imbituba ? REF: 349689608**
+  - 💰 R$ 420.000 | 📐 386 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-378-m2-em-ibiraquera-imbituba-ref-349689608-1494450929
+
+- **Oportunidade: Terreno em Nova Brasília, Imbituba - Venda loteamento Qu**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-nova-brasilia-imbituba-venda-loteamento-quinta-dos-guimaraes-r-1494450930
+
+- **Terreno - 300M da Praia**
+  - 💰 R$ 479.900 | 📐 700 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-da-praia-1494450795
+
+- **Terreno com viabilidade multifamiliar.**
+  - 💰 R$ 1.500.000 | 📐 360 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-multifamiliar-1494450672
+
+- **Terreno com 3 Dormitorio(s) localizado(a) no bairro Village em Imbitub**
+  - 💰 R$ 500.000 | 📐 20 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-3-dormitorio-s-localizado-a-no-bairro-village-em-imbituba-ref-349689460-1494450796
+
+- **Terreno 450 m² no canto da praia da vila: Imbituba. REF: 349689575**
+  - 💰 R$ 1.600.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450-m-no-canto-da-praia-da-vila-imbituba-ref-349689575-1494450739
+
+- **Terreno de 350m2 Financiável no Village, Imbituba REF: 349689447**
+  - 💰 R$ 375.000 | 📐 350 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-350m2-financiavel-no-village-imbituba-ref-349689447-1494450734
+
+- **Terreno á venda no Loteamento Quinta dos Guimarães - Nova Brasília REF**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-quinta-dos-guimaraes-nova-brasilia-ref-349689505-1494450736
+
+- **Terreno de 750 m² próximo a praia da vila em Imbituba REF: 349689576**
+  - 💰 R$ 3.180.000 | 📐 750 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-750-m-proximo-a-praia-da-vila-em-imbituba-ref-349689576-1494450717
+
+- **Terreno de Esquina.liberado para construção REF: 349689592**
+  - 💰 R$ 276.000 | 📐 449 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-liberado-para-construcao-ref-349689592-1494450683
+
+- **Imóvel exclusivo: terreno à venda em Imbituba. Aproveite! REF: 3496895**
+  - 💰 R$ 187.800 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-exclusivo-terreno-a-venda-em-imbituba-aproveite-ref-349689591-1494450701
+
+- **Terreno de 381 m² à venda no Bairro Campestre, Imbituba**
+  - 💰 R$ 200.000 | 📐 381 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-381-m-a-venda-no-bairro-campestre-imbituba-1494450702
+
+- **Terreno 300 M2 à venda, Nova Brasilia - Imbituba REF: 349689581**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300-m2-a-venda-nova-brasilia-imbituba-ref-349689581-1494450705
+
+- **Loteamento Bella Vista Imbituba - SC REF: 000002**
+  - 💰 R$ 400.610 | 📐 318 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-bella-vista-imbituba-sc-ref-000002-1494450707
+
+- **Terreno no Loteamento Awyra**
+  - 💰 R$ 380.000 | 📐 1196 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-awyra-1494450711
+
+- **Terreno Com Escritura**
+  - 💰 R$ 80.000 | 📐 244 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-1494450712
+
+- **Terreno em Barra de Ibiraquera, Imbituba 1 quadra da lagoa REF: 349689**
+  - 💰 R$ 1.150.000 | 📐 420 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-barra-de-ibiraquera-imbituba-1-quadra-da-lagoa-ref-349689599-1494450718
+
+- **Chácara à venda na Vila Santo Antônio REF: 3496864**
+  - 💰 R$ 380.000 | 📐 1900 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-na-vila-santo-antonio-ref-3496864-1494450677
+
+- **Terreno Exclusivo de Esquina - Venda - Imbituba SC REF: 349689593**
+  - 💰 R$ 312.300 | 📐 432 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-de-esquina-venda-imbituba-sc-ref-349689593-1494450681
+
+- **Terreno à venda loteamento Bella Vista, - Imbituba: confira essa oport**
+  - 💰 R$ 390.000 | 📐 372 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-bella-vista-imbituba-confira-essa-oportunidade-ref-349689-1494450695
+
+- **700,00m² - Terreno, Village**
+  - 💰 R$ 715.000 | 📐 700 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/700-00m-terreno-village-1494450689
+
+- **Lote de esquina. liberado para construir REF: 349689588**
+  - 💰 R$ 291.000 | 📐 483 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-liberado-para-construir-ref-349689588-1494450671
+
+- **Terreno em Imbituba, Itapirubá 880m² - com escritura publica.**
+  - 💰 R$ 180.000 | 📐 880 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-itapiruba-880m-com-escritura-publica-1494450676
+
+- **Terreno à venda no loteamento parque da lagoa - Portinho da Vila REF: **
+  - 💰 R$ 165.000 | 📐 213 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-parque-da-lagoa-portinho-da-vila-ref-349689625-1494450678
+
+- **Oportunidade no Bosque Imbituba, Sambaqui**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-no-bosque-imbituba-sambaqui-1494450680
+
+- **Terreno para Venda em Laguna / no bairro Praia do Sol REF: 349689351**
+  - 💰 R$ 367.000 | 📐 540 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-laguna-no-bairro-praia-do-sol-ref-349689351-1494450573
+
+- **Oportunidade: Terreno com escritura no Campo da Aviação REF: 349689541**
+  - 💰 R$ 165.000 | 📐 330 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-com-escritura-no-campo-da-aviacao-ref-349689541-1494450577
+
+- **Terreno à venda em Imbituba, Nova Brasília - Oportunidade única! REF: **
+  - 💰 R$ 342.000 | 📐 420 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-nova-brasilia-oportunidade-unica-ref-349689556-1494450558
+
+- **Terreno de 3400m² em Imbituba - Nova Brasília - Venda REF: 349689545**
+  - 💰 R$ 320.000 | 📐 3400 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-3400m-em-imbituba-nova-brasilia-venda-ref-349689545-1494450563
+
+- **Terreno próximo a Lagoa**
+  - 💰 R$ 750.000 | 📐 1200 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-lagoa-1494450560
+
+- **Terreno de 1100 m2 à venda na Vila Nova: Excelente oportunidade! REF: **
+  - 💰 R$ 1.070.000 | 📐 1100 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1100-m2-a-venda-na-vila-nova-excelente-oportunidade-ref-349689376-1494450508
+
+- **Terreno 400m² com Boa Localização - Beira Rio - EST**
+  - 💰 R$ 520.000 | 📐 400 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-400m-com-boa-localizacao-beira-rio-est-1494446429
+
+- **Sítio**
+  - 💰 R$ 480.000 | 📐 37000 m²
+  - 📍  — Braço do Norte
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1494445273
+
+- **Jazigo Perpétuo à venda no  Cemitério São Francisco Xavier (Caju)**
+  - 💰 R$ 27.500 | 📐 2 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jazigo-perpetuo-a-venda-no-cemiterio-sao-francisco-xavier-caju-1494438526
+
+- **Terreno 400m² com Boa Localização - Beira Rio**
+  - 💰 R$ 520.000 | 📐 400 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-400m-com-boa-localizacao-beira-rio-1494434762
+
+- **Terreno 400m² com Boa Localização - Beira Rio - CEN**
+  - 💰 R$ 520.000 | 📐 400 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-400m-com-boa-localizacao-beira-rio-cen-1494429788
+
+- **Vista Da Pedra Condomínio fechado  em são José aceito 100% permuta dir**
+  - 💰 R$ 499.000 | 📐 360 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vista-da-pedra-condominio-fechado-em-sao-jose-aceito-100-permuta-direto-proprietario-1476397621
+
+- **Sítio - Águas Mornas**
+  - 💰 R$ 450.000 | 📐 9700 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-aguas-mornas-1494426233
+
+- **Terreno no Blue Deltaville - Beira Rio**
+  - 💰 R$ 240.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-blue-deltaville-beira-rio-1494425586
+
+- **Terreno - Lote Lisboa I - Forquilhas - São José Rua Braga**
+  - 💰 R$ 265.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-lisboa-i-forquilhas-sao-jose-rua-braga-1494425021
+
+- **Sitio em Alfredo Vagner72 mil metros por 550 mil só 3km de estrada de **
+  - 💰 R$ 550 | 📐 72000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-vagner72-mil-metros-por-550-mil-so-3km-de-estrada-de-chao-escriturado-1494424185
+
+- **Imóvel para venda tem 20000 metros quadrados em Sao Leonardo - Rancho **
+  - 💰 R$ 400.000 | 📐 20000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-20000-metros-quadrados-em-sao-leonardo-rancho-queimado-sc-1494423863
+
+- **terreno rural**
+  - 💰 R$ 395.000 | 📐 150000 m²
+  - 📍  — Pedras Grandes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-1494422120
+
+- **TERRENO - GUARDA DO CUBATÃO - SC**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-guarda-do-cubatao-sc-1494478778
+
