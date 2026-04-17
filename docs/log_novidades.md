@@ -67565,3 +67565,86 @@
   - 📍 Bom Viver — Biguaçu
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-antigo-sitio-reitz-1494697291
 
+
+## 🆕 16 novos anúncios — 17/04/2026 10:26
+
+- **Terreno à Venda Vista Mar**
+  - 💰 R$ 320.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-vista-mar-1494789855
+
+- **TERRENO À VENDA  BARRA DA IBIRAQUERA**
+  - 💰 R$ 8.500.000 | 📐 3875 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-barra-da-ibiraquera-1494789711
+
+- **Terreno à venda, São João do Rio Vermelho, Florianópolis, SC**
+  - 💰 R$ 399.000 | 📐 10 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-sao-joao-do-rio-vermelho-florianopolis-sc-1494788980
+
+- **Terreno 15.000 m² apenas 1,3 km BR282 em Santo Amaro da Imperatriz-SC**
+  - 💰 R$ 1.890.000 | 📐 15000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-15-000-m-apenas-1-3-km-br282-em-santo-amaro-da-imperatriz-sc-1396161893
+
+- **Terreno com 750m² ideal para comércio**
+  - 💰 R$ 500.000 | 📐 750 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-750m-ideal-para-comercio-1373097302
+
+- **Terreno diferenciado de frente para área de preservação**
+  - 💰 R$ 380.000 | 📐 451 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-diferenciado-de-frente-para-area-de-preservacao-1224427631
+
+- **AREA - PRAIA COMPRIDA - SC**
+  - 💰 R$ 1.200.000 | 📐 513 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-praia-comprida-sc-1494787322
+
+- **Loteamento Vila Germania**
+  - 💰 R$ 195.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-vila-germania-1494784251
+
+- **AREA - PRAIA COMPRIDA - SC**
+  - 💰 R$ 1.200.000 | 📐 513 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-praia-comprida-sc-1494783529
+
+- **Terreno de Esquina em Jurerê Internacional - 450m² ao Lado do Parque, **
+  - 💰 R$ 4.000.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-jurere-internacional-450m-ao-lado-do-parque-alto-poder-de-constr-1494783117
+
+- **AREA - PRAIA COMPRIDA - SC**
+  - 💰 R$ 1.200.000 | 📐 513 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-praia-comprida-sc-1494781464
+
+- **Oportunidade Única: Terreno de 360m² em Garopaba-SC, pronto para const**
+  - 💰 R$ 280.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-de-360m-em-garopaba-sc-pronto-para-construir-vendadeterren-1494776723
+
+- **Lote a venda em condomino fechado - Santo Antonio de Lisboa R$ 798.000**
+  - 💰 R$ 798.000 | 📐 643 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-em-condomino-fechado-santo-antonio-de-lisboa-r-798-000-00-1494774630
+
+- **terreno residencial bairro Deltaville**
+  - 💰 R$ 290.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-bairro-deltaville-1494772025
+
+- **Terreno à venda em condominio fechado no Cacupé, Florianópolis, SC**
+  - 💰 R$ 3.700.000 | 📐 762 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-no-cacupe-florianopolis-sc-1494776633
+
+- **localizada no São Simão em Criciúma saida para Cocal, sitio, chácara b**
+  - 💰 R$ 590.000 | 📐 3162 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-criciuma-sao-simao-3162m2-RS590000/id-41671359/
+
