@@ -67412,3 +67412,156 @@
   - 📍  — São Pedro de Alcântara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tereno-sao-pedro-alcantara-1494602535
 
+
+## 🆕 30 novos anúncios — 17/04/2026 05:41
+
+- **Terreno pronto para construir..**
+  - 💰 R$ 127.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-1494768792
+
+- **OPORTUNIDADE PARA INVESTIDORES | TERRENO COM VIABILIDADE | CÓRREGO GRA**
+  - 💰 R$ 8.000.000 | 📐 1557 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-investidores-terreno-com-viabilidade-corrego-grande-florianopolis-1494761648
+
+- **Terreno no Lot. Residencial Terra Firme em São José/SC**
+  - 💰 R$ 120.000 | 📐 220 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-lot-residencial-terra-firme-em-sao-jose-sc-1494760366
+
+- **Terreno à venda, 762 m² por R$ 3.700.000,00 - Cacupé - Florianópolis/S**
+  - 💰 R$ 3.700.000 | 📐 762 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-762-m-por-r-3-700-000-00-cacupe-florianopolis-sc-1494760156
+
+- **Terreno 128m² em Condomínio - Potecas**
+  - 💰 R$ 330.000 | 📐 128 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-128m-em-condominio-potecas-1494759346
+
+- **Terreno de esquina 307m² no Humaitá por R$ 500 mil**
+  - 💰 R$ 500.000 | 📐 307 m²
+  - 📍 Humaitá — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-307m-no-humaita-por-r-500-mil-1494753905
+
+- **Terreno para Venda em São José, Areias**
+  - 💰 R$ 420.000 | 📐 300 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-sao-jose-areias-1494749818
+
+- **Amplo terreno a venda em São Pedro de Alcantara**
+  - 💰 R$ 650.000 | 📐 13101 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-a-venda-em-sao-pedro-de-alcantara-1494747137
+
+- **Terreno à venda em Biguaçu, Beira Rio, com 180 m², Montenegro Marine D**
+  - 💰 R$ 245.700 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-biguacu-beira-rio-com-180-m-montenegro-marine-deltaville-ri-r-1494746356
+
+- **Terreno a Venda no Condomínio Rosa Internacional**
+  - 💰 R$ 670.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-rosa-internacional-1494733448
+
+- **Terreno de Esquina em Jurerê Internacional - 450m² ao Lado do Parque, **
+  - 💰 R$ 4.000.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-jurere-internacional-450m-ao-lado-do-parque-alto-poder-de-constr-1494731455
+
+- **Terreno amplo de 506 m² Mro Bina - Biguaçu**
+  - 💰 R$ 499.000 | 📐 506 m²
+  - 📍 Morro da Bina — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-506-m-mro-bina-biguacu-1494730500
+
+- **Vendo Cabana em Urubici - Serra Catarinense**
+  - 💰 R$ 60.000 | 📐 64 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-cabana-em-urubici-serra-catarinense-1494726541
+
+- **Terreno à venda com 450m² - Jurerê**
+  - 💰 R$ 2.500.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-450m-jurere-1494724826
+
+- **Chácara na Serra**
+  - 💰 R$ 280.000 | 📐 2900 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-na-serra-1494721913
+
+- **Terreno amplo de 312 m² Forquilhas - São José**
+  - 💰 R$ 275.000 | 📐 312 m²
+  - 📍 Roçado — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-312-m-forquilhas-sao-jose-1494720762
+
+- **Terreno de 300 m² Prado - Biguaçu**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍 Prado — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300-m-prado-biguacu-1494719423
+
+- **Terreno Centro Histórico São José**
+  - 💰 R$ 450.000 | 📐 390 m²
+  - 📍 Centro — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-centro-historico-sao-jose-1494718435
+
+- **Terreno amplo, de 336 m² Prado - Biguaçu**
+  - 💰 R$ 350.000 | 📐 336 m²
+  - 📍 Prado — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-336-m-prado-biguacu-1494715003
+
+- **Oportunidade de investimento em Urussanga/SC! Lote no Loteamento Villa**
+  - 💰 R$ 129.900 | 📐 470 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-em-urussanga-sc-lote-no-loteamento-villa-fornasa-1494711127
+
+- **Terreno com Excelente Localização na área externa no Deltaville em Big**
+  - 💰 R$ 349.000 | 📐 175 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-excelente-localizacao-na-area-externa-no-deltaville-em-biguacu-1494710764
+
+- **Terreno | Lote em Condomínio Caminho do Engenho codigo: 311301**
+  - 💰 R$ 990.000 | 📐 397 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-em-condominio-caminho-do-engenho-codigo-311301-1494709088
+
+- **Terreno | Lote em Condomínio Caminho do Engenho codigo: 311302**
+  - 💰 R$ 990.000 | 📐 401 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-em-condominio-caminho-do-engenho-codigo-311302-1494708973
+
+- **Lote em Condomínio Caminho do Engenho codigo: 311299**
+  - 💰 R$ 990.000 | 📐 396 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-caminho-do-engenho-codigo-311299-1494708910
+
+- **Terreno à venda no Campeche codigo: 311351**
+  - 💰 R$ 850.000 | 📐 375 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-campeche-codigo-311351-1494708736
+
+- **Terreno em Biguaçu - Este terreno não é apenas uma metragem; é um proj**
+  - 💰 R$ 1.250.000 | 📐 700 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-biguacu-este-terreno-nao-e-apenas-uma-metragem-e-um-projeto-de-alta-rentabil-1494707504
+
+- **Terreno em Forquilinhas por R$460mil reais, aproveite! codigo: 311470**
+  - 💰 R$ 460.000 | 📐 300 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-forquilinhas-por-r-460mil-reais-aproveite-codigo-311470-1494707484
+
+- **Lindo terreno em Alfredo Wagner.**
+  - 💰 R$ 295.000 | 📐 48000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-em-alfredo-wagner-1494706670
+
+- **Lote Lúcia Giassi 2. Cocal do sul**
+  - 💰 R$ 155.000 | 📐 386 m²
+  - 📍 Michel — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-lucia-giassi-2-cocal-do-sul-1494705670
+
+- **Vendo Terreno - Antigo Sítio Reitz**
+  - 💰 R$ 185.000 | 📐 ? m²
+  - 📍 Bom Viver — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-antigo-sitio-reitz-1494697291
+
