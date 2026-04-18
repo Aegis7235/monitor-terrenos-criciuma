@@ -69068,3 +69068,151 @@
   - 📍 Praça — Tijucas
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-praca-tijucas-sc-1495154139
 
+
+## 🆕 29 novos anúncios — 18/04/2026 21:49
+
+- **Vendo terreno em Alfredo Wagner sc Santa Barbara**
+  - 💰 R$ 280.000 | 📐 2000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-alfredo-wagner-sc-santa-barbara-1495244198
+
+- **Terreno de 723m² na Praia de Fora**
+  - 💰 R$ 750.000 | 📐 723 m²
+  - 📍 Praia de Fora — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-723m-na-praia-de-fora-1495242661
+
+- **Terreno de 375m² no Rio Vermelho**
+  - 💰 R$ 495.264 | 📐 375 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-375m-no-rio-vermelho-1495240606
+
+- **Terreno de 407,13m² no bairro Ratones, em Florianópolis**
+  - 💰 R$ 1.300.000 | 📐 407 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-407-13m-no-bairro-ratones-em-florianopolis-1495240335
+
+- **Ribeirão da Ilha: Apresenta a sua última face Rústica, Nobre e Linda !**
+  - 💰 R$ 12.000.000 | 📐 29658 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ribeirao-da-ilha-apresenta-a-sua-ultima-face-rustica-nobre-e-linda-1495235991
+
+- **Lote **Escriturado** Barro Vermelho/Gravatal**
+  - 💰 R$ 75.000 | 📐 297 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-escriturado-barro-vermelho-gravatal-1495213734
+
+- **Venda-Área Industrial-Palhoça-Guarda do Cubatão**
+  - 💰 R$ 5.200.000 | 📐 14947 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-area-industrial-palhoca-guarda-do-cubatao-1495205387
+
+- **Venda-Sítio-Imaruí-Figueira Grande**
+  - 💰 R$ 1.100.000 | 📐 67000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-sitio-imarui-figueira-grande-1495205375
+
+- **Venda-Área Industrial-Palhoça-Guarda do Cubatão**
+  - 💰 R$ 4.500.000 | 📐 43404 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-area-industrial-palhoca-guarda-do-cubatao-1495205373
+
+- **Terreno à venda, 300 m² por R$ 145.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 145.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-145-000-00-bellatorres-passo-de-torres-sc-1495203732
+
+- **Venda-Terreno-Imbituba-Sambaqui**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-sambaqui-1495203414
+
+- **Terreno jardins**
+  - 💰 R$ 185.000 | 📐 200 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jardins-1495201214
+
+- **Loja com terreno centro Tijucas SC**
+  - 💰 R$ 1.050.000 | 📐 350 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loja-com-terreno-centro-tijucas-sc-1495200948
+
+- **TERRENO - PRAIA DO ROSA**
+  - 💰 R$ 310.000 | 📐 353 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-do-rosa-1495200490
+
+- **Terreno à venda  Village Dunas**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-village-dunas-1495199999
+
+- **Terreno à venda, 325 m² por R$ 155.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 155.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-155-000-00-bellatorres-passo-de-torres-sc-1495200000
+
+- **Terreno na Av Beira Mar em Balneário Gaivota**
+  - 💰 R$ 235.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-av-beira-mar-em-balneario-gaivota-1495198822
+
+- **Sitio Fazenda em Imaruí ( Pescaria Brava )**
+  - 💰 R$ 1.500.000 | 📐 6000000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-fazenda-em-imarui-pescaria-brava-1495199064
+
+- **Terreno com construção frente Av Interpraias, excelente para comércio**
+  - 💰 R$ 425.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-construcao-frente-av-interpraias-excelente-para-comercio-1495198625
+
+- **Venda-Terreno-Imbituba-Village**
+  - 💰 R$ 477.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-village-1495198371
+
+- **Lote/Terreno à Venda - Garopaba**
+  - 💰 R$ 260.000 | 📐 300 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-a-venda-garopaba-1495195137
+
+- **Lote/Terreno para Locação, Praia Comprida - São José**
+  - 💰 R$ 20.000 | 📐 3340 m²
+  - 📍 Centro — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-locacao-praia-comprida-sao-jose-1495188569
+
+- **Sítio para venda Braço do Norte Antônio Carlos**
+  - 💰 R$ 900.000 | 📐 250 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-braco-do-norte-antonio-carlos-1495186691
+
+- **Lote/Terreno à Venda, Campo D'una - Garopaba**
+  - 💰 R$ 271.350 | 📐 300 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-a-venda-campo-d-una-garopaba-1495185570
+
+- **Lote/Terreno - Garopaba**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-garopaba-1495185113
+
+- **Vendo ou troco**
+  - 💰 R$ 150.000 | 📐 600 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-1495180491
+
+- **LOTE  LUMIS PARK(423m2) - comercial e IND.**
+  - 💰 R$ 425.000 | 📐 423 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-lumis-park-423m2-comercial-e-ind-1403298822
+
+- **Lote esquina VILLA TOSCANA  R$ 220.000,+ parcelas**
+  - 💰 R$ 385.000 | 📐 351 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-esquina-villa-toscana-r-220-000-parcelas-1477337586
+
+- **01 lote NOVA PALHOÇA R$ 1.000, o m2   /viab 8 ANDARES!**
+  - 💰 R$ 482.000 | 📐 482 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/01-lote-nova-palhoca-r-1-000-o-m2-viab-8-andares-1469811342
+
