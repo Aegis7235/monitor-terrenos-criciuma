@@ -68730,3 +68730,341 @@
   - 📍  — Garopaba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-da-barra-garopaba-sc-1-quarto-1-sala-1-banheiro-1-vaga-416m-1495098656
 
+
+## 🆕 67 novos anúncios — 18/04/2026 15:51
+
+- **Terreno em local alto, rua sem saída, com Escritura Pública em Santo A**
+  - 💰 R$ 210.000 | 📐 407 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-local-alto-rua-sem-saida-com-escritura-publica-em-santo-amaro-1495161988
+
+- **Terreno à Venda com 190m² na Agronômica !!**
+  - 💰 R$ 500.000 | 📐 190 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-190m-na-agronomica-1495156522
+
+- **Terreno à venda na Praia da Daniela  Florianópolis | 360m² a 200 metro**
+  - 💰 R$ 899.900 | 📐 360 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-da-daniela-florianopolis-360m-a-200-metros-do-mar-excelente-1495156205
+
+- **Terreno à venda, 450m² - Tapera - Florianópolis/SC**
+  - 💰 R$ 490.000 | 📐 450 m²
+  - 📍 Tapera da Base — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450m-tapera-florianopolis-sc-1495148517
+
+- **VENDO TERRENO CANASVIEIRAS**
+  - 💰 R$ 350.000 | 📐 104 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-canasvieiras-1495147906
+
+- **TERRENO COM VISTA PARA LAGOA, MAR E MONTANHAS EM GAROPABA | 1.200m²**
+  - 💰 R$ 400.000 | 📐 1200 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-lagoa-mar-e-montanhas-em-garopaba-1-200m-1495142545
+
+- **TERRENO COM 2.500m² E VISTA PARA LAGOA EM GAROPABA | EXCLUSIVIDADE E N**
+  - 💰 R$ 700.000 | 📐 2500 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2-500m-e-vista-para-lagoa-em-garopaba-exclusividade-e-natureza-1495140591
+
+- **TERRENO ALTO ARIRIU**
+  - 💰 R$ 180.000 | 📐 220 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-alto-aririu-1495140226
+
+- **TERRENO COM VISTA PARA LAGOA, MAR E MONTANHAS EM GAROPABA | 1.200m²**
+  - 💰 R$ 400.000 | 📐 1200 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-lagoa-mar-e-montanhas-em-garopaba-1-200m-1495139790
+
+- **TERRENO COM 2.500m² E VISTA PARA LAGOA EM GAROPABA | EXCLUSIVIDADE E N**
+  - 💰 R$ 700.000 | 📐 2500 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2-500m-e-vista-para-lagoa-em-garopaba-exclusividade-e-natureza-1495138360
+
+- **TERRENO COM 2.500m² E VISTA PARA LAGOA EM GAROPABA | EXCLUSIVIDADE E N**
+  - 💰 R$ 700.000 | 📐 2500 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2-500m-e-vista-para-lagoa-em-garopaba-exclusividade-e-natureza-1495138333
+
+- **Terreno próximo a praia dos Açores**
+  - 💰 R$ 70.000 | 📐 ? m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-praia-dos-acores-1495135272
+
+- **A partir de R$950 Aluguel de Salão de festa e eventos**
+  - 💰 R$ 950 | 📐 2000 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/a-partir-de-r-950-aluguel-de-salao-de-festa-e-eventos-1301409355
+
+- **Terrenos em Rancho Queimado**
+  - 💰 R$ 900.000 | 📐 20000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-rancho-queimado-1495134099
+
+- **Terreno em Condomínio fechado no Rio Vermelho**
+  - 💰 R$ 410.000 | 📐 375 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-rio-vermelho-1495134426
+
+- **Terreno no Loteamento Ana Paula à venda, 360,00 m² por R$ 205.309,68 -**
+  - 💰 R$ 205.310 | 📐 360 m²
+  - 📍 Demboski — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-ana-paula-a-venda-360-00-m-por-r-205-309-68-demboski-criciuma-1495123720
+
+- **Terreno rural à venda, 40303,00 m² por R$ 1.932.326,40 - Sc 446 - Coca**
+  - 💰 R$ 1.932.326 | 📐 40303 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-a-venda-40303-00-m-por-r-1-932-326-40-sc-446-cocal-do-sul-sc-1495123532
+
+- **Terreno no Loteamento Pedro Locatelli à venda, 372,57 m² por R$ 157.00**
+  - 💰 R$ 157.002 | 📐 373 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-pedro-locatelli-a-venda-372-57-m-por-r-157-001-52-vila-nova-c-1495123193
+
+- **Terreno à venda, 800,00 m² por R$ 480.000,00 - Argentina - Criciúma/SC**
+  - 💰 R$ 480.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-800-00-m-por-r-480-000-00-argentina-criciuma-sc-1495122899
+
+- **Terreno no Loteamento Everest à venda, 360,94 m² por R$ 117.751,14 - L**
+  - 💰 R$ 117.751 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-everest-a-venda-360-94-m-por-r-117-751-14-liri-icara-sc-1495122519
+
+- **Terreno à venda, 674,50 m² por R$ 1.714.939,68 - Centro - Siderópolis/**
+  - 💰 R$ 1.714.940 | 📐 675 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-674-50-m-por-r-1-714-939-68-centro-sideropolis-sc-1495122397
+
+- **Terreno no Condomínio Residencial Águas do Atlântico à venda, 1111,57 **
+  - 💰 R$ 492.139 | 📐 1112 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-residencial-aguas-do-atlantico-a-venda-1111-57-m-por-r-492-139-38-1495122008
+
+- **Terrenos rurais à venda, 99172,00 m² por R$ 552.524,58 - Rancho dos Bu**
+  - 💰 R$ 552.525 | 📐 99172 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-rurais-a-venda-99172-00-m-por-r-552-524-58-rancho-dos-bugres-urussanga-sc-1495121874
+
+- **Terreno à venda, 880,68 m² por R$ 661.217,94 - São Defende - Criciúma/**
+  - 💰 R$ 661.218 | 📐 881 m²
+  - 📍 Universitário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-880-68-m-por-r-661-217-94-sao-defende-criciuma-sc-1495121896
+
+- **Terreno no Loteamento Villaggio Du Doro à venda, 360,00 m² por R$ 163.**
+  - 💰 R$ 163.040 | 📐 360 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-villaggio-du-doro-a-venda-360-00-m-por-r-163-040-04-palladini-1495121574
+
+- **Terreno à venda, 7700,00 m² por R$ 3.500.000,00 - Laranjeiras - Pescar**
+  - 💰 R$ 3.500.000 | 📐 7700 m²
+  - 📍 Laranjeiras — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-7700-00-m-por-r-3-500-000-00-laranjeiras-pescaria-brava-sc-1495121509
+
+- **Sítio à venda, 23000 m² por R$ 850.000,00 - Sanga da Curva - Jacinto M**
+  - 💰 R$ 850.000 | 📐 23000 m²
+  - 📍  — Jacinto Machado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-23000-m-por-r-850-000-00-sanga-da-curva-jacinto-machado-santa-catarin-1495119894
+
+- **Terreno no Loteamento Tia Maria P. Zanette à venda, 361,20 m² por R$ 1**
+  - 💰 R$ 132.847 | 📐 361 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-tia-maria-p-zanette-a-venda-361-20-m-por-r-132-847-44-archimed-1495119889
+
+- **Terreno no Loteamento Tibincoski à venda, 425,25 m² por R$ 178.136,34 **
+  - 💰 R$ 178.136 | 📐 425 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-tibincoski-a-venda-425-25-m-por-r-178-136-34-raichaski-icara-1495119898
+
+- **Sítio à venda, 13700,00 m² por R$ 590.000,00 - Bela Vista - Içara/SC**
+  - 💰 R$ 590.000 | 📐 13700 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-13700-00-m-por-r-590-000-00-bela-vista-icara-sc-1495119832
+
+- **Terreno no Loteamento Villagio à venda, 360,60 m² por R$ 209.000,00 - **
+  - 💰 R$ 209.000 | 📐 361 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-villagio-a-venda-360-60-m-por-r-209-000-00-primeira-linha-cri-1495119813
+
+- **Sítio com 2 dormitórios à venda, 1 m² por R$ 1.100.000,00 - Azambuja -**
+  - 💰 R$ 1.100.000 | 📐 100 m²
+  - 📍  — Pedras Grandes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-2-dormitorios-a-venda-1-m-por-r-1-100-000-00-azambuja-pedras-grandes-sc-1495119384
+
+- **Terreno no Loteamento Villagio à venda, 360,60 m² por R$ 209.000,00 - **
+  - 💰 R$ 209.000 | 📐 361 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-villagio-a-venda-360-60-m-por-r-209-000-00-primeira-linha-cri-1495119373
+
+- **Terreno - ESCRITURADO Balneário Arroio do Silva**
+  - 💰 R$ 115.000 | 📐 360 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-balneario-arroio-do-silva-1495119341
+
+- **Terreno no Loteamento Jardim das Laranjeiras à venda, 326,32 m² por R$**
+  - 💰 R$ 130.000 | 📐 326 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-das-laranjeiras-a-venda-326-32-m-por-r-130-000-00-vila-s-1495119264
+
+- **Sítio com 2 dormitórios à venda, 15442,90 m² por R$ 750.000,00 - Vila **
+  - 💰 R$ 750.000 | 📐 70 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-2-dormitorios-a-venda-15442-90-m-por-r-750-000-00-vila-nova-icara-santa-c-1495119183
+
+- **Terreno no Loteamento Jardim Monte Verde à venda, 364,25 m² por R$ 144**
+  - 💰 R$ 144.924 | 📐 364 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-monte-verde-a-venda-364-25-m-por-r-144-924-48-caravaggio-1495119182
+
+- **Terreno à venda, 525,00 m² por R$ 208.328,94 - São Pedro - Treviso/SC**
+  - 💰 R$ 208.329 | 📐 525 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-525-00-m-por-r-208-328-94-sao-pedro-treviso-sc-1495119165
+
+- **Terreno no Condomínio Villaggio Verde à venda, 1628,25 m² por R$ 501.1**
+  - 💰 R$ 501.197 | 📐 1628 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-villaggio-verde-a-venda-1628-25-m-por-r-501-197-16-argentina-1495119090
+
+- **Terreno à venda, 369,00 m² por R$ 289.848,96 - Maria Céu - Criciúma/SC**
+  - 💰 R$ 289.849 | 📐 369 m²
+  - 📍 Maria Céu — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-369-00-m-por-r-289-848-96-maria-ceu-criciuma-sc-1495119084
+
+- **Terreno no Loteamento Vila Verde à venda, 432,51 m² por R$ 160.020,72 **
+  - 💰 R$ 160.021 | 📐 433 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-vila-verde-a-venda-432-51-m-por-r-160-020-72-laranjinha-crici-1495118562
+
+- **Terreno à venda, 408,00 m² por R$ 383.446,02 - Lote Seis - Criciúma/SC**
+  - 💰 R$ 383.446 | 📐 408 m²
+  - 📍 Lote Seis — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-408-00-m-por-r-383-446-02-lote-seis-criciuma-sc-1495118461
+
+- **Terreno no Loteamento Monte Rey à venda, 360,00 m² por R$ 138.885,96 -**
+  - 💰 R$ 138.886 | 📐 360 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-monte-rey-a-venda-360-00-m-por-r-138-885-96-quarta-linha-cric-1495117527
+
+- **Terreno no Condomínio Residencial San Simone à venda, 1012,36 m² por R**
+  - 💰 R$ 691.411 | 📐 1012 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-residencial-san-simone-a-venda-1012-36-m-por-r-691-410-54-sao-s-1495117434
+
+- **Terreno à venda, 360 m² por R$ 135.000,00 - Linha Batista - Criciúma/S**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-135-000-00-linha-batista-criciuma-sc-1495117431
+
+- **Terreno à venda, 395 m² por R$ 130.000,00 - Coloninha Zilli - Criciúma**
+  - 💰 R$ 130.000 | 📐 396 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-395-m-por-r-130-000-00-coloninha-zilli-criciuma-sc-1495116695
+
+- **Terreno no Loteamento Operária Nova à venda, 450,00 m² por R$ 172.097,**
+  - 💰 R$ 172.098 | 📐 450 m²
+  - 📍 Maria Céu — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-operaria-nova-a-venda-450-00-m-por-r-172-097-82-maria-ceu-cri-1495116473
+
+- **OPORTUNIDADE LOTE COM 450m2**
+  - 💰 R$ 300.000 | 📐 450 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-lote-com-450m2-1444240866
+
+- **Terreno à venda, 300,00 m² por R$ 226.444,50 - Centro - Treviso/SC**
+  - 💰 R$ 226.445 | 📐 300 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-00-m-por-r-226-444-50-centro-treviso-sc-1495116456
+
+- **Terreno à venda, 5742,65 m² por R$ 650.000,00 - Linha Anta - Criciúma/**
+  - 💰 R$ 650.000 | 📐 5743 m²
+  - 📍 Demboski — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-5742-65-m-por-r-650-000-00-linha-anta-criciuma-sc-1495116459
+
+- **Terreno de esquina**
+  - 💰 R$ 330.000 | 📐 450 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-1428876162
+
+- **Terreno no Condomínio Montebello à venda, 563,99 m² por R$ 504.216,42 **
+  - 💰 R$ 504.216 | 📐 564 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-montebello-a-venda-563-99-m-por-r-504-216-42-jardim-palmeiras-1495116232
+
+- **Terreno no Loteamento Nova São José I à venda, 364,59 m² por R$ 377.40**
+  - 💰 R$ 377.408 | 📐 365 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-nova-sao-jose-i-a-venda-364-59-m-por-r-377-407-50-sertao-do-mar-1495116233
+
+- **Terreno à venda, 25.000,00 m² por R$ 1.100.000,00 - Ponta do Mato - Iç**
+  - 💰 R$ 1.100.000 | 📐 25000 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-25-000-00-m-por-r-1-100-000-00-ponta-do-mato-icara-sc-1495115276
+
+- **Terreno no Loteamento Vila Residencial Peruchi à venda, 408,25 m² por **
+  - 💰 R$ 425.716 | 📐 408 m²
+  - 📍 Mina Brasil — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-vila-residencial-peruchi-a-venda-408-25-m-por-r-425-715-66-mina-1495115278
+
+- **Terreno no Loteamento Jardim Amábile à venda, 409,99 m² por R$ 241.540**
+  - 💰 R$ 241.541 | 📐 410 m²
+  - 📍 Santo Antônio — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-amabile-a-venda-409-99-m-por-r-241-540-80-santo-antonio-1495115259
+
+- **Terreno no Loteamento Jardim Primavera à venda, 370,58 m² por R$ 150.9**
+  - 💰 R$ 150.963 | 📐 371 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-primavera-a-venda-370-58-m-por-r-150-963-00-linha-batist-1495115261
+
+- **Terreno de Alto Parão em Jurerê Internacional - Florianópolis Sc.**
+  - 💰 R$ 4.250.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-alto-parao-em-jurere-internacional-florianopolis-sc-1495115177
+
+- **Vendo Sítio em Urussanga sc**
+  - 💰 R$ 330.000 | 📐 20000 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-urussanga-sc-1495045952
+
+- **Terreno à venda, 275 m² por R$ 780.000,00 - Campeche - Florianópolis/S**
+  - 💰 R$ 780.000 | 📐 275 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-275-m-por-r-780-000-00-campeche-florianopolis-sc-1495111830
+
+- **TERRENO COM 2460 M² NA CACHOEIRA DO BOM JESUS FLORIANÓPOLIS**
+  - 💰 R$ 1.400.000 | 📐 2460 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2460-m-na-cachoeira-do-bom-jesus-florianopolis-1495110572
+
+- **Terreno à venda em Praia Comprida, São José**
+  - 💰 R$ 400.000 | 📐 250 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-praia-comprida-sao-jose-1495108862
+
+- **Terreno para Locação em Nova Palhoça. Oportunidade par ao seu negócio!**
+  - 💰 R$ 17.000 | 📐 1352 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-em-nova-palhoca-oportunidade-par-ao-seu-negocio-1495107299
+
+- **Terreno para locação, Santa Luzia, Tijucas, SC**
+  - 💰 R$ 3.000 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-santa-luzia-tijucas-sc-1495165406
+
+- **Terreno para locação com 2 mil m² em frente a avenida asfaltada ,Tijuc**
+  - 💰 R$ 5.000 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-com-2-mil-m-em-frente-a-avenida-asfaltada-tijucas-sc-1495164268
+
+- **Terreno disponível para locação no bairro Universitário, Tijucas, SC**
+  - 💰 R$ 1.300 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-disponivel-para-locacao-no-bairro-universitario-tijucas-sc-1495157728
+
+- **Terreno para locação, Praça, Tijucas, SC**
+  - 💰 R$ 6.000 | 📐 10 m²
+  - 📍 Praça — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-praca-tijucas-sc-1495154139
+
