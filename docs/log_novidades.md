@@ -68667,3 +68667,66 @@
   - 📍 Palladini — Morro da Fumaça
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-morro-da-fumaca-palladini-185m2-RS99028/id-41706964/
 
+
+## 🆕 12 novos anúncios — 18/04/2026 10:02
+
+- **Terreno 925 m² em condomínio fechado- Santo Amaro da Imperatriz-SC**
+  - 💰 R$ 700.000 | 📐 925 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-925-m-em-condominio-fechado-santo-amaro-da-imperatriz-sc-1462847488
+
+- **Terreno escriturado na quadra do mar na praia do Campo Bom**
+  - 💰 R$ 210.000 | 📐 375 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-na-quadra-do-mar-na-praia-do-campo-bom-1495094310
+
+- **Terreno em condomínio à venda na Trindade**
+  - 💰 R$ 1.200.000 | 📐 963 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-na-trindade-1495092409
+
+- **Excelente Terreno com 2.496,00m² em São José/SC**
+  - 💰 R$ 8.500.000 | 📐 2496 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-com-2-496-00m-em-sao-jose-sc-1495087616
+
+- **Terreno com 611 m² em Palhoça - Bela Vista**
+  - 💰 R$ 375.000 | 📐 611 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-611-m-em-palhoca-bela-vista-1495087563
+
+- **Excelente Terreno de Esquina com 310,77m² no Novo Bela Vista em Palhoç**
+  - 💰 R$ 299.000 | 📐 310 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-de-esquina-com-310-77m-no-novo-bela-vista-em-palhoca-sc-1495082523
+
+- **Casa de vidro na Grande Florianópolis**
+  - 💰 R$ 650.000 | 📐 2100 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-vidro-na-grande-florianopolis-1495074961
+
+- **Terreno de 300m² à venda no Loteamento Green Village no bairro São Seb**
+  - 💰 R$ 352.249 | 📐 300 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300m-a-venda-no-loteamento-green-village-no-bairro-sao-sebastiao-1495073940
+
+- **Terreno de 569,89m² à venda no Loteamento Green Village no bairro São **
+  - 💰 R$ 647.153 | 📐 570 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-569-89m-a-venda-no-loteamento-green-village-no-bairro-sao-sebastiao-1495073607
+
+- **Terreno de 397,37m² à venda no Loteamento Green Village no bairro São **
+  - 💰 R$ 451.243 | 📐 397 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-397-37m-a-venda-no-loteamento-green-village-no-bairro-sao-sebastiao-1495073291
+
+- **Lote / Terreno em Aririu - Palhoça**
+  - 💰 R$ 535.000 | 📐 460 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-aririu-palhoca-1495071839
+
+- **Terreno à venda na Praia da Barra, Garopaba-SC: 1 quarto, 1 sala, 1 ba**
+  - 💰 R$ 400.000 | 📐 416 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-da-barra-garopaba-sc-1-quarto-1-sala-1-banheiro-1-vaga-416m-1495098656
+
