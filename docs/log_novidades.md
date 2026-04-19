@@ -69342,3 +69342,46 @@
   - 📍 Campeche — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1495306690
 
+
+## 🆕 8 novos anúncios — 19/04/2026 15:50
+
+- **Vende-se um terreno**
+  - 💰 R$ 100.000 | 📐 ? m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-um-terreno-1495351956
+
+- **Terreno Biguaçu,  investimento**
+  - 💰 R$ 304.000 | 📐 362 m²
+  - 📍 Tijuquinhas (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-biguacu-investimento-1427403481
+
+- **Terreno Biguaçu 5911m2 p contrutoras**
+  - 💰 R$ 2.000.000 | 📐 5911 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-biguacu-5911m2-p-contrutoras-812558729
+
+- **Ponto comercial SC 403**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ponto-comercial-sc-403-1319026201
+
+- **Terreno à Venda em Balneário Florianópolis por R$1.800.000**
+  - 💰 R$ 1.800.000 | 📐 475 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-balneario-florianopolis-por-r-1-800-000-1495332444
+
+- **Venda ou permuta de lote em Imbituba.**
+  - 💰 R$ 150.000 | 📐 306 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-ou-permuta-de-lote-em-imbituba-1495324265
+
+- **Lote excelente na Nova Governador: Onde o desenvolvimento encontra o p**
+  - 💰 R$ 229.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-excelente-na-nova-governador-onde-o-desenvolvimento-encontra-o-paraiso-1495321780
+
+- **Terreno a venda no abraao (vila aparecida )**
+  - 💰 R$ 120.000 | 📐 12 m²
+  - 📍 Itaguaçu — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-abraao-vila-aparecida-1495319211
+
