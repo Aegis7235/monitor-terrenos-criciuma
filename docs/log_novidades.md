@@ -69385,3 +69385,91 @@
   - 📍 Itaguaçu — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-abraao-vila-aparecida-1495319211
 
+
+## 🆕 17 novos anúncios — 19/04/2026 21:50
+
+- **Terreno à venda em São José/SC**
+  - 💰 R$ 430.000 | 📐 447 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-jose-sc-1481465391
+
+- **chácara linda na cidade**
+  - 💰 R$ 620.000 | 📐 2600 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-linda-na-cidade-1495419869
+
+- **Vendo terreno esquina Guarda Embau**
+  - 💰 R$ 1.090.000 | 📐 428 m²
+  - 📍 Kobrasol — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-esquina-guarda-embau-1495412867
+
+- **Lote em Condomínio Fechado**
+  - 💰 R$ 320.000 | 📐 383 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-1479674799
+
+- **Terreno Comercial em Forquilhas**
+  - 💰 R$ 5.000.000 | 📐 141947 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-forquilhas-1495405366
+
+- **Terreno 760m² - Bosque das Mansões - BRN**
+  - 💰 R$ 2.997.000 | 📐 760 m²
+  - 📍 Bosque das Mansões — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-760m-bosque-das-mansoes-brn-1495391101
+
+- **Terreno no Bosque Das Mansões - Roçado - BRN**
+  - 💰 R$ 3.729.000 | 📐 2 m²
+  - 📍 Bosque das Mansões — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bosque-das-mansoes-rocado-brn-1495391106
+
+- **Lotes de 360 a 606 m² em loteamento planejado com Estação de Tratament**
+  - 💰 R$ 495.818 | 📐 375 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-de-360-a-606-m-em-loteamento-planejado-com-estacao-de-tratamento-de-esgoto-e-area-d-1495390690
+
+- **ANITÁPOLIS/SC - Terreno para sítio com 2hectares**
+  - 💰 R$ 180.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-para-sitio-com-2hectares-1463144388
+
+- **Terreno à Venda - Bosque Residence Campeche**
+  - 💰 R$ 1.298.000 | 📐 392 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bosque-residence-campeche-1495389905
+
+- **Terreno a venda em imbituba alto arroio 328m²**
+  - 💰 R$ 170.000 | 📐 328 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-alto-arroio-328m-1495388224
+
+- **Fazenda/Sítio/Chácara para aluguel e venda com 4000 metros quadrados c**
+  - 💰 R$ 70.000 | 📐 4000 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-sitio-chacara-para-aluguel-e-venda-com-4000-metros-quadrados-com-6-quartos-1289959523
+
+- **Terreno em condomínio fechado no Deltaville em Biguaçu (oportunidade ú**
+  - 💰 R$ 214.990 | 📐 150 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-deltaville-em-biguacu-oportunidade-unica-1495382619
+
+- **Terreno à venda com , 2.362,9m² em Boa Parada São Pedro de Alcântara**
+  - 💰 R$ 550.000 | 📐 2363 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-2-362-9m-em-boa-parada-sao-pedro-de-alcantara-1325197336
+
+- **Loteamento Nova são José 1 - Sertão do Maruim - São José/SC**
+  - 💰 R$ 379.715 | 📐 368 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-nova-sao-jose-1-sertao-do-maruim-sao-jose-sc-1495371730
+
+- **Loteamento Nova são José 1 - Sertão do Maruim - São José/SC**
+  - 💰 R$ 379.715 | 📐 365 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-nova-sao-jose-1-sertao-do-maruim-sao-jose-sc-1495371477
+
+- **Vendo**
+  - 💰 R$ 78.000 | 📐 ? m²
+  - 📍  — Timbé do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-1495363551
+
