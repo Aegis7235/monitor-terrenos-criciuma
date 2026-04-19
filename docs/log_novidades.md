@@ -69329,3 +69329,16 @@
   - 📍 Rio Tavares — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-rio-tavares-florianopolis-1495189390
 
+
+## 🆕 2 novos anúncios — 19/04/2026 10:00
+
+- **Terreno à venda, 360 m² por R$ 1.500.000,00 - João Paulo - Florianópol**
+  - 💰 R$ 1.500.000 | 📐 360 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-1-500-000-00-joao-paulo-florianopolis-sc-1495314038
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1495306690
+
