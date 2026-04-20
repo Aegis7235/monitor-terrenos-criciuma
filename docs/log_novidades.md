@@ -69473,3 +69473,71 @@
   - 📍  — Timbé do Sul
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-1495363551
 
+
+## 🆕 13 novos anúncios — 20/04/2026 05:55
+
+- **Vende se TERRENO EM CAPIVARI DE BAIXO.**
+  - 💰 R$ 185.000 | 📐 336 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-em-capivari-de-baixo-1495471164
+
+- **Vendo Terreno Amplo e Murado Pronto Para Construir.**
+  - 💰 R$ 162.000 | 📐 ? m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-amplo-e-murado-pronto-para-construir-1478512372
+
+- **Terreno Av. Red Park**
+  - 💰 R$ 450.000 | 📐 450 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-av-red-park-1495466260
+
+- **Terreno 300 MT 12/25 Alto Arroio Imbituba**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300-mt-12-25-alto-arroio-imbituba-1494854721
+
+- **Terreno nos Ingleses pertinho da academia Engenharia do Corpo**
+  - 💰 R$ 459.000 | 📐 ? m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nos-ingleses-pertinho-da-academia-engenharia-do-corpo-1495454959
+
+- **Troca Cuiabá/MT X Santa Catarina Litoral**
+  - 💰 R$ 990.000 | 📐 2900 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/troca-cuiaba-mt-x-santa-catarina-litoral-1495447620
+
+- **Terreno jaguaruna 600 metros**
+  - 💰 R$ 90.000 | 📐 600 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jaguaruna-600-metros-1494787818
+
+- **Vendo lote**
+  - 💰 R$ 115.000 | 📐 ? m²
+  - 📍 Vargem Grande — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-1495446127
+
+- **Chacra com casa**
+  - 💰 R$ 180.000 | 📐 4000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacra-com-casa-1495442006
+
+- **Vendo Sitio em Rancho Queimado**
+  - 💰 R$ 3.500.000 | 📐 517000 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-rancho-queimado-1495439081
+
+- **Lote Bairro Alto Arroio Imbituba SC.**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-bairro-alto-arroio-imbituba-sc-1495432912
+
+- **Vendo Sítio em Balneário Gaivota/SC.**
+  - 💰 R$ 199.900 | 📐 2400 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-balneario-gaivota-sc-1495432616
+
+- **Terreno Estratégico com 1.320m² - Frente para o Angeloni e Potencial p**
+  - 💰 R$ 8.000.000 | 📐 1320 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-estrategico-com-1-320m-frente-para-o-angeloni-e-potencial-para-12-andares-1495435904
+
