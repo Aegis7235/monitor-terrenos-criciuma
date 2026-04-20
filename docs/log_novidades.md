@@ -69559,3 +69559,126 @@
   - 📍 Vargem Grande — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-28-365m2-com-cachoeiras-em-vargem-grande-florianopolis-1443189349
 
+
+## 🆕 24 novos anúncios — 20/04/2026 16:24
+
+- **Sítio em Anitápolis/SC**
+  - 💰 R$ 420.000 | 📐 27000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-anitapolis-sc-1495572413
+
+- **TERRENO - Praia Brava - HB-117197**
+  - 💰 R$ 1.260.000 | 📐 540 m²
+  - 📍 Praia Brava — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-brava-hb-117197-1495574228
+
+- **TERRENO - Trindade - HB-155441**
+  - 💰 R$ 1.700.000 | 📐 377 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-trindade-hb-155441-1495573763
+
+- **Terreno loteamento Santa Marta 309m²**
+  - 💰 R$ 140.000 | 📐 309 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-santa-marta-309m-1495573386
+
+- **Sitio a Venda em Rancho Queimado com 20.000 metros**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-rancho-queimado-com-20-000-metros-1468864180
+
+- **Sitio à venda no Bairro Sul do Rio em Santo Amaro da Imperatriz.**
+  - 💰 R$ 1.350.000 | 📐 26000000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-sul-do-rio-em-santo-amaro-da-imperatriz-1495564753
+
+- **Terreno comercial em área estratégica**
+  - 💰 R$ 650.000 | 📐 919 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-area-estrategica-1495561990
+
+- **Terreno para venda em são José!!**
+  - 💰 R$ 315.000 | 📐 335 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-sao-jose-1495561866
+
+- **Vendo ou troco**
+  - 💰 R$ 400.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-1495544539
+
+- **Ótimo terreno para venda tem 335 metros quadrados em Forquilhas - São **
+  - 💰 R$ 180.000 | 📐 335 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-para-venda-tem-335-metros-quadrados-em-forquilhas-sao-jose-sc-1495542709
+
+- **Vendo chácara na Fazenda Pedra Branca**
+  - 💰 R$ 700.000 | 📐 4200 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-chacara-na-fazenda-pedra-branca-1495542882
+
+- **Lotes de 395m² a 549m² em Braço do Norte SC - A partir de 170 mil**
+  - 💰 R$ 150.000 | 📐 393 m²
+  - 📍  — Braço do Norte
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-de-395m-a-549m-em-braco-do-norte-sc-a-partir-de-170-mil-1469083162
+
+- **Alugo sítio**
+  - 💰 R$ 2.000 | 📐 70000 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alugo-sitio-1495539270
+
+- **Imóvel para venda com 384 metros quadrados em Ferraz - Garopaba - SC**
+  - 💰 R$ 650.000 | 📐 384 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-384-metros-quadrados-em-ferraz-garopaba-sc-1495531269
+
+- **Chalé à beira do rio equipado c/ móveis, eletrodomésticos e utensílios**
+  - 💰 R$ 539.000 | 📐 5000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chale-a-beira-do-rio-equipado-c-moveis-eletrodomesticos-e-utensilios-domesticos-1475099042
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 3.350.000 | 📐 12000 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1495511863
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 3.350.000 | 📐 12000 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1495502424
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 3.350.000 | 📐 12000 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1495485869
+
+- **Terreno Rural 1 Hectare com Água de Fonte em Anitápolis (Bairro Povoam**
+  - 💰 R$ 80.000 | 📐 10000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-1-hectare-com-agua-de-fonte-em-anitapolis-bairro-povoamento-1495513689
+
+- **Chácara com casa nova em Santo Amaro**
+  - 💰 R$ 280.000 | 📐 550 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-casa-nova-em-santo-amaro-1495510964
+
+- **Vendo Terreno -360 m2- Santa Tereza - São Pedro de Alcantara**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-360-m2-santa-tereza-sao-pedro-de-alcantara-1495509405
+
+- **Terreno em Ipiranga - São José - BRN**
+  - 💰 R$ 1.790.000 | 📐 3889 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ipiranga-sao-jose-brn-1495483854
+
+- **Terreno em Centro - São José - BRN**
+  - 💰 R$ 670.000 | 📐 510 m²
+  - 📍 Centro — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-centro-sao-jose-brn-1495483866
+
+- **Terreno em Ponta de Baixo - São José - BRN**
+  - 💰 R$ 3.750.000 | 📐 22000 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ponta-de-baixo-sao-jose-brn-1495483886
+
