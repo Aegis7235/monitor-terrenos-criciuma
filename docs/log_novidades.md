@@ -69541,3 +69541,21 @@
   - 📍 Capoeiras — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-estrategico-com-1-320m-frente-para-o-angeloni-e-potencial-para-12-andares-1495435904
 
+
+## 🆕 3 novos anúncios — 20/04/2026 11:01
+
+- **Sítio**
+  - 💰 R$ 300.000 | 📐 30000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1495483232
+
+- **Vende-se terreno 6764 m2 em frente a praia do Forte Jurere**
+  - 💰 R$ 3.700.000 | 📐 6764 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-6764-m2-em-frente-a-praia-do-forte-jurere-1425206219
+
+- **Área 28.365m2 com cachoeiras em Vargem Grande Florianópolis.**
+  - 💰 R$ 2.000.000 | 📐 28365 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-28-365m2-com-cachoeiras-em-vargem-grande-florianopolis-1443189349
+
