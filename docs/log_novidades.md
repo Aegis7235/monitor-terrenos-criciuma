@@ -71094,3 +71094,136 @@
   - 📍 Centro — Timbé do Sul
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-timbe-do-sul-centro-30000m2-RS550000/id-41795080/
 
+
+## 🆕 26 novos anúncios — 21/04/2026 22:00
+
+- **Chácara em Três Riachos com linda casa sede**
+  - 💰 R$ 850.000 | 📐 2000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-tres-riachos-com-linda-casa-sede-1495910717
+
+- **Terreno**
+  - 💰 R$ 180.000 | 📐 450 m²
+  - 📍 Sítio de Dentro — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1495906433
+
+- **Terreno Pedra Branca 431,32m2**
+  - 💰 R$ 780.000 | 📐 431 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pedra-branca-431-32m2-1495905566
+
+- **Terreno Urbano no Residencial Jardins 2**
+  - 💰 R$ 150.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-no-residencial-jardins-2-1495901215
+
+- **Terreno de 357,30m2, Pacheco, Palhoça-SC**
+  - 💰 R$ 380.000 | 📐 12 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-357-30m2-pacheco-palhoca-sc-1495901152
+
+- **Terreno Urbano no Residencial Jardins 2 - Bela Vista, Palhoça/SC**
+  - 💰 R$ 150.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-no-residencial-jardins-2-bela-vista-palhoca-sc-1495901142
+
+- **Terreno Urbano no Residencial Jardins 2 - Bela Vista, Palhoça/SC**
+  - 💰 R$ 150.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-no-residencial-jardins-2-bela-vista-palhoca-sc-1495899905
+
+- **Lindo Terreno Escritura Publica**
+  - 💰 R$ 890.000 | 📐 604 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-escritura-publica-1495899561
+
+- **Terreno no loteamento planejado Areias Claras a 500mt do mar**
+  - 💰 R$ 117.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-planejado-areias-claras-a-500mt-do-mar-1495898518
+
+- **Terreno a 780mt do mar no loteamento Village Dunas Norte**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-780mt-do-mar-no-loteamento-village-dunas-norte-1495898295
+
+- **Terreno plano 360m2 Nova São José**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Centro — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-360m2-nova-sao-jose-1421613913
+
+- **Terreno com Escritura Publica**
+  - 💰 R$ 465.000 | 📐 434 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-1495892240
+
+- **Vendo terreno em Biguaçu Villa germanica**
+  - 💰 R$ 230.000 | 📐 417 m²
+  - 📍 Colônia Santana — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-biguacu-villa-germanica-1495889953
+
+- **Vendo Terreno  Estrada Geral Rio Pequeno - Angelina, SC**
+  - 💰 R$ 279.990 | 📐 20000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-estrada-geral-rio-pequeno-angelina-sc-1417606878
+
+- **Terreno no Reserva da Pedra - Pedra Branca**
+  - 💰 R$ 810.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-reserva-da-pedra-pedra-branca-1495883130
+
+- **Lote em Paulo Lopes 12X27 (324m2)**
+  - 💰 R$ 75.000 | 📐 324 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-paulo-lopes-12x27-324m2-1495872026
+
+- **Terreno de esquina**
+  - 💰 R$ 20.000 | 📐 35 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-1495869758
+
+- **Terreno 720m² - Condomínio Esmeralda Premium**
+  - 💰 R$ 719.000 | 📐 720 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-720m-condominio-esmeralda-premium-1495862116
+
+- **Terreno Balneário Gaivota/SC**
+  - 💰 R$ 87.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-balneario-gaivota-sc-1495861628
+
+- **Lote comercial Loteamento nova governador.**
+  - 💰 R$ 270.000 | 📐 561 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-comercial-loteamento-nova-governador-1495851585
+
+- **Lote à venda, Loteamento Nova Governador - Governador Celso Ramos/SC**
+  - 💰 R$ 205.000 | 📐 360 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-loteamento-nova-governador-governador-celso-ramos-sc-1495850509
+
+- **Terreno Rural com Cachoeira no quintal - 4.4 hectares - São José SC**
+  - 💰 R$ 850.000 | 📐 44000 m²
+  - 📍 Colônia Santana — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-com-cachoeira-no-quintal-4-4-hectares-sao-jose-sc-1495850200
+
+- **Terreno com linda vista no Itacorubi**
+  - 💰 R$ 900.000 | 📐 466 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-linda-vista-no-itacorubi-1495847232
+
+- **TERRENO DE ESQUINA 439 METROS**
+  - 💰 R$ 179.000 | 📐 440 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-439-metros-1495838473
+
+- **terreno com preço de oportunidade em Areias Claras**
+  - 💰 R$ 67.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-preco-de-oportunidade-em-areias-claras-1421209208
+
+- **Chácara com piscina com 3.7 hectares em localização privilegiada**
+  - 💰 R$ 677.000 | 📐 37000 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-piscina-com-3-7-hectares-em-localizacao-privilegiada-1414024644
+
