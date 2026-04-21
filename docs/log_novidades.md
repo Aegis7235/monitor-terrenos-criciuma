@@ -70966,3 +70966,131 @@
   - 📍 Zona Norte — Balneário Rincão
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-rincao-zona-norte-286m2-RS960000/id-40309101/
 
+
+## 🆕 25 novos anúncios — 21/04/2026 16:23
+
+- **Terreno à venda no Morada dos Deuses**
+  - 💰 R$ 100.000 | 📐 250 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-morada-dos-deuses-1495838709
+
+- **Barbada !!! Terreno para casas e condominios !!**
+  - 💰 R$ 2.700.000 | 📐 4414 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada--terreno-para-casas-e-condominios-1495836970
+
+- **Terreno enfrente ao condomínio Terrá**
+  - 💰 R$ 2.000.000 | 📐 2500 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-enfrente-ao-condominio-terra-1495833125
+
+- **Chácara Pagará Grande**
+  - 💰 R$ 530.000 | 📐 4000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-pagara-grande-1495831698
+
+- **Terreno amplo em local estratégico em Florianópolis: ideal para empree**
+  - 💰 R$ 12.000 | 📐 1440 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-em-local-estrategico-em-florianopolis-ideal-para-empreendedores-1495816028
+
+- **Terreno comercial amplo em Carianos: potencial ilimitado para o seu ne**
+  - 💰 R$ 19.000 | 📐 2160 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-amplo-em-carianos-potencial-ilimitado-para-o-seu-negocio-1495816024
+
+- **Terreno amplo de 720 m² para aluguel em Carianos, Florianópolis**
+  - 💰 R$ 7.000 | 📐 720 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-720-m-para-aluguel-em-carianos-florianopolis-1495815311
+
+- **Chácara / Sítio no Oliveira em Tijucas/SC**
+  - 💰 R$ 259.000 | 📐 2532 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-sitio-no-oliveira-em-tijucas-sc-993787545
+
+- **Sítio bem estruturado em Tijucas**
+  - 💰 R$ 2.900.000 | 📐 99471 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-bem-estruturado-em-tijucas-1085914092
+
+- **Terreno**
+  - 💰 R$ 700.000 | 📐 500 m²
+  - 📍 Santa Bárbara — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1495806052
+
+- **Lote em Rua Salomão De Souza - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 650.000 | 📐 850 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-salomao-de-souza-praia-do-rosa-imbituba-sc-1495803790
+
+- **Lote em Rua José Corrêa - Village - Imbituba/SC**
+  - 💰 R$ 385.000 | 📐 350 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-jose-correa-village-imbituba-sc-1495803762
+
+- **Lote em Rua Antônio Bittencourt Capanema 858 - Itapeva - Imaruí/SC**
+  - 💰 R$ 651.000 | 📐 30000 m²
+  - 📍 Centro — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-bittencourt-capanema-858-itapeva-imarui-sc-1495802993
+
+- **Lote em Rua 41568 - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 320.000 | 📐 323 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-41568-praia-do-rosa-imbituba-sc-1495803005
+
+- **Lote em Rua Do Pico Da Tribo - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 850.000 | 📐 818 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-do-pico-da-tribo-praia-do-rosa-imbituba-sc-1495802849
+
+- **Lote em Área Rural - Moura - Canelinha/SC**
+  - 💰 R$ 668.090 | 📐 63000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-area-rural-moura-canelinha-sc-1495802477
+
+- **Lote em Rua Siderópolis - Vila Nova - Imbituba/SC**
+  - 💰 R$ 380.000 | 📐 356 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-sideropolis-vila-nova-imbituba-sc-1495801725
+
+- **Lote em Estrada Geral do Rosa - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 3.000.000 | 📐 4500 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-estrada-geral-do-rosa-ibiraquera-imbituba-sc-1495801722
+
+- **Lote em Geral Praia do Rosa - Araçatuba - Imbituba/SC**
+  - 💰 R$ 535.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-geral-praia-do-rosa-aracatuba-imbituba-sc-1495801450
+
+- **Terreno de 611 m² Bela Vista - Palhoça**
+  - 💰 R$ 375.000 | 📐 611 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-611-m-bela-vista-palhoca-1495797501
+
+- **Sítio para Venda em Paulo Lopes, Morro do Freitas, 1 dormitório, 1 suí**
+  - 💰 R$ 380.000 | 📐 70 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-paulo-lopes-morro-do-freitas-1-dormitorio-1-suite-1-banheiro-1-va-1495788793
+
+- **OPORTUNIDADE TERRENO BLUE CONDOMÍNIO**
+  - 💰 R$ 229.900 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-blue-condominio-1495780761
+
+- **TERRENO PARA LOCAÇÃO NO NOVA PALHOÇA  PALHOÇA/SC**
+  - 💰 R$ 2.250 | 📐 300 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-no-nova-palhoca-palhoca-sc-1495775659
+
+- **TERRENO À VENDA EM SANTO AMARO DA IMPERATRIZ/SC**
+  - 💰 R$ 220.000 | 📐 6700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-em-santo-amaro-da-imperatriz-sc-1495775187
+
+- **Chácara / sítio com 3 quartos à venda na Rio Figueira, 1, Centro, Timb**
+  - 💰 R$ 550.000 | 📐 30000 m²
+  - 📍 Centro — Timbé do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-timbe-do-sul-centro-30000m2-RS550000/id-41795080/
+
