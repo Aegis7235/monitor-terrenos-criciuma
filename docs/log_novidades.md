@@ -71275,3 +71275,41 @@
   - 📍 Pachecos — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-pacheco-palhoca-sc-1495917378
 
+
+## 🆕 7 novos anúncios — 22/04/2026 10:32
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1496003232
+
+- **Terreno 390m² na Praia do Sol - Escriturado e Pronto para Financiar**
+  - 💰 R$ 200.000 | 📐 390 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-390m-na-praia-do-sol-escriturado-e-pronto-para-financiar-1496000575
+
+- **Dois Lotes Juntos a venda na Guarajuba em Balneário Gaivota**
+  - 💰 R$ 135.000 | 📐 576 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-lotes-juntos-a-venda-na-guarajuba-em-balneario-gaivota-1496000025
+
+- **Terreno a 650mt do mar no Areias Claras em Balneário Gaivota, Pronto p**
+  - 💰 R$ 97.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-650mt-do-mar-no-areias-claras-em-balneario-gaivota-pronto-para-construir-1496000017
+
+- **Terreno Frente Lago em loteamento Planejado, Balneário Gaivota**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-lago-em-loteamento-planejado-balneario-gaivota-1495999982
+
+- **Terreno para investimento a 700mt do mar**
+  - 💰 R$ 77.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-a-700mt-do-mar-1495999383
+
+- **Terreno a 600mt do mar no Areias Claras, Frente Norte em Balneário Gai**
+  - 💰 R$ 110.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-600mt-do-mar-no-areias-claras-frente-norte-em-balneario-gaivota-1495997916
+
