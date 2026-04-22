@@ -71313,3 +71313,106 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-600mt-do-mar-no-areias-claras-frente-norte-em-balneario-gaivota-1495997916
 
+
+## 🆕 20 novos anúncios — 22/04/2026 16:22
+
+- **Terreno em Governador Celso Ramos -Areias do meio (319 M2)**
+  - 💰 R$ 200.000 | 📐 319 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-governador-celso-ramos-areias-do-meio-319-m2-1496076783
+
+- **Alugo sítio com vários atrativos inclusos.**
+  - 💰 R$ 1.450 | 📐 2000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alugo-sitio-com-varios-atrativos-inclusos-1496068229
+
+- **Tereno 12x24**
+  - 💰 R$ 96.999 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tereno-12x24-1496056567
+
+- **Terreno no São Defende Criciuma- aceito veículo**
+  - 💰 R$ 30.000 | 📐 360 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-sao-defende-criciuma-aceito-veiculo-1496055757
+
+- **Terreno industrial com 5672 m² na rodovia 282**
+  - 💰 R$ 5.672.000 | 📐 5672 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-com-5672-m-na-rodovia-282-1427130915
+
+- **Lote Balneário Arroio do Silva/Guairacá**
+  - 💰 R$ 110.000 | 📐 ? m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-balneario-arroio-do-silva-guairaca-1496048656
+
+- **Lote no Costão do Santinho (golfe) 878m2 - documentação ok.**
+  - 💰 R$ 690.000 | 📐 878 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-costao-do-santinho-golfe-878m2-documentacao-ok-1496041928
+
+- **Terreno comercial e industrial.**
+  - 💰 R$ 3.000.000 | 📐 3900 m²
+  - 📍 Areias — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-e-industrial-1496041524
+
+- **Sítio**
+  - 💰 R$ 290.000 | 📐 10000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1496040026
+
+- **Terreno 196 m² - (Bairro bom retiro) Paulo Lopes - SC**
+  - 💰 R$ 110.000 | 📐 196 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-196-m--bairro-bom-retiro-paulo-lopes-sc-1496039465
+
+- **Lote em santo amaro**
+  - 💰 R$ 125.000 | 📐 374 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-santo-amaro-1496028154
+
+- **Terreno em anitapolis**
+  - 💰 R$ 60.000 | 📐 1300 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-anitapolis-1496023057
+
+- **Vendo ótimo terreno**
+  - 💰 R$ 465.000 | 📐 319 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-otimo-terreno-1496022110
+
+- **Sítio em Três Riachos LINDO**
+  - 💰 R$ 850.000 | 📐 7000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-tres-riachos-lindo-1496020888
+
+- **LOCALIZAÇÃO PRIVILEGIADA NO ESTREITO**
+  - 💰 R$ 660.000 | 📐 283 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/localizacao-privilegiada-no-estreito-1472815557
+
+- **Viabilidade Comercial a Residencial 04 pavimentos**
+  - 💰 R$ 2.980.000 | 📐 1480 m²
+  - 📍 Fazenda Santo Antônio — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/viabilidade-comercial-a-residencial-04-pavimentos-1413032074
+
+- **Terreno Praia de Fora pé na areia.**
+  - 💰 R$ 1.200.000 | 📐 300 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-de-fora-pe-na-areia-1496013929
+
+- **Vendo**
+  - 💰 R$ 135.000 | 📐 527 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-1496009358
+
+- **Terreno 12.250 m2-Campeche próximo da Av Pqn Príncipe e Morro do Lampi**
+  - 💰 R$ 2.500.000 | 📐 12250 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-12-250-m2-campeche-proximo-da-av-pqn-principe-e-morro-do-lampiao-1328989089
+
+- **Terreno loteamento Quinta dos Açores - Garopaba**
+  - 💰 R$ 435.000 | 📐 250 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-quinta-dos-acores-garopaba-1495269815
+
