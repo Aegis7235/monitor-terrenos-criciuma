@@ -71227,3 +71227,51 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-piscina-com-3-7-hectares-em-localizacao-privilegiada-1414024644
 
+
+## 🆕 9 novos anúncios — 22/04/2026 05:38
+
+- **TERRENO COM GALPÃO COMERCIAL NA ENTRADA DA PRAIA DA FERRUGEM**
+  - 💰 R$ 900.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-galpao-comercial-na-entrada-da-praia-da-ferrugem-1495980197
+
+- **Terreno de Esquina pronto para Construção à venda no Loteamento Parque**
+  - 💰 R$ 145.000 | 📐 406 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-pronto-para-construcao-a-venda-no-loteamento-parque-das-rosas-primeir-1495974733
+
+- **Chácara (condominio fechado) - 4400m2**
+  - 💰 R$ 620.000 | 📐 4400 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-condominio-fechado-4400m2-1495972354
+
+- **Terreno**
+  - 💰 R$ 150.000 | 📐 150 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1495968343
+
+- **Venda de lotes Imarui**
+  - 💰 R$ 150.000 | 📐 ? m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-lotes-imarui-1444730645
+
+- **Sítio é chácara com açude**
+  - 💰 R$ 199.000 | 📐 900000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-e-chacara-com-acude-1465997402
+
+- **Terreno com natureza no Sertão - Ideal para sítio ou descanso, pronto **
+  - 💰 R$ 180.000 | 📐 600 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-natureza-no-sertao-ideal-para-sitio-ou-descanso-pronto-pra-construir-1495941077
+
+- **Vende-se Terreno Industrial - SC 390**
+  - 💰 R$ 280.000 | 📐 1342 m²
+  - 📍  — Orleans
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-industrial-sc-390-1495935578
+
+- **Terreno à venda - Pacheco | Palhoça/SC**
+  - 💰 R$ 90.000 | 📐 90 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-pacheco-palhoca-sc-1495917378
+
