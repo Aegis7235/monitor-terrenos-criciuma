@@ -71416,3 +71416,186 @@
   - 📍  — Garopaba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-quinta-dos-acores-garopaba-1495269815
 
+
+## 🆕 36 novos anúncios — 22/04/2026 22:04
+
+- **Vendo ou troco Sitio em Anitapolis sc por casa ou apartamento na palho**
+  - 💰 R$ 1.300.000 | 📐 20000 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-sitio-em-anitapolis-sc-por-casa-ou-apartamento-na-palhoca-ou-norte-da-ilha-1496179803
+
+- **LOTE NO LANÇAMENTO DELTAVILLE SUNSET**
+  - 💰 R$ 304.000 | 📐 180 m²
+  - 📍 Universitário — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-lancamento-deltaville-sunset-1496176245
+
+- **Mini chácara Urbana junto de praias e cidade de Torres e Passo de Torr**
+  - 💰 R$ 177.000 | 📐 900 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/mini-chacara-urbana-junto-de-praias-e-cidade-de-torres-e-passo-de-torres-1496176175
+
+- **Chácara com linda Vista em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 370.000 | 📐 2500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-linda-vista-em-santo-amaro-da-imperatriz-sc-1496172452
+
+- **LOTE NO DELTAVILLE**
+  - 💰 R$ 247.000 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-deltaville-1496171685
+
+- **Sitios com escritura, riacho e pastagem, roximo da praça de Angelina -**
+  - 💰 R$ 350.000 | 📐 40000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitios-com-escritura-riacho-e-pastagem-roximo-da-praca-de-angelina-sc-1496170085
+
+- **Terreno com 195m2 em condomínio fechado no bairro planejado DeltaVille**
+  - 💰 R$ 290.000 | 📐 195 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-195m2-em-condominio-fechado-no-bairro-planejado-deltaville-em-biguacu-sc-1496169858
+
+- **BARBADA LOTE NO BLUE 235 MIL  DELTAVILLE**
+  - 💰 R$ 235.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-lote-no-blue-235-mil-deltaville-1496168717
+
+- **Sitio com linda vista!**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-1496168018
+
+- **BELO SITIO COM LINDA VISTA!**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-com-linda-vista-1496165394
+
+- **Lotes em Condomínio Aeronáutico em Gov Celso Ramos**
+  - 💰 R$ 682.060 | 📐 134000 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-em-condominio-aeronautico-em-gov-celso-ramos-1496159198
+
+- **Terreno 7900m² com Boa Localização - Pedra Branca - BRN**
+  - 💰 R$ 12.000.000 | 📐 7900 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-7900m-com-boa-localizacao-pedra-branca-brn-1496155884
+
+- **Terreno residencial para venda em São Sebastião , 68m²**
+  - 💰 R$ 240.000 | 📐 68 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-para-venda-em-sao-sebastiao-68m-1496154664
+
+- **Terreno com vista para Mar e Lagoa - Garopaba - SC**
+  - 💰 R$ 470.000 | 📐 1500 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-mar-e-lagoa-garopaba-sc-1496153731
+
+- **Chácara com lago privativo!**
+  - 💰 R$ 170.000 | 📐 2359 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-lago-privativo-1496153544
+
+- **Terreno residencial para venda em Guarda do Cubatão , 300m²**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-para-venda-em-guarda-do-cubatao-300m-1496152852
+
+- **Belo sitio em Santo Amaro da Imperatriz!**
+  - 💰 R$ 1.400.000 | 📐 27000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-santo-amaro-da-imperatriz-1496150737
+
+- **TERRENO À VENDA - BAIRRO SANTO ANTÔNIO**
+  - 💰 R$ 200.000 | 📐 351 m²
+  - 📍 Santo Antônio — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-bairro-santo-antonio-1496148609
+
+- **Terreno 7900m² com Boa Localização - Pedra Branca - PLC**
+  - 💰 R$ 12.000.000 | 📐 7900 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-7900m-com-boa-localizacao-pedra-branca-plc-1496146240
+
+- **TERRENO PROXIMO A PRAIA GRANDE 360M NO LOTEAMENTO MARIANA EM GPVERNADO**
+  - 💰 R$ 450.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-praia-grande-360m-no-loteamento-mariana-em-gpvernador-celso-ramos-1496128613
+
+- **TERRENO À VENDA - BAIRRO SÃO TOMÁS em IMBITUBA/SC**
+  - 💰 R$ 110.000 | 📐 324 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-bairro-sao-tomas-em-imbituba-sc-1496126626
+
+- **LOTE EM LOTEAMENTO NOVO EM TUBARÃO**
+  - 💰 R$ 150.000 | 📐 252 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-loteamento-novo-em-tubarao-1496122554
+
+- **Terreno com 389 m² no bairro Fabrício em Santo Amaro da Imperatriz - S**
+  - 💰 R$ 149.000 | 📐 389 m²
+  - 📍 Fabrício — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-389-m-no-bairro-fabricio-em-santo-amaro-da-imperatriz-sc-1496117461
+
+- **Vende-se terreno na chácara adventos**
+  - 💰 R$ 250.000 | 📐 711 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-na-chacara-adventos-1496110718
+
+- **Oportunidade incrível - terreno com duas entradas na Barra do Aririú 1**
+  - 💰 R$ 822.000 | 📐 10002 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-incrivel-terreno-com-duas-entradas-na-barra-do-aririu-1000m2-1496107560
+
+- **Imóvel para venda tem 150 metros quadrados com 3 quartos em João Paulo**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-150-metros-quadrados-com-3-quartos-em-joao-paulo-florianopolis-s-1496106044
+
+- **Chácara com lago privativo!**
+  - 💰 R$ 230.000 | 📐 4021 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-lago-privativo-1496104375
+
+- **Frente Norte no Village Dunas  Posição Nobre a Metros do Mar**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/frente-norte-no-village-dunas-posicao-nobre-a-metros-do-mar-1496104068
+
+- **375m² no Turimar  Frente Mar e Valorização**
+  - 💰 R$ 205.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/375m-no-turimar-frente-mar-e-valorizacao-1496103732
+
+- **Chácara com 1 quarto à Venda - Águas Mornas**
+  - 💰 R$ 425.000 | 📐 50 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-1-quarto-a-venda-aguas-mornas-1496103314
+
+- **PRAIA DA PINHEIRA 150m do mar**
+  - 💰 R$ 320.000 | 📐 200 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/praia-da-pinheira-150m-do-mar-1496095238
+
+- **Terreno próximo ao Termas Park Hotel**
+  - 💰 R$ 1.190.000 | 📐 919 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-ao-termas-park-hotel-1496085963
+
+- **Lote Termas do Gravatal**
+  - 💰 R$ 2.890.000 | 📐 2160 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-termas-do-gravatal-1496082880
+
+- **Lote de Esquina Condomínio Green Park**
+  - 💰 R$ 455.000 | 📐 609 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-condominio-green-park-1496082712
+
+- **Green Park**
+  - 💰 R$ 390.000 | 📐 655 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/green-park-1496082301
+
+- **Lote Trevo**
+  - 💰 R$ 890.000 | 📐 648 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-trevo-1496081915
+
