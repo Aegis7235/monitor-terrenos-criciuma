@@ -71599,3 +71599,246 @@
   - 📍  — Gravatal
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-trevo-1496081915
 
+
+## 🆕 48 novos anúncios — 23/04/2026 05:46
+
+- **Terreno a 700 mt do mar Pronto pra Construir, próximo do centro**
+  - 💰 R$ 89.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-700-mt-do-mar-pronto-pra-construir-proximo-do-centro-1496258657
+
+- **Venda-Terreno-Imaruí-Cangueri**
+  - 💰 R$ 800.000 | 📐 8651 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imarui-cangueri-1496250765
+
+- **Terreno à venda, 300 m² por R$ 180.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-180-000-bellatorres-passo-de-torres-sc-1496250226
+
+- **Terreno para Venda em São José, Ponta de Baixo**
+  - 💰 R$ 2.700.000 | 📐 4214 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-sao-jose-ponta-de-baixo-1496247805
+
+- **Terreno à venda, 528 m² por R$ 1.200.000,00 - Ingleses - Florianópolis**
+  - 💰 R$ 1.200.000 | 📐 528 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-528-m-por-r-1-200-000-00-ingleses-florianopolis-sc-1496246749
+
+- **Terreno à venda, 1170 m² por R$ 16.000.000,00 - Canasvieiras - Florian**
+  - 💰 R$ 16.000.000 | 📐 1170 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1170-m-por-r-16-000-000-00-canasvieiras-florianopolis-sc-1496246707
+
+- **Terreno à venda, 662 m² por R$ 1.575.000,00 - Cacupé - Florianópolis/S**
+  - 💰 R$ 1.575.000 | 📐 662 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-662-m-por-r-1-575-000-00-cacupe-florianopolis-sc-1496246315
+
+- **Terreno à venda, 520 m² por R$ 2.120.000,00 - Jurerê - Florianópolis/S**
+  - 💰 R$ 2.120.000 | 📐 520 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-520-m-por-r-2-120-000-00-jurere-florianopolis-sc-1496246304
+
+- **Terreno com 4.214,04m², VISTA permanente para o MAR | VIABILIDADE APRO**
+  - 💰 R$ 2.700.000 | 📐 4214 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-4-214-04m-vista-permanente-para-o-mar-viabilidade-aprovada-1496245647
+
+- **Terreno à venda, 1910 m² por R$ 1.690.000 - João Paulo - Florianópolis**
+  - 💰 R$ 1.690.000 | 📐 1910 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1910-m-por-r-1-690-000-joao-paulo-florianopolis-sc-1496245388
+
+- **Sítio para Venda em Angelina, Centro, 2 dormitórios, 1 banheiro, 2 vag**
+  - 💰 R$ 320.000 | 📐 150 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-angelina-centro-2-dormitorios-1-banheiro-2-vagas-1496245351
+
+- **Terreno para Venda em Florianópolis, Barra Da Lagoa**
+  - 💰 R$ 3.900.000 | 📐 3519 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-barra-da-lagoa-1496241778
+
+- **Vendo direto c/ proprietário terreno 568m2 no Amoraeville em Jurerê In**
+  - 💰 R$ 3.650.000 | 📐 568 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-direto-c-proprietario-terreno-568m2-no-amoraeville-em-jurere-internacional-1496240722
+
+- **Terreno para Venda em Florianópolis, Santo Antônio De Lisboa**
+  - 💰 R$ 980.000 | 📐 2276 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santo-antonio-de-lisboa-1496240887
+
+- **Terreno para Venda em Florianópolis, Campeche**
+  - 💰 R$ 1.450.000 | 📐 1161 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-campeche-1496239937
+
+- **Terreno 7900m² com Boa Localização - Pedra Branca - EST**
+  - 💰 R$ 12.000.000 | 📐 7900 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-7900m-com-boa-localizacao-pedra-branca-est-1496238860
+
+- **Terreno para Venda em Florianópolis, Lagoa Da Conceição**
+  - 💰 R$ 7.500.000 | 📐 2911 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-lagoa-da-conceicao-1496238723
+
+- **Terreno para Venda em Florianópolis, Capoeiras**
+  - 💰 R$ 1.800.000 | 📐 1450 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-capoeiras-1496238625
+
+- **Sítio com 4 dormitórios à venda, 30000 m² por R$ 840.000,00 - Betânia **
+  - 💰 R$ 840.000 | 📐 200 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-4-dormitorios-a-venda-30000-m-por-r-840-000-00-betania-angelina-sc-1496237290
+
+- **terreno em sideropolos 2.600 metros**
+  - 💰 R$ 280.000 | 📐 2600 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sideropolos-2-600-metros-1496233211
+
+- **Terreno 600m² - Pedra Branca - mrt**
+  - 💰 R$ 3.400.000 | 📐 600 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-600m-pedra-branca-mrt-1496232766
+
+- **Terreno Bairro Jardim Atlântico - Florianópolis**
+  - 💰 R$ 440.000 | 📐 360 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-jardim-atlantico-florianopolis-1496232568
+
+- **Terreno águas mornas**
+  - 💰 R$ 110.000 | 📐 220 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-aguas-mornas-1496229985
+
+- **Terreno Comercial de 19.499 m² para Alugar em São José.**
+  - 💰 R$ 90.000 | 📐 19499 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-de-19-499-m-para-alugar-em-sao-jose-1496229697
+
+- **Terreno residencial para venda em Guarda do Cubatão , 300m²**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-para-venda-em-guarda-do-cubatao-300m-1496228155
+
+- **Sítio à venda na Colônia Santana - São José**
+  - 💰 R$ 180.000 | 📐 1800 m²
+  - 📍 Colônia Santana — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-na-colonia-santana-sao-jose-1496227361
+
+- **Terreno à venda em Treviso - Rio Pio/SC**
+  - 💰 R$ 400.000 | 📐 62500 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-treviso-rio-pio-sc-1496227205
+
+- **Terreno 360m² - Pedra Branca**
+  - 💰 R$ 650.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-pedra-branca-1496222128
+
+- **Terreno 360m² - Pedra Branca**
+  - 💰 R$ 650.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-pedra-branca-1496221526
+
+- **Terreno 360m² - Pedra Branca**
+  - 💰 R$ 650.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-pedra-branca-1496219682
+
+- **Sítio São Bonifácio**
+  - 💰 R$ 250.000 | 📐 1000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-sao-bonifacio-1496219003
+
+- **Terreno 7900m² com Boa Localização - Pedra Branca**
+  - 💰 R$ 12.000.000 | 📐 7900 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-7900m-com-boa-localizacao-pedra-branca-1496218179
+
+- **Pronto para construir no Santo Antônio de Pádua**
+  - 💰 R$ 107.000 | 📐 270 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/pronto-para-construir-no-santo-antonio-de-padua-1496212642
+
+- **Terreno Jardim América Passo de Torres**
+  - 💰 R$ 87.100 | 📐 205 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jardim-america-passo-de-torres-1496210905
+
+- **Terreno no Lisboa III -Forquilhas - São José - SC**
+  - 💰 R$ 300.000 | 📐 263 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-lisboa-iii-forquilhas-sao-jose-sc-1496201607
+
+- **Lote no Bairro São Jose**
+  - 💰 R$ 169.000 | 📐 360 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-bairro-sao-jose-1496198321
+
+- **Terreno em canelinha**
+  - 💰 R$ 165.000 | 📐 450 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-canelinha-1496197880
+
+- **Terreno frente Norte bairro Raizeira em Sombrio**
+  - 💰 R$ 190.000 | 📐 570 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-norte-bairro-raizeira-em-sombrio-1496197533
+
+- **3 LOTES A VENDA NO DEHON**
+  - 💰 R$ 750.000 | 📐 1754 m²
+  - 📍 Dehon — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/3-lotes-a-venda-no-dehon-1496196318
+
+- **Terreno no Loteamento Quinta dos Guimarães - Imbituba/SC**
+  - 💰 R$ 191.500 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-quinta-dos-guimaraes-imbituba-sc-1496195086
+
+- **Terreno escriturado próximo ao centro**
+  - 💰 R$ 120.000 | 📐 138570 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-proximo-ao-centro-1496195054
+
+- **Terreno 600m² - Pedra Branca - imv**
+  - 💰 R$ 3.400.000 | 📐 600 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-600m-pedra-branca-imv-1496192843
+
+- **Terreno no Bairro Itapuã - Balneário Gaivota**
+  - 💰 R$ 550.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-itapua-balneario-gaivota-1496190102
+
+- **Terreno 600 M2; em praia de Santa Catarina com muita área verde**
+  - 💰 R$ 118.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-600-m2-em-praia-de-santa-catarina-com-muita-area-verde-1496181607
+
+- **Imóvel com padrão construtivo diferenciado, pronto para morar.**
+  - 💰 R$ 790.000 | 📐 ? m²
+  - 📍 Ouro Negro — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-forquilhinha-ouro-negro-RS790000/id-41826618/
+
+- **Casa com 4 quartos à venda no Ouro Negro, Forquilhinha**
+  - 💰 R$ 890.000 | 📐 ? m²
+  - 📍 Ouro Negro — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-forquilhinha-ouro-negro-RS890000/id-41826640/
+
+- **Casa com 3 quartos à venda no Nova York, Forquilhinha**
+  - 💰 R$ 550.000 | 📐 155 m²
+  - 📍 Nova York — Forquilhinha
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-forquilhinha-nova-york-RS550000/id-41826625/
+
+- **Casa com 2 quartos à venda na Vila São Jorge, Siderópolis**
+  - 💰 R$ 195.000 | 📐 ? m²
+  - 📍 Vila São Jorge — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-sideropolis-vila-sao-jorge-RS195000/id-41826617/
+
