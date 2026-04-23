@@ -71895,3 +71895,221 @@
   - 📍  — Içara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-2-dormitorios-a-venda-15442-90-m-por-r-750-000-00-vila-nova-icara-santa-c-1496283448
 
+
+## 🆕 43 novos anúncios — 23/04/2026 16:56
+
+- **Terreno bem localizado no Jurerê leste**
+  - 💰 R$ 4.000.000 | 📐 12000 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bem-localizado-no-jurere-leste-1496373273
+
+- **Sitio com escritura em Águas Mornas - SC**
+  - 💰 R$ 380.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-em-aguas-mornas-sc-1496370893
+
+- **Chácara em São Pedro de Alcântara - SC**
+  - 💰 R$ 230.000 | 📐 3000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-sao-pedro-de-alcantara-sc-1496370088
+
+- **Chácara completa em Rancho Queimado - SC**
+  - 💰 R$ 750.000 | 📐 200 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-completa-em-rancho-queimado-sc-1496368897
+
+- **OPORTUNIDADE!! Terreno COM VISTA PARA O MAR DA GAMBOA E GUARDA DO EMBA**
+  - 💰 R$ 2.200.000 | 📐 20996 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-com-vista-para-o-mar-da-gamboa-e-guarda-do-embau-para-venda-paulo-1445811055
+
+- **Terreno 3,6 hectares - Santo Amaro da Imperatriz**
+  - 💰 R$ 4.750.000 | 📐 36500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-3-6-hectares-santo-amaro-da-imperatriz-841026200
+
+- **Sítio à venda com , 260.084m² em Área Rural de Biguaçu Biguaçu**
+  - 💰 R$ 920.000 | 📐 260084 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-com-260-084m-em-area-rural-de-biguacu-biguacu-1475799341
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 700.000 | 📐 38000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1496357341
+
+- **Sítio em Alfredo Wagner - SC**
+  - 💰 R$ 277.000 | 📐 22000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-sc-1496352048
+
+- **Terreno em Alto Biguaçu, SC**
+  - 💰 R$ 225.000 | 📐 360 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-alto-biguacu-sc-1496349223
+
+- **Lote/Terreno à venda com975 m² na Praia do Campeche - Florianópolis - **
+  - 💰 R$ 1.870.000 | 📐 975 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-a-venda-com975-m-na-praia-do-campeche-florianopolis-sc-1496351446
+
+- **Lote no Condomínio Santa Barbara - Antônio Carlos**
+  - 💰 R$ 140.000 | 📐 509 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-condominio-santa-barbara-antonio-carlos-1496351462
+
+- **Vendo ou Troco Sítio**
+  - 💰 R$ 500.000 | 📐 20000 m²
+  - 📍 Sorocaba do Sul — Sorocaba do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-sitio-1496294548
+
+- **Terreno à venda, Centro - Antônio Carlos/SC**
+  - 💰 R$ 350.000 | 📐 420 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-centro-antonio-carlos-sc-1496351182
+
+- **Lote à venda, Centro - Antônio Carlos/SC**
+  - 💰 R$ 360.000 | 📐 448 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-centro-antonio-carlos-sc-1496348532
+
+- **Chácara com cachoeira em São Bonifácio/SC**
+  - 💰 R$ 850.000 | 📐 30000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-cachoeira-em-sao-bonifacio-sc-1446334354
+
+- **Sítio à venda em Garopaba - Ressacada**
+  - 💰 R$ 800.000 | 📐 100 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-garopaba-ressacada-1472630835
+
+- **Condominio Floreville!!**
+  - 💰 R$ 450.000 | 📐 500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-floreville-1496345096
+
+- **Terreno à venda no bairro Centro - Rancho Queimado/SC**
+  - 💰 R$ 5.500.000 | 📐 130000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-centro-rancho-queimado-sc-1496341398
+
+- **Terreno à venda em Garopaba - SC**
+  - 💰 R$ 399.000 | 📐 368 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-1496341396
+
+- **Terreno em meio a natureza**
+  - 💰 R$ 670.000 | 📐 1528300 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-meio-a-natureza-1496341053
+
+- **Terreno à Venda  Campestre, Tubarão/SC**
+  - 💰 R$ 115.000 | 📐 331 m²
+  - 📍 Campestre — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-campestre-tubarao-sc-1496340905
+
+- **Terreno à venda Ambrósio**
+  - 💰 R$ 400.000 | 📐 320 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-ambrosio-1496340140
+
+- **Sítio Rural à Venda em Antônio Carlos - Bairro Usina | 30.000 m²**
+  - 💰 R$ 980.000 | 📐 30000 m²
+  - 📍 Usina — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-rural-a-venda-em-antonio-carlos-bairro-usina-30-000-m-1496338729
+
+- **Terreno plano à venda no bairro Pedra Branca**
+  - 💰 R$ 650.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-a-venda-no-bairro-pedra-branca-1496338313
+
+- **LINDO TERRENO NA  VARGEM GRANDE COM 60.000M² COM PLANTA APROVADA**
+  - 💰 R$ 400.000 | 📐 60000 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-na-vargem-grande-com-60-000m-com-planta-aprovada-1496334192
+
+- **Oportunidade SITIO/POUSADA**
+  - 💰 R$ 750.000 | 📐 5000 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-sitio-pousada-1496304713
+
+- **Terreno em Imbituba-SC, bairro Alto Arroio**
+  - 💰 R$ 139.000 | 📐 324 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-sc-bairro-alto-arroio-1496322173
+
+- **Terreno de esquina 420m**
+  - 💰 R$ 79.000 | 📐 420 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-420m-1496318777
+
+- **Vendo sitio**
+  - 💰 R$ 300.000 | 📐 10000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-1472229313
+
+- **Lote na Açucena**
+  - 💰 R$ 100.000 | 📐 540 m²
+  - 📍  — Braço do Norte
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-acucena-1496302409
+
+- **Vendo terreno - Caputera**
+  - 💰 R$ 80.000 | 📐 255 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-caputera-1496293764
+
+- **Terreno no Loteamento Reserva do Lago**
+  - 💰 R$ 300.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-reserva-do-lago-1496290203
+
+- **Terreno para venda tem 300 metros quadrados em Pagani - Palhoça - SC**
+  - 💰 R$ 520.000 | 📐 300 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-tem-300-metros-quadrados-em-pagani-palhoca-sc-1496288942
+
+- **Terreno à venda, 800,00 m² por R$ 480.000,00 - Argentina - Criciúma/SC**
+  - 💰 R$ 480.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-800-00-m-por-r-480-000-00-argentina-criciuma-sc-1496285323
+
+- **Terreno no Loteamento Villagio à venda, 360,60 m² por R$ 209.000,00 - **
+  - 💰 R$ 209.000 | 📐 361 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-villagio-a-venda-360-60-m-por-r-209-000-00-primeira-linha-cri-1496285041
+
+- **Sítio para chalés, com cachoeiras em Alfredo Wagner - SC.**
+  - 💰 R$ 600.000 | 📐 30000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-chales-com-cachoeiras-em-alfredo-wagner-sc-1496375662
+
+- **Chácara / sítio à venda na Vila Floresta, Criciúma**
+  - 💰 R$ 2.000.000 | 📐 5600 m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-criciuma-vila-floresta-5600m2-RS2000000/id-41846188/
+
+- **Chácara 3.620m² - Gaivota/Sombrio – Frente para Avenida e Fundos para **
+  - 💰 R$ 1.962.000 | 📐 100 m²
+  - 📍 Centro — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-4-quartos-com-garagem-sc-balneario-gaivota-centro-100m2-RS1962000/id-41841482/
+
+- **Casa com 3 quartos à venda em Graziela, Morro da Fumaça**
+  - 💰 R$ 250.000 | 📐 88 m²
+  - 📍 Graziela — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-morro-da-fumaca-graziela-360m2-RS250000/id-41846194/
+
+- **Casa com 3 quartos à venda no Palladini, Morro da Fumaça**
+  - 💰 R$ 390.000 | 📐 ? m²
+  - 📍 Palladini — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-morro-da-fumaca-palladini-RS390000/id-41846195/
+
+- **Casa à venda no Centro, Morro da Fumaça**
+  - 💰 R$ 350.000 | 📐 ? m²
+  - 📍 Centro — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-morro-da-fumaca-centro-RS350000/id-41846207/
+
+- **Casa com 3 quartos à venda no Centro, Maracajá**
+  - 💰 R$ 310.000 | 📐 137 m²
+  - 📍 Centro — Maracajá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-maracaja-centro-420m2-RS310000/id-41846185/
+
