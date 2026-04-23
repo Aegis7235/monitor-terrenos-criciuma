@@ -71842,3 +71842,56 @@
   - 📍 Vila São Jorge — Siderópolis
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-sideropolis-vila-sao-jorge-RS195000/id-41826617/
 
+
+## 🆕 10 novos anúncios — 23/04/2026 10:32
+
+- **Terreno no Loteamento Villagio à venda, 360,60 m² por R$ 209.000,00 - **
+  - 💰 R$ 209.000 | 📐 361 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-villagio-a-venda-360-60-m-por-r-209-000-00-primeira-linha-cri-1496283092
+
+- **Terreno com Vista Mar à Venda no Bom Abrigo - Localização Privilegiada**
+  - 💰 R$ 2.000.000 | 📐 448 m²
+  - 📍 Bom Abrigo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-mar-a-venda-no-bom-abrigo-localizacao-privilegiada-1496278412
+
+- **Terreno Pronto para Construir no Sambaqui ? Imbituba/SC**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-no-sambaqui-imbituba-sc-1496276372
+
+- **Terreno com 360m² no Altos da Pedra, no bairro Passa Vinte em Palhoça/**
+  - 💰 R$ 800.000 | 📐 360 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360m-no-altos-da-pedra-no-bairro-passa-vinte-em-palhoca-sc-1496276357
+
+- **Terreno à Venda - 2.100 m² - Pântano do Sul - Florianópolis/SC.**
+  - 💰 R$ 1.400.000 | 📐 2100 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2-100-m-pantano-do-sul-florianopolis-sc-1496276267
+
+- **Terreno em Ponta de Baixo, São José/SC**
+  - 💰 R$ 700.000 | 📐 397 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ponta-de-baixo-sao-jose-sc-1496273269
+
+- **Terreno Balneário Arroio do Silva**
+  - 💰 R$ 220.000 | 📐 325 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-balneario-arroio-do-silva-1496269011
+
+- **Terreno à venda em Florianópolis**
+  - 💰 R$ 380.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-florianopolis-1496264096
+
+- **Terreno à venda no Campeche**
+  - 💰 R$ 780.000 | 📐 275 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-campeche-1496263530
+
+- **Sítio com 2 dormitórios à venda, 15442,90 m² por R$ 750.000,00 - Vila **
+  - 💰 R$ 750.000 | 📐 70 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-2-dormitorios-a-venda-15442-90-m-por-r-750-000-00-vila-nova-icara-santa-c-1496283448
+
