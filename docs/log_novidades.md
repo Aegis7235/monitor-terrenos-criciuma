@@ -72113,3 +72113,226 @@
   - 📍 Centro — Maracajá
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-maracaja-centro-420m2-RS310000/id-41846185/
 
+
+## 🆕 44 novos anúncios — 23/04/2026 22:02
+
+- **Terreno Armação Florianópolis**
+  - 💰 R$ 370.000 | 📐 252 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-armacao-florianopolis-1496452255
+
+- **Vendo terreno em condomínio**
+  - 💰 R$ 150.000 | 📐 252 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-condominio-1496451189
+
+- **Terreno 5,5 Hectares no Laranjal**
+  - 💰 R$ 250.000 | 📐 55992 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-5-5-hectares-no-laranjal-1496449281
+
+- **Lote á venda - loteamento parque da chaminé - Área do lote: 409,13 m²**
+  - 💰 R$ 120.000 | 📐 409 m²
+  - 📍 Sangão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-loteamento-parque-da-chamine-area-do-lote-409-13-m-1496400374
+
+- **TERRENO DE ESQUINA PRONTO PARA CONSTRUIR**
+  - 💰 R$ 70.000 | 📐 324 m²
+  - 📍 Centro — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-pronto-para-construir-1496435960
+
+- **Terreno Com escritura- São José/SC**
+  - 💰 R$ 350.000 | 📐 396 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-sao-jose-sc-1496431882
+
+- **TERRENO A POUCOS METROS DO MAR NO ARROIO DO SILVA**
+  - 💰 R$ 80.000 | 📐 324 m²
+  - 📍 Centro — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-poucos-metros-do-mar-no-arroio-do-silva-1496428478
+
+- **Terreno Residencial em Bela Vista II**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍 Centro — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-bela-vista-ii-1496427806
+
+- **Terreno industrial, comercial, 1.222,75 m², Ao lado da Komeco, Furadin**
+  - 💰 R$ 1.473.000 | 📐 1222 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-comercial-1-222-75-m-ao-lado-da-komeco-furadinho-palhoca-sc-1496427767
+
+- **LOTE À VENDA EM CANELINHA  OPORTUNIDADE**
+  - 💰 R$ 259.000 | 📐 427 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-venda-em-canelinha-oportunidade-1496425807
+
+- **Terreno de 299m² a 5 Minutos da Praia | Centro de Garopaba**
+  - 💰 R$ 850.000 | 📐 299 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-299m-a-5-minutos-da-praia-centro-de-garopaba-1496424608
+
+- **Sitio proximo da praça de Anitápolis - SC**
+  - 💰 R$ 220.000 | 📐 20000 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-da-praca-de-anitapolis-sc-1496423407
+
+- **Terreno totalmente Plano**
+  - 💰 R$ 450.000 | 📐 396 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-totalmente-plano-1496422389
+
+- **TERRENOS EXCLUSIVOS A 85M DO MAR! 825m² (Esquina + Meio) no Coração do**
+  - 💰 R$ 1.500.000 | 📐 825 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-exclusivos-a-85m-do-mar-825m-esquina-meio-no-coracao-do-turimar-1496421824
+
+- **Belo sitio em Águas Mornas - SC**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-aguas-mornas-sc-1496421651
+
+- **Compro sítio em Antonio Carlos, São Pedro, Águas mornas, Santo Amaro**
+  - 💰 R$ 300.000 | 📐 20000000 m²
+  - 📍 Picadas do Sul — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/compro-sitio-em-antonio-carlos-sao-pedro-aguas-mornas-santo-amaro-1496420001
+
+- **Terreno em imbituba, oportunidade aceito troca**
+  - 💰 R$ 45.000 | 📐 250 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-oportunidade-aceito-troca-1496418312
+
+- **Sítio Diferenciado em Alfredo Wagner - Vista Única**
+  - 💰 R$ 850.000 | 📐 60000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-diferenciado-em-alfredo-wagner-vista-unica-1496411810
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 4.500.000 | 📐 250000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1496410486
+
+- **Sitio em Caldas da Imperatriz!**
+  - 💰 R$ 950.000 | 📐 28700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-caldas-da-imperatriz-1496409212
+
+- **TERRENO PARA LOCAÇÃO  VILA MOEMA**
+  - 💰 R$ 1.500 | 📐 420 m²
+  - 📍 Recife — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-vila-moema-1496407127
+
+- **CABANA À VENDA EM PRAIA GRANDE/SC  REGIÃO DOS CÂNIONS | PORTEIRA FECHA**
+  - 💰 R$ 850.000 | 📐 8000 m²
+  - 📍  — Praia Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/cabana-venda-em-praia-grande-sc-regiao-dos-canions-porteira-fechada-1496404400
+
+- **Terreno a venda em Garopaba - SC**
+  - 💰 R$ 300.000 | 📐 440 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-1496400511
+
+- **ÁREA RURAL RANCHO QUEIMADO NATUREZA, PRIVACIDADE E POTENCIAL PARA ECOT**
+  - 💰 R$ 310.000 | 📐 21940 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-rancho-queimado-natureza-privacidade-e-potencial-para-ecoturismo-1496399073
+
+- **lote no Carianos**
+  - 💰 R$ 530.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-carianos-1496398478
+
+- **Permuta de terreno por imóveis**
+  - 💰 R$ 1.800.000 | 📐 1414 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/permuta-de-terreno-por-imoveis-1496398398
+
+- **Sitio com casa e tres cabanas!**
+  - 💰 R$ 980.000 | 📐 11000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-e-tres-cabanas-1496397348
+
+- **Chácara com 1 quarto à Venda - Águas Mornas**
+  - 💰 R$ 425.000 | 📐 50 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-1-quarto-a-venda-aguas-mornas-1496395781
+
+- **Lote/Terreno à Venda - Garopaba**
+  - 💰 R$ 260.000 | 📐 300 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-a-venda-garopaba-1496394835
+
+- **Lote/Terreno, Rio Tavares - Florianópolis**
+  - 💰 R$ 1.820.000 | 📐 449 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-rio-tavares-florianopolis-1496394043
+
+- **Lote/Terreno, Cacupé - Florianópolis**
+  - 💰 R$ 1.690.000 | 📐 513 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-cacupe-florianopolis-1496392975
+
+- **Lote/Terreno - Garopaba**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-garopaba-1496392502
+
+- **Lote/Terreno para Locação, Praia Comprida - São José**
+  - 💰 R$ 20.000 | 📐 3340 m²
+  - 📍 Centro — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-locacao-praia-comprida-sao-jose-1496392421
+
+- **Sitio na Invernadinha em Rancho Queimado - SC**
+  - 💰 R$ 2.000.000 | 📐 150 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-na-invernadinha-em-rancho-queimado-sc-1496391226
+
+- **Casa laranjal**
+  - 💰 R$ 350.000 | 📐 1025 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-laranjal-1496391111
+
+- **Terreno localizado no bairro Janaína, ao lado do bairro Lagoa cortada,**
+  - 💰 R$ 79.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-no-bairro-janaina-ao-lado-do-bairro-lagoa-cortada-balneario-gaivota-1496390246
+
+- **Lote/Terreno à Venda, Campo D'una - Garopaba**
+  - 💰 R$ 271.350 | 📐 300 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-a-venda-campo-d-una-garopaba-1496388779
+
+- **Sitio com escritura em São Pedro de Alcântara - SC**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-em-sao-pedro-de-alcantara-sc-1496388590
+
+- **Chácara em Rancho Queimado - SC**
+  - 💰 R$ 650.000 | 📐 109 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-rancho-queimado-sc-1496383668
+
+- **Belo terreno em Caldas da Imperatriz - Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 340.000 | 📐 1000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-terreno-em-caldas-da-imperatriz-santo-amaro-da-imperatriz-sc-1496383019
+
+- **Terreno industrial em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 4.000.000 | 📐 8615 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-em-santo-amaro-da-imperatriz-sc-1496382789
+
+- **Belo sitio na divisa Angelina com Rancho Queimado 30.000m²**
+  - 💰 R$ 1.500.000 | 📐 30000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-na-divisa-angelina-com-rancho-queimado-30-000m-1276431421
+
+- **Lote proximo da praça de Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 160.000 | 📐 380 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-proximo-da-praca-de-santo-amaro-da-imperatriz-sc-1496378240
+
+- **Terreno à venda em Garopaba - SC**
+  - 💰 R$ 3.500.000 | 📐 9000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-1496378003
+
