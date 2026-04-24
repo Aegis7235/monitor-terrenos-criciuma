@@ -72845,3 +72845,186 @@
   - 📍 Forquilhas — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-forquilhas-680m2-1301908203
 
+
+## 🆕 36 novos anúncios — 24/04/2026 22:02
+
+- **Imóvel para venda com 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1496715413
+
+- **Sitio sao jose**
+  - 💰 R$ 1.100.000 | 📐 4602 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-sao-jose-1496692746
+
+- **Terreno à venda, 150 m² por R$ 269.000,00 - Bairro Deltaville - Biguaç**
+  - 💰 R$ 269.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-150-m-por-r-269-000-00-bairro-deltaville-biguacu-sc-1428103294
+
+- **OPORTUNIDADE Terreno com 360 m² no loteamento Alameda Cezanne Canasvie**
+  - 💰 R$ 460.000 | 📐 360 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-com-360-m-no-loteamento-alameda-cezanne-canasvieiras-1496707906
+
+- **Venda-Terreno-Imaruí-Aguas Mornas**
+  - 💰 R$ 260.000 | 📐 8712 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imarui-aguas-mornas-1496707879
+
+- **Terreno com 360 m² no loteaamento Alameda Cezanne praia de Canasvieira**
+  - 💰 R$ 680.000 | 📐 360 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360-m-no-loteaamento-alameda-cezanne-praia-de-canasvieiras-1496707848
+
+- **Lote Industrial de 1500mts em Condomínio Fechado - Biguaçu - SC**
+  - 💰 R$ 1.650.000 | 📐 1500 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-industrial-de-1500mts-em-condominio-fechado-biguacu-sc-1496705421
+
+- **Terreno à venda com 4.345m² e escritura pública**
+  - 💰 R$ 900.000 | 📐 4 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-4-345m-e-escritura-publica-1496696607
+
+- **Terreno para Venda, Imbituba / SC**
+  - 💰 R$ 260.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-imbituba-sc-1496692345
+
+- **Terreno 250 m Forquilhas**
+  - 💰 R$ 250.000 | 📐 250 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-250-m-forquilhas-1496691407
+
+- **Linda Sitio em Santo Amaro da Imperatriz!**
+  - 💰 R$ 2.800.000 | 📐 70000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-sitio-em-santo-amaro-da-imperatriz-1496684026
+
+- **Sitio com escritura publica em Águas Mornas - SC**
+  - 💰 R$ 220.000 | 📐 37000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-publica-em-aguas-mornas-sc-1496684035
+
+- **Imóvel de frente para a geral do Aririú - Palhoça - SC**
+  - 💰 R$ 8.000.000 | 📐 3400 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-de-frente-para-a-geral-do-aririu-palhoca-sc-1496683859
+
+- **Sitio proximo do Centro de Anitápolis - SC**
+  - 💰 R$ 220.000 | 📐 20000 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-do-centro-de-anitapolis-sc-1496683108
+
+- **Chácara na Vargem do Braço em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 380.000 | 📐 6000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-na-vargem-do-braco-em-santo-amaro-da-imperatriz-sc-1496682822
+
+- **Terreno 429m² com Boa Localização - Jardim Janaína - EST**
+  - 💰 R$ 330.000 | 📐 429 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-429m-com-boa-localizacao-jardim-janaina-est-1496675814
+
+- **Chácara proximo do Centro de Anitápolis - SC**
+  - 💰 R$ 460.000 | 📐 165 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-proximo-do-centro-de-anitapolis-sc-1496674178
+
+- **Terreno em Armazém sc com eucalipto**
+  - 💰 R$ 80.000 | 📐 18000 m²
+  - 📍  — Armazém
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-armazem-sc-com-eucalipto-1496673250
+
+- **Terreno Ponto para chalés - Serra SC (Anitápolis) ? Apenas 5km do cent**
+  - 💰 R$ 290.000 | 📐 20000 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ponto-para-chales-serra-sc-anitapolis-apenas-5km-do-centro-1468579764
+
+- **Terreno no  Centro de Rancho Queimado - SC**
+  - 💰 R$ 4.500.000 | 📐 8689 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-rancho-queimado-sc-1496665824
+
+- **Grande sitio em Águas Mornas - SC**
+  - 💰 R$ 1.500.000 | 📐 210000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/grande-sitio-em-aguas-mornas-sc-1496663830
+
+- **WE - BELO LOTE PLANO COM 320M² NO LOTEAMENTO LISBIOIA 3 EM SÃO JOSÉ**
+  - 💰 R$ 290.000 | 📐 320 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/we-belo-lote-plano-com-320m-no-loteamento-lisbioia-3-em-sao-jose-1496658972
+
+- **Terreno 429m² com Boa Localização - Jardim Janaína - JMS**
+  - 💰 R$ 330.000 | 📐 429 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-429m-com-boa-localizacao-jardim-janaina-jms-1496656085
+
+- **Terreno para venda com 320 metros quadrados em Forquilhas - São José -**
+  - 💰 R$ 290.000 | 📐 320 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-com-320-metros-quadrados-em-forquilhas-sao-jose-sc-1496655624
+
+- **Terreno Rancho Queimado**
+  - 💰 R$ 250.000 | 📐 22500 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rancho-queimado-1496653941
+
+- **Terreno 560m2**
+  - 💰 R$ 75.000 | 📐 560 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-560m2-1496650053
+
+- **Terreno urbano com 1.515m² com escritura pública, livre de enchente em**
+  - 💰 R$ 450.000 | 📐 1515 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-com-1-515m-com-escritura-publica-livre-de-enchente-em-santo-amaro-1496646955
+
+- **Terreno urbano a 600 m da praia**
+  - 💰 R$ 490.000 | 📐 700 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-a-600-m-da-praia-1496643389
+
+- **Terreno de 200m² em Imbituba/SC**
+  - 💰 R$ 190.000 | 📐 200 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-200m-em-imbituba-sc-1496635946
+
+- **Chácara em Ratones com casa histórica**
+  - 💰 R$ 3.400.000 | 📐 3160 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-ratones-com-casa-historica-1496635796
+
+- **Área para Chácara ou Sítio em Área Rural de Biguaçu- SC**
+  - 💰 R$ 159.000 | 📐 1200 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-para-chacara-ou-sitio-em-area-rural-de-biguacu-sc-1496634800
+
+- **Oportunidade de negócio pronto excelente faturamento e apoio estrutura**
+  - 💰 R$ 595.000 | 📐 70 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-negocio-pronto-excelente-faturamento-e-apoio-estruturado-1496119019
+
+- **Lote situado na Lagoa de Ibiraquera.**
+  - 💰 R$ 800.000 | 📐 800 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-situado-na-lagoa-de-ibiraquera-1496631728
+
+- **Lote  Deltaville Acqua condomínio fundo lago**
+  - 💰 R$ 350.000 | 📐 172 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-deltaville-acqua-condominio-fundo-lago-1496629347
+
+- **Terreno à venda, 360m² - Campeche - Florianópolis/SC**
+  - 💰 R$ 1.350.000 | 📐 360 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360m-campeche-florianopolis-sc-1496628796
+
+- **Terreno em loteamento à venda, 393m² - Campeche - Florianópolis/SC**
+  - 💰 R$ 1.298.000 | 📐 392 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-393m-campeche-florianopolis-sc-1496627538
+
