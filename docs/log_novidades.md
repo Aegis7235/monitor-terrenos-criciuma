@@ -72697,3 +72697,151 @@
   - 📍 Pântano do Sul — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1496521739
 
+
+## 🆕 29 novos anúncios — 24/04/2026 16:19
+
+- **Barbada! Lote de 360 m² . Pronto para construir! Com escritura pública**
+  - 💰 R$ 16.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-lote-de-360-m-pronto-para-construir-com-escritura-publica-1478513409
+
+- **Lote / Terreno 360m² - Biguaçu/ Tijuquinhas**
+  - 💰 R$ 32.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-360m-biguacu-tijuquinhas-1445241285
+
+- **Terreno à venda, 450m² - Lagoa da Conceição - Florianópolis/SC**
+  - 💰 R$ 2.150.000 | 📐 450 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450m-lagoa-da-conceicao-florianopolis-sc-1496625125
+
+- **Barbada!!!Barbada!!! Lindo lote em Biguaçu 450 m² próximo  ao centro**
+  - 💰 R$ 180.000 | 📐 450 m²
+  - 📍 Prado de Baixo — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-barbada-lindo-lote-em-biguacu-450-m-proximo-ao-centro-1428060951
+
+- **Facilidade de pagamento direto com a loteadora sem burocracia!**
+  - 💰 R$ 34.426 | 📐 306 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/facilidade-de-pagamento-direto-com-a-loteadora-sem-burocracia-1463198403
+
+- **Oportunidade Única: Lote Residencial/Comercial em São José!**
+  - 💰 R$ 225.000 | 📐 258 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-lote-residencial-comercial-em-sao-jose-1463081909
+
+- **Terreno 3 hectares com riacho em Anitápolis-SC**
+  - 💰 R$ 218.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-3-hectares-com-riacho-em-anitapolis-sc-1478416744
+
+- **Área rural à venda em Santa Rosa de Lima/SC**
+  - 💰 R$ 1.050.000 | 📐 696960 m²
+  - 📍 Centro — Santa Rosa de Lima
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-a-venda-em-santa-rosa-de-lima-sc-1496623911
+
+- **Chácara pronta para morar em Anitápolis-SC**
+  - 💰 R$ 348.000 | 📐 5000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-pronta-para-morar-em-anitapolis-sc-1395659227
+
+- **Oportunidade de terreno com 7.5 hectares em Santo Amaro da Imperatriz-**
+  - 💰 R$ 6.200.000 | 📐 75000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-terreno-com-7-5-hectares-em-santo-amaro-da-imperatriz-sc-1429479707
+
+- **Barbada! Pronto para construir! Lote com 375 m2  e com escritura públi**
+  - 💰 R$ 19.000 | 📐 375 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-pronto-para-construir-lote-com-375-m2-e-com-escritura-publica-1478513966
+
+- **Barbada! Lindo lote com 292 m²- área verde nos fundos no Loteamento Bo**
+  - 💰 R$ 132.000 | 📐 291 m²
+  - 📍 Colônia Santana — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-lindo-lote-com-292-m-area-verde-nos-fundos-no-loteamento-bosque-sao-jose-1478777092
+
+- **Barbada! LOTEAMENTO NOVO HORIZONTE 2- Lote com 200 m² , com escritura **
+  - 💰 R$ 215.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-loteamento-novo-horizonte-2-lote-com-200-m-com-escritura-publica-1478776570
+
+- **Oportunidade!Vendo Lote plano 250 m²/Loteamento Vivenda Açores-Sertao **
+  - 💰 R$ 249.000 | 📐 250 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-vendo-lote-plano-250-m-loteamento-vivenda-acores-sertao-do-maruim-sao-jose-1429724481
+
+- **Área à venda (65,53ha) - Águas Mornas/SC**
+  - 💰 R$ 2.599.001 | 📐 655353 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-a-venda-65-53ha-aguas-mornas-sc-1496620096
+
+- **Vendo imóvel em Imaruí**
+  - 💰 R$ 250.000 | 📐 115 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-imovel-em-imarui-1496619928
+
+- **Com 5.280m2, Pastagem e Árvores Frutíferas , Ratones - Florianópolis/S**
+  - 💰 R$ 2.500.000 | 📐 100 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/com-5-280m2-pastagem-e-arvores-frutiferas-ratones-florianopolis-sc-1496619736
+
+- **Chácara com 4 Dormitórios à Venda, possui Piscina, Área de 78.000 m² -**
+  - 💰 R$ 5.500.001 | 📐 78000 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-4-dormitorios-a-venda-possui-piscina-area-de-78-000-m-ratones-florianop-1496619107
+
+- **Sítio à venda, Anitápolis, Anitápolis, SC**
+  - 💰 R$ 300.001 | 📐 50 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-anitapolis-anitapolis-sc-1496618341
+
+- **Chácara/Sítio na Enseada de Brito, Palhoça-SC - 10.000M² - Linda Vista**
+  - 💰 R$ 1.499.900 | 📐 200 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-sitio-na-enseada-de-brito-palhoca-sc-10-000m-linda-vista-p-serra-e-o-mar-1115854573
+
+- **Terreno na Enseada de Brito, Palhoça-SC com Vista paradisíaca para o V**
+  - 💰 R$ 193.329 | 📐 360 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-enseada-de-brito-palhoca-sc-com-vista-paradisiaca-para-o-verde-e-o-mar-967456441
+
+- **Terreno na Praia de Fora, Palhoça-SC para Investidor e Construtor Lot.**
+  - 💰 R$ 340.000 | 📐 450 m²
+  - 📍 Praia de Fora — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-de-fora-palhoca-sc-para-investidor-e-construtor-lot-igaraty-ii-1059779856
+
+- **Terreno  de esquina com 495m²**
+  - 💰 R$ 490.000 | 📐 495 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-com-495m-1496589494
+
+- **Terreno a venda no Ratones**
+  - 💰 R$ 650.000 | 📐 450 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-ratones-1496586786
+
+- **Terreno com matrícula nas 5 ruas**
+  - 💰 R$ 1.200.000 | 📐 331 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-matricula-nas-5-ruas-1496573362
+
+- **700 m2 praia do rosa.200 metros entrada Rosa Norte escritura pública**
+  - 💰 R$ 1.500.000 | 📐 700 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/700-m2-praia-do-rosa-200-metros-entrada-rosa-norte-escritura-publica-1421761122
+
+- **Terreno amplo, de 312 m² Forquilhas - São José**
+  - 💰 R$ 275.000 | 📐 312 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-312-m-forquilhas-sao-jose-1496558358
+
+- **TERRENO À VENDA  362m² - BAIRRO FLORESTA, CRICIÚMA/SC**
+  - 💰 R$ 165.000 | 📐 362 m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-362m-bairro-floresta-criciuma-sc-1496556230
+
+- **Terreno forquilhas 680m2**
+  - 💰 R$ 450.000 | 📐 680 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-forquilhas-680m2-1301908203
+
