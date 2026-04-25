@@ -73028,3 +73028,256 @@
   - 📍 Campeche — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-393m-campeche-florianopolis-sc-1496627538
 
+
+## 🆕 50 novos anúncios — 25/04/2026 05:26
+
+- **Terreno em Balneário Nova Camboriú**
+  - 💰 R$ 160.000 | 📐 450 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-nova-camboriu-1496779079
+
+- **Excelente oportunidade em região valorizada de São José, lote com 5.20**
+  - 💰 R$ 3.000.000 | 📐 5200 m²
+  - 📍 Fazenda Santo Antônio — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-em-regiao-valorizada-de-sao-jose-lote-com-5-200m-1496778796
+
+- **OPORTUNIDADE EXCLUSIVA NO CARIANOS | 360 m² | FINANCIÁVEL**
+  - 💰 R$ 560.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-exclusiva-no-carianos-360-m-financiavel-1496777231
+
+- **Terreno à venda, 9844 m² - Ratones - Florianópolis/SC**
+  - 💰 R$ 1.990.000 | 📐 984417 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-9844-m-ratones-florianopolis-sc-1496773600
+
+- **Terreno no Bairro Campeche em localização especial**
+  - 💰 R$ 910.000 | 📐 610 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-campeche-em-localizacao-especial-1496773259
+
+- **Terreno na praia da Daniela**
+  - 💰 R$ 1.100 | 📐 360 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-da-daniela-1496771900
+
+- **Terreno à venda no bairro Gamboinha em Paulo Lopes.**
+  - 💰 R$ 310.000 | 📐 1300 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-gamboinha-em-paulo-lopes-1496768194
+
+- **Terreno no bairro Jardim Ultramar**
+  - 💰 R$ 159.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-jardim-ultramar-1496761960
+
+- **BROGNOLI VENDE- Chácara em Canasvieiras**
+  - 💰 R$ 1.000.000 | 📐 300 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-chacara-em-canasvieiras-1496761505
+
+- **Vendo Terreno - São Joaquim SC**
+  - 💰 R$ 250.000 | 📐 390 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-sao-joaquim-sc-1496760437
+
+- **Terreno de esquina Bairo Nova Guarita**
+  - 💰 R$ 110.000 | 📐 347 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-bairo-nova-guarita-1496760317
+
+- **OPORTUNIDADE EXCLUSIVA NO CARIANOS | 360 m² | FINANCIÁVEL**
+  - 💰 R$ 560.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-exclusiva-no-carianos-360-m-financiavel-1496760224
+
+- **Terreno bairro Nova Guarita em Sombrio/SC**
+  - 💰 R$ 93.900 | 📐 302 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-nova-guarita-em-sombrio-sc-1496759468
+
+- **Terreno para investimento, na segunda quadra do mar**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-na-segunda-quadra-do-mar-1496758136
+
+- **Terreno de Esquina bairro Nova Guarita!**
+  - 💰 R$ 110.000 | 📐 368 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-bairro-nova-guarita-1496758069
+
+- **Terreno em Loteamento fechado. Delta Ville - Biguaçu**
+  - 💰 R$ 246.320 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-fechado-delta-ville-biguacu-1496755577
+
+- **Terreno com Portaria 24 horas, 442,80 M² - Forquilhas - BRN**
+  - 💰 R$ 375.000 | 📐 443 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-442-80-m-forquilhas-brn-1496754774
+
+- **Terreno no Acqua Condomínio Clube, Delta Ville - Biguaçu.**
+  - 💰 R$ 303.400 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-acqua-condominio-clube-delta-ville-biguacu-1496754393
+
+- **Terreno Plano, Portaria 24 horas, 360 M² - Forquilhas - BRN**
+  - 💰 R$ 500.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-portaria-24-horas-360-m-forquilhas-brn-1496753786
+
+- **Terreno com Portaria 24 horas, 360 M² - Forquilhas - BRN**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-360-m-forquilhas-brn-1496753644
+
+- **Terreno a 200m da Praia no Morro das Pedras  668m² com Dupla Frente e **
+  - 💰 R$ 2.300.000 | 📐 668 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-200m-da-praia-no-morro-das-pedras-668m-com-dupla-frente-e-matricula-1496753199
+
+- **terreno no Sunset Condomínio Clube, Deltaville em Biguaçu**
+  - 💰 R$ 389.477 | 📐 210 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-sunset-condominio-clube-deltaville-em-biguacu-1496753189
+
+- **Terreno com Portaria 24 horas, 360 M² - Forquilhas - BRN**
+  - 💰 R$ 385.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-360-m-forquilhas-brn-1496752008
+
+- **Terreno com Vista para o Morro da Pedra Branca - Forquilhas - BRN**
+  - 💰 R$ 395.000 | 📐 370 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-o-morro-da-pedra-branca-forquilhas-brn-1496752007
+
+- **Terreno em Loteamento com Portaria 24 horas - Forquilhas - BRN**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-com-portaria-24-horas-forquilhas-brn-1496751022
+
+- **Terreno com Portaria 24 horas, 538,82 M² - Forquilhas - BRN**
+  - 💰 R$ 410.000 | 📐 539 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-538-82-m-forquilhas-brn-1496750961
+
+- **ÁREA NOBRE FRENTE BR 101 KM 217**
+  - 💰 R$ 4.464.000 | 📐 2232 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-nobre-frente-br-101-km-217-1441852439
+
+- **ÁREA RURAL EM RANCHO QUEIMADO NATUREZA, PRIVACIDADE E POTENCIAL PARA E**
+  - 💰 R$ 300.000 | 📐 21000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-em-rancho-queimado-natureza-privacidade-e-potencial-para-ecoturismo-1496748228
+
+- **ÁREA RURAL EM RANCHO QUEIMADO**
+  - 💰 R$ 299.000 | 📐 21000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-em-rancho-queimado-1496747767
+
+- **Terreno Plano, Portaria 24 horas, 360 M² - Forquilhas - PLC**
+  - 💰 R$ 500.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-portaria-24-horas-360-m-forquilhas-plc-1496742364
+
+- **Terreno de 2.271 m2 -viabilidade 6 pavimentos - Biguaçu - PLC**
+  - 💰 R$ 1.600.000 | 📐 2271462 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-271-m2-viabilidade-6-pavimentos-biguacu-plc-1496742260
+
+- **Terreno com Portaria 24 horas, 538,82 M² - Forquilhas - PLC**
+  - 💰 R$ 410.000 | 📐 539 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-538-82-m-forquilhas-plc-1496742202
+
+- **Oportunidade em Lagoinhas: Terreno a 500m do Mar**
+  - 💰 R$ 75.000 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-lagoinhas-terreno-a-500m-do-mar-1496740155
+
+- **Terreno com Vista para o Morro da Pedra Branca - Forquilhas - PLC**
+  - 💰 R$ 395.000 | 📐 370 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-o-morro-da-pedra-branca-forquilhas-plc-1496739434
+
+- **Terreno com Portaria 24 horas, 360 M² - Forquilhas - PLC**
+  - 💰 R$ 385.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-360-m-forquilhas-plc-1496739214
+
+- **Terreno com Portaria 24 horas, 442,80 M² - Forquilhas - PLC**
+  - 💰 R$ 375.000 | 📐 443 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-442-80-m-forquilhas-plc-1496738889
+
+- **Terreno em loteamento planejado à venda, 393 m² - Campeche - Florianóp**
+  - 💰 R$ 1.298.000 | 📐 393 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-planejado-a-venda-393-m-campeche-florianopolis-sc-1496737441
+
+- **NUNCA MAIS , !!!TERRENO HA 30 METROS DA LAGOA BARBADA**
+  - 💰 R$ 950.000 | 📐 330 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/nunca-mais-terreno-ha-30-metros-da-lagoa-barbada-1416623820
+
+- **Terreno no Bairro Campeche em local especial**
+  - 💰 R$ 910.000 | 📐 610 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-campeche-em-local-especial-1496728851
+
+- **Lindo Terreno No Centro de São Bonifácio**
+  - 💰 R$ 280.000 | 📐 432 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-no-centro-de-sao-bonifacio-1496736082
+
+- **Terreno em Loteamento com Portaria 24 horas - Forquilhas - PLC**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-com-portaria-24-horas-forquilhas-plc-1496734011
+
+- **Terreno com Portaria 24 horas, 360 M² - Forquilhas - PLC**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-360-m-forquilhas-plc-1496733835
+
+- **Vendo terreno bairro Timbé**
+  - 💰 R$ 1.000 | 📐 15750 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-bairro-timbe-1496732926
+
+- **SÍTIO À VENDA CIRENÁICA TREVISO-SC (12.500m²).**
+  - 💰 R$ 387.000 | 📐 12500 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-venda-cirenaica-treviso-sc-12-500m-1496731230
+
+- **Terreno para Venda em Florianópolis, Jurerê**
+  - 💰 R$ 4.500.000 | 📐 450 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-jurere-1496731037
+
+- **VENDE SE TERRENO 3.152m**
+  - 💰 R$ 1.500.000 | 📐 3152 m²
+  - 📍 Aririú da Formiga — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-3-152m-1496724105
+
+- **Oportunidade! Terreno em Córrego Grande - Florianópolis**
+  - 💰 R$ 5.000 | 📐 450 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-corrego-grande-florianopolis-1496722274
+
+- **Excelente terreno no centro de Tubarão SC.**
+  - 💰 R$ 1.100.000 | 📐 714 m²
+  - 📍 Morrotes — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-no-centro-de-tubarao-sc-1496722045
+
+- **Chácara - São Bonifácio**
+  - 💰 R$ 400.000 | 📐 3864 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-sao-bonifacio-1496720183
+
+- **Terreno proximo do Centro de Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 1.500.000 | 📐 1600 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-do-centro-de-santo-amaro-da-imperatriz-sc-1496682746
+
