@@ -73281,3 +73281,146 @@
   - 📍  — Santo Amaro da Imperatriz
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-do-centro-de-santo-amaro-da-imperatriz-sc-1496682746
 
+
+## 🆕 28 novos anúncios — 25/04/2026 10:06
+
+- **Terreno com vista permanente para o mar a venda em Garopaba-SC**
+  - 💰 R$ 2.100.000 | 📐 1000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-permanente-para-o-mar-a-venda-em-garopaba-sc-1496795363
+
+- **Terreno a venda Spa Lagoon* Condomínio fechado**
+  - 💰 R$ 750.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-spa-lagoon-condominio-fechado-1496795319
+
+- **Terreno para Venda em Florianópolis, Jurerê**
+  - 💰 R$ 3.200.000 | 📐 413 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-jurere-1496794676
+
+- **Terreno com Vista para o Morro da Pedra Branca - Forquilhas - EST**
+  - 💰 R$ 395.000 | 📐 370 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-o-morro-da-pedra-branca-forquilhas-est-1496794070
+
+- **Terreno com Portaria 24 horas, 538,82 M² - Forquilhas - EST**
+  - 💰 R$ 410.000 | 📐 539 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-538-82-m-forquilhas-est-1496794074
+
+- **Terreno em Loteamento com Portaria 24 horas - Forquilhas - EST**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-com-portaria-24-horas-forquilhas-est-1496793547
+
+- **Terreno Plano, Portaria 24 horas, 360 M² - Forquilhas - EST**
+  - 💰 R$ 500.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-portaria-24-horas-360-m-forquilhas-est-1496793505
+
+- **Terreno 360m2 sendo 15x24**
+  - 💰 R$ 630.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m2-sendo-15x24-1496793465
+
+- **Terreno com Portaria 24 horas, 360 M² - Forquilhas - EST**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-360-m-forquilhas-est-1496793152
+
+- **Terreno com Portaria 24 horas, 360 M² - Forquilhas - EST**
+  - 💰 R$ 385.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-360-m-forquilhas-est-1496792557
+
+- **Terreno á venda em loteamento no norte da Ilha de Florianópolis**
+  - 💰 R$ 450.000 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-loteamento-no-norte-da-ilha-de-florianopolis-1496792095
+
+- **Terreno á venda em loteamento no norte da Ilha de Florianópolis**
+  - 💰 R$ 450.000 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-loteamento-no-norte-da-ilha-de-florianopolis-1496791654
+
+- **Terreno com Portaria 24 horas, 442,80 M² - Forquilhas - EST**
+  - 💰 R$ 375.000 | 📐 443 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-442-80-m-forquilhas-est-1496790951
+
+- **Terreno de 348 m² à venda em Capoeiras, Florianópolis - SC**
+  - 💰 R$ 711.000 | 📐 348 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-348-m-a-venda-em-capoeiras-florianopolis-sc-1496789842
+
+- **TERRENO NA TRINDADE 432m² | VIABILIDADE MISTA | ALTO POTENCIAL DE CONS**
+  - 💰 R$ 4.042.553 | 📐 432 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-trindade-432m-viabilidade-mista-alto-potencial-de-construcao-1496788407
+
+- **Terreno no Lot. Residencial Bosque Residence - Praia do Campeche, em F**
+  - 💰 R$ 1.298.000 | 📐 393 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-lot-residencial-bosque-residence-praia-do-campeche-em-florianopolis-1496784676
+
+- **OPORTUNIDADE EXCLUSIVA NO CARIANOS | 360 m² | FINANCIÁVEL**
+  - 💰 R$ 560.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-exclusiva-no-carianos-360-m-financiavel-1496784654
+
+- **Terreno residencial para venda em Guarda do Cubatão , 300m²**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-para-venda-em-guarda-do-cubatao-300m-1496783932
+
+- **Terreno Plano, Portaria 24 horas, 360 M² - Forquilhas**
+  - 💰 R$ 500.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-portaria-24-horas-360-m-forquilhas-1496781187
+
+- **Terreno 429m² com Boa Localização - Jardim Janaína**
+  - 💰 R$ 330.000 | 📐 429 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-429m-com-boa-localizacao-jardim-janaina-1496781024
+
+- **Terreno em Loteamento com Portaria 24 horas - Forquilhas**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-com-portaria-24-horas-forquilhas-1496781000
+
+- **Terreno com Vista para o Morro da Pedra Branca - Forquilhas**
+  - 💰 R$ 395.000 | 📐 370 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-o-morro-da-pedra-branca-forquilhas-1496780988
+
+- **Terreno de 2.271 m2 -viabilidade 6 pavimentos - Biguaçu**
+  - 💰 R$ 1.600.000 | 📐 2271462 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-271-m2-viabilidade-6-pavimentos-biguacu-1496780883
+
+- **Terreno com Portaria 24 horas, 538,82 M² - Forquilhas**
+  - 💰 R$ 410.000 | 📐 539 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-538-82-m-forquilhas-1496780772
+
+- **Terreno com Portaria 24 horas, 360 M² - Forquilhas**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-360-m-forquilhas-1496780786
+
+- **Terreno com Portaria 24 horas, 360 M² - Forquilhas**
+  - 💰 R$ 385.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-360-m-forquilhas-1496780781
+
+- **Lote com luz instalada na Praia do sonho escritura Publica**
+  - 💰 R$ 450.000 | 📐 300 m²
+  - 📍 Praia do Sonho — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-com-luz-instalada-na-praia-do-sonho-escritura-publica-1496780115
+
+- **Terreno com Portaria 24 horas, 442,80 M² - Forquilhas**
+  - 💰 R$ 375.000 | 📐 443 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-442-80-m-forquilhas-1496779986
+
