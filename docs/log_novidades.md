@@ -73424,3 +73424,176 @@
   - 📍 Forquilhas — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-portaria-24-horas-442-80-m-forquilhas-1496779986
 
+
+## 🆕 34 novos anúncios — 25/04/2026 15:52
+
+- **Imóvel para venda tem 360 metros quadrados em Carianos - Florianópolis**
+  - 💰 R$ 585.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-360-metros-quadrados-em-carianos-florianopolis-sc-1496869226
+
+- **Terreno á venda em loteamento no norte da Ilha de Florianópolis**
+  - 💰 R$ 450.000 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-loteamento-no-norte-da-ilha-de-florianopolis-1496866649
+
+- **TERRENO NA TRINDADE 432m² | VIABILIDADE MISTA | ALTO POTENCIAL DE CONS**
+  - 💰 R$ 4.042.553 | 📐 432 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-trindade-432m-viabilidade-mista-alto-potencial-de-construcao-1496866205
+
+- **Terreno no Loteamento Villa Di Sois à venda, 368,98 m² por R$ 160.000,**
+  - 💰 R$ 160.000 | 📐 369 m²
+  - 📍 Jardim das Paineiras — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-villa-di-sois-a-venda-368-98-m-por-r-160-000-00-jardim-das-pain-1496865767
+
+- **Terreno á venda em loteamento no norte da Ilha de Florianópolis**
+  - 💰 R$ 450.000 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-loteamento-no-norte-da-ilha-de-florianopolis-1496864456
+
+- **Terreno no Loteamento Vêneto à venda, 397,82 m² por R$ 130.000,00 - Ja**
+  - 💰 R$ 130.000 | 📐 398 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-veneto-a-venda-397-82-m-por-r-130-000-00-jardim-silvana-icara-1496864443
+
+- **Terreno no Loteamento Monte Dei Fiore à venda, 360,00 m² por R$ 156.65**
+  - 💰 R$ 156.657 | 📐 360 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-monte-dei-fiore-a-venda-360-00-m-por-r-156-657-28-archimedes-na-1496861776
+
+- **Terreno de 348 m² à venda em Capoeiras, Florianópolis - SC**
+  - 💰 R$ 711.000 | 📐 348 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-348-m-a-venda-em-capoeiras-florianopolis-sc-1496861637
+
+- **Terreno no Celeste Macarini Loteamento à venda, 360,09 m² por R$ 186.7**
+  - 💰 R$ 186.784 | 📐 360 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-celeste-macarini-loteamento-a-venda-360-09-m-por-r-186-783-68-rio-maina-1496861327
+
+- **Oportunidade! Vendo lote / terreno plano de 250 m²- em São José**
+  - 💰 R$ 140.000 | 📐 250 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-vendo-lote-terreno-plano-de-250-m-em-sao-jose-1462589966
+
+- **Barbada! Vendo lote/ terreno com escritura  de 250 m2- Potecas- Sao Jo**
+  - 💰 R$ 165.000 | 📐 250 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lote-terreno-com-escritura-de-250-m2-potecas-sao-jose-1412247077
+
+- **Barbada !Vendo lindo lote/terreno plano, 506 m2 - loteamento Nova São **
+  - 💰 R$ 420.000 | 📐 504 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lindo-lote-terreno-plano-506-m2-loteamento-nova-sao-jose-br-br-nova-sao-jose-1412256103
+
+- **Vendo lindo lote/ terreno plano com área verde aos fundos, com 338 m2-**
+  - 💰 R$ 257.000 | 📐 338 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lindo-lote-terreno-plano-com-area-verde-aos-fundos-com-338-m2-bosque-sao-jose-1412252466
+
+- **Barbada!Vendo área em Sao José, com 933 m², viabilidade para posto de<**
+  - 💰 R$ 1.190.000 | 📐 933 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-area-em-sao-jose-com-933-m-viabilidade-para-posto-de-br-combustivel-1394999634
+
+- **Vendo excelente Lote/ terreno de 720 m² para Galpão- Ipiranga em Sao J**
+  - 💰 R$ 593.000 | 📐 720 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-excelente-lote-terreno-de-720-m-para-galpao-ipiranga-em-sao-jose-1412253921
+
+- **Barbada! Vendo lindo lote totalmente plano Alínea Vivenda Praianos**
+  - 💰 R$ 263.000 | 📐 267 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lindo-lote-totalmente-plano-alinea-vivenda-praianos-1394730144
+
+- **Barbada! Vendo lindo lote com 253 m², de esquina  em São José em Forqu**
+  - 💰 R$ 174.000 | 📐 253 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-lindo-lote-com-253-m-de-esquina-em-sao-jose-em-forquilhas-1412262102
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1496838492
+
+- **Terreno para sitio com 4 hectares em Antônio Carlos SC na localidade d**
+  - 💰 R$ 550.000 | 📐 40000 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-com-4-hectares-em-antonio-carlos-sc-na-localidade-do-rachadel-1413051430
+
+- **ANITÁPOLIS/SC - Sítio pronto para morar 5hectares**
+  - 💰 R$ 550.000 | 📐 50000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-sitio-pronto-para-morar-5hectares-1463145650
+
+- **ANITÁPOLIS/SC - Lindo terreno com vista para serra geral 7hectares**
+  - 💰 R$ 350.000 | 📐 70000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-terreno-com-vista-para-serra-geral-7hectares-1345267037
+
+- **ANITÁPOLIS/SC - Terreno com belíssima vista para serra geral**
+  - 💰 R$ 180.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-com-belissima-vista-para-serra-geral-1463141114
+
+- **ANITÁPOLIS/SC - Lindo terreno com 10hectares**
+  - 💰 R$ 640.000 | 📐 100000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-terreno-com-10hectares-1310938973
+
+- **ANITÁPOLIS/SC - Belíssimo sítio apenas 3km do centro**
+  - 💰 R$ 1.100.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-belissimo-sitio-apenas-3km-do-centro-1413204886
+
+- **ANITÁPOLIS/SC - Chácara à venda**
+  - 💰 R$ 150.000 | 📐 4000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-chacara-a-venda-1496833327
+
+- **ANITÁPOLIS/SC - Belíssimo terreno com 3hectares**
+  - 💰 R$ 350.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-belissimo-terreno-com-3hectares-1219237322
+
+- **ANITÁPOLIS/SC - Belíssimo terreno com 40hectares**
+  - 💰 R$ 1.000.000 | 📐 400000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-belissimo-terreno-com-40hectares-1259266772
+
+- **Terreno à Venda no Real Parque, São José, 462m² por R$435mil**
+  - 💰 R$ 435.000 | 📐 462 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-real-parque-sao-jose-462m-por-r-435mil-1496832941
+
+- **Barbada - Terreno em Imbituba**
+  - 💰 R$ 55.000 | 📐 ? m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-em-imbituba-1496825884
+
+- **Terreno com 2000m² a venda no Campeche Central**
+  - 💰 R$ 4.400.000 | 📐 2039 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2000m-a-venda-no-campeche-central-1496822655
+
+- **Terreno de 1300 m² à venda no Campeche Central**
+  - 💰 R$ 2.800.000 | 📐 1300 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1300-m-a-venda-no-campeche-central-1496821565
+
+- **Terreno em Lagoinhas Frente Para o Norte**
+  - 💰 R$ 65.000 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-lagoinhas-frente-para-o-norte-1496817692
+
+- **Maravilhosa área rural com 41 hectares em Anitápolis-SC**
+  - 💰 R$ 990.000 | 📐 410000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/maravilhosa-area-rural-com-41-hectares-em-anitapolis-sc-1296772389
+
+- **Chácara BOM RETIRO Paulo Lopes**
+  - 💰 R$ 250.000 | 📐 2000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-bom-retiro-paulo-lopes-1496870018
+
