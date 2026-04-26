@@ -73974,3 +73974,361 @@
   - 📍 Nova Palhoça — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/atencao-investidor-e-construtor-areas-nobres-nova-palhoca-viab-25-and-1307386005
 
+
+## 🆕 71 novos anúncios — 26/04/2026 21:52
+
+- **Terreno de 4.856,40m² ou 12 lotes**
+  - 💰 R$ 75.000 | 📐 4856 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-4-856-40m-ou-12-lotes-1497131427
+
+- **Vendo terreno em anitápolis**
+  - 💰 R$ 900.000 | 📐 2500 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-anitapolis-1497130824
+
+- **TERRENO PRESIDENTE VARGAS IÇARA**
+  - 💰 R$ 135.000 | 📐 364 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-presidente-vargas-icara-1497125972
+
+- **O Belo loteamento do Altos da Pedra, na Palhoça.**
+  - 💰 R$ 684.000 | 📐 360 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/o-belo-loteamento-do-altos-da-pedra-na-palhoca-1497118882
+
+- **Lindo terreno em Cangueri de fora Imarui SC**
+  - 💰 R$ 140.000 | 📐 950 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-em-cangueri-de-fora-imarui-sc-1497117435
+
+- **Sítio Aguas Mornas**
+  - 💰 R$ 250.000 | 📐 1000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-aguas-mornas-1497113864
+
+- **Terreno à venda no bairro Ferraz - Garopaba/SC**
+  - 💰 R$ 1.260.000 | 📐 810 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ferraz-garopaba-sc-1497104647
+
+- **Terreno à venda no bairro Centro - Garopaba/SC**
+  - 💰 R$ 1.721.112 | 📐 2094 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-centro-garopaba-sc-1497104681
+
+- **Terreno à venda no bairro Arroio Rosa - Imbituba/SC**
+  - 💰 R$ 320.000 | 📐 1016 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-arroio-rosa-imbituba-sc-1497104696
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 3.500.000 | 📐 93000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1497104671
+
+- **Terreno à venda no bairro Praia da Gamboa - Garopaba/SC**
+  - 💰 R$ 980.000 | 📐 973 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-praia-da-gamboa-garopaba-sc-1497104667
+
+- **Terreno à venda no bairro Centro - Garopaba/SC**
+  - 💰 R$ 585.623 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-centro-garopaba-sc-1497104668
+
+- **Terreno à venda no bairro Campo D'una - Garopaba/SC**
+  - 💰 R$ 450.000 | 📐 650 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-campo-d-una-garopaba-sc-1497104652
+
+- **Terreno à venda no bairro Areias de Palhocinha - Garopaba/SC**
+  - 💰 R$ 450.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-areias-de-palhocinha-garopaba-sc-1497104682
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 460.000 | 📐 1639 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1497104679
+
+- **Terreno à venda no bairro Encantada - Garopaba/SC**
+  - 💰 R$ 4.000.000 | 📐 720 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-encantada-garopaba-sc-1497104660
+
+- **Terreno à venda no bairro Ambrósio - Garopaba/SC**
+  - 💰 R$ 3.500.000 | 📐 50501 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ambrosio-garopaba-sc-1497104717
+
+- **Terreno à venda no bairro Ferraz - Garopaba/SC**
+  - 💰 R$ 850.000 | 📐 325 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ferraz-garopaba-sc-1497104670
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 850.000 | 📐 11070 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1497104778
+
+- **Terreno à venda no bairro Ressacada - Garopaba/SC**
+  - 💰 R$ 1.800.000 | 📐 172989 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ressacada-garopaba-sc-1497104732
+
+- **Terreno à venda no bairro Areias de Palhocinha - Garopaba/SC**
+  - 💰 R$ 475.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-areias-de-palhocinha-garopaba-sc-1497104777
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 550.000 | 📐 3554 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1497104805
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 1.750.000 | 📐 46578 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1497104683
+
+- **Terreno à venda no bairro Pinguirito - Garopaba/SC**
+  - 💰 R$ 420.000 | 📐 265 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-pinguirito-garopaba-sc-1497104728
+
+- **Terreno à venda no bairro Areias de Palhocinha - Garopaba/SC**
+  - 💰 R$ 1.490.000 | 📐 2640 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-areias-de-palhocinha-garopaba-sc-1497104720
+
+- **Terreno à venda no bairro Ambrósio - Garopaba/SC**
+  - 💰 R$ 360.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ambrosio-garopaba-sc-1497104726
+
+- **Terreno à venda no bairro Encantada - Garopaba/SC**
+  - 💰 R$ 670.000 | 📐 1528 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-encantada-garopaba-sc-1497104658
+
+- **Terreno à venda no bairro Centro - Garopaba/SC**
+  - 💰 R$ 580.050 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-centro-garopaba-sc-1497104707
+
+- **Terreno à venda no bairro Ambrósio - Garopaba/SC**
+  - 💰 R$ 1.100.000 | 📐 2492 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ambrosio-garopaba-sc-1497104713
+
+- **Terreno à venda no bairro Ambrósio - Garopaba/SC**
+  - 💰 R$ 550.000 | 📐 363 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ambrosio-garopaba-sc-1497104781
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 480.000 | 📐 1728 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1497104699
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 350.000 | 📐 1000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1497104714
+
+- **Terreno à venda no bairro Areias de Macacu - Garopaba/SC**
+  - 💰 R$ 500.000 | 📐 581 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-areias-de-macacu-garopaba-sc-1497104724
+
+- **Terreno à venda no bairro Ferraz - Garopaba/SC**
+  - 💰 R$ 870.000 | 📐 325 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ferraz-garopaba-sc-1497104783
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 800.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1497104672
+
+- **Terreno à venda no bairro Praia da Silveira - Garopaba/SC**
+  - 💰 R$ 3.500.000 | 📐 4908 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-praia-da-silveira-garopaba-sc-1497104704
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 1.900.000 | 📐 20000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1497104700
+
+- **Terreno à venda no bairro Areias de Macacu - Garopaba/SC**
+  - 💰 R$ 500.000 | 📐 422 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-areias-de-macacu-garopaba-sc-1497104710
+
+- **Terreno à venda no bairro Areias de Palhocinha - Garopaba/SC**
+  - 💰 R$ 700.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-areias-de-palhocinha-garopaba-sc-1497104642
+
+- **Terreno à venda no bairro Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 1.350.000 | 📐 1043 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-praia-do-rosa-imbituba-sc-1497104604
+
+- **Terreno à venda no bairro Araçatuba - Imbituba/SC**
+  - 💰 R$ 850.000 | 📐 2312 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-aracatuba-imbituba-sc-1497104637
+
+- **Terreno à venda no bairro Ambrósio - Garopaba/SC**
+  - 💰 R$ 490.000 | 📐 308 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ambrosio-garopaba-sc-1497104625
+
+- **Terreno à venda no bairro Ferraz - Garopaba/SC**
+  - 💰 R$ 1.700.000 | 📐 2574 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ferraz-garopaba-sc-1497104640
+
+- **Terreno à venda no bairro Centro - Garopaba/SC**
+  - 💰 R$ 1.450.000 | 📐 408 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-centro-garopaba-sc-1497104638
+
+- **Terreno à venda no bairro Campo D'una - Garopaba/SC**
+  - 💰 R$ 1.000.000 | 📐 1994 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-campo-d-una-garopaba-sc-1497104654
+
+- **Terreno à venda no bairro Ribeirão - Paulo Lopes/SC**
+  - 💰 R$ 550.000 | 📐 3250 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ribeirao-paulo-lopes-sc-1497104616
+
+- **Sítio à venda no bairro Fazenda Rio das Graças - Imaruí/SC**
+  - 💰 R$ 800.000 | 📐 71313 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-fazenda-rio-das-gracas-imarui-sc-1497104621
+
+- **Terreno à venda no bairro Ambrósio - Garopaba/SC**
+  - 💰 R$ 580.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ambrosio-garopaba-sc-1497104624
+
+- **Terreno à venda no bairro Campo D'una - Garopaba/SC**
+  - 💰 R$ 600.000 | 📐 1158 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-campo-d-una-garopaba-sc-1497104641
+
+- **Terreno à venda no bairro Ilhota - Tubarão/SC**
+  - 💰 R$ 529.999 | 📐 628 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ilhota-tubarao-sc-1497104619
+
+- **Terreno à venda no bairro Centro - Garopaba/SC**
+  - 💰 R$ 1.150.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-centro-garopaba-sc-1497104633
+
+- **Terreno à venda no bairro Rio Duna - Imaruí/SC**
+  - 💰 R$ 1.300.000 | 📐 250000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-rio-duna-imarui-sc-1497104644
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 1.500.000 | 📐 10000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1497104631
+
+- **Terreno à venda no bairro Praia da Ferrugem - Garopaba/SC**
+  - 💰 R$ 1.190.000 | 📐 530 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-praia-da-ferrugem-garopaba-sc-1497104632
+
+- **Terreno à venda no bairro Ferraz - Garopaba/SC**
+  - 💰 R$ 1.400.000 | 📐 364 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ferraz-garopaba-sc-1497104626
+
+- **Terreno à venda no bairro Encantada - Garopaba/SC**
+  - 💰 R$ 375.000 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-encantada-garopaba-sc-1497104615
+
+- **Terreno à venda no bairro Campo D'una - Garopaba/SC**
+  - 💰 R$ 340.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-campo-d-una-garopaba-sc-1497104622
+
+- **Terreno à venda no bairro Ressacada - Garopaba/SC**
+  - 💰 R$ 290.000 | 📐 1000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ressacada-garopaba-sc-1497104639
+
+- **Terreno à venda no bairro Encantada - Garopaba/SC**
+  - 💰 R$ 450.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-encantada-garopaba-sc-1497104606
+
+- **Terreno à venda no bairro Praia da Silveira - Garopaba/SC**
+  - 💰 R$ 2.300.000 | 📐 1550 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-praia-da-silveira-garopaba-sc-1497104607
+
+- **Terreno à venda no bairro Praia da Ferrugem - Garopaba/SC**
+  - 💰 R$ 1.500.000 | 📐 3013 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-praia-da-ferrugem-garopaba-sc-1497104499
+
+- **Terreno à venda no bairro Areias de Palhocinha - Garopaba/SC**
+  - 💰 R$ 470.000 | 📐 363 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-areias-de-palhocinha-garopaba-sc-1497104496
+
+- **Terreno à venda no bairro Ferraz - Garopaba/SC**
+  - 💰 R$ 950.000 | 📐 400 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ferraz-garopaba-sc-1497104503
+
+- **Terreno à venda no bairro Ambrósio - Garopaba/SC**
+  - 💰 R$ 400.000 | 📐 265 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ambrosio-garopaba-sc-1497104493
+
+- **Terreno de posse**
+  - 💰 R$ 120.000 | 📐 230 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-posse-1497091876
+
+- **Sítio a venda**
+  - 💰 R$ 160.000 | 📐 ? m²
+  - 📍  — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-1497088367
+
+- **Venda de terreno com vista para o mar**
+  - 💰 R$ 250.000 | 📐 ? m²
+  - 📍 Pantanal — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-terreno-com-vista-para-o-mar-1497086688
+
+- **Terreno área rural ou para chácara**
+  - 💰 R$ 80.000 | 📐 450 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-area-rural-ou-para-chacara-1497082937
+
+- **Terreno na praia**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-1497081932
+
+- **Terreno Urbano/Sitio**
+  - 💰 R$ 150.000 | 📐 400 m²
+  - 📍 Sul do Rio — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-sitio-1497068366
+
+- **Excelente terreno escriturado para construir em São José**
+  - 💰 R$ 325.000 | 📐 360 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-escriturado-para-construir-em-sao-jose-1497067080
+
