@@ -73906,3 +73906,71 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-a-poucos-passos-do-mar-na-praia-ribeiro-em-passo-de-torres-sc-1496999918
 
+
+## 🆕 13 novos anúncios — 26/04/2026 15:56
+
+- **Vende-se Terreno 12x30 - Próximo à Praia da Gamboa!**
+  - 💰 R$ 230.000 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-12x30-proximo-a-praia-da-gamboa-1497056283
+
+- **Terreno à venda**
+  - 💰 R$ 310.000 | 📐 237 m²
+  - 📍 Praça — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1497053680
+
+- **Terreno na praia de Itapiruba Norte - Imbituba**
+  - 💰 R$ 275.000 | 📐 300 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-de-itapiruba-norte-imbituba-1497045162
+
+- **Terreno bosque Imbituba**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bosque-imbituba-1497042879
+
+- **Vendo Sítio / Área Rural em Antônio Carlos (ideal para chalé)**
+  - 💰 R$ 600.000 | 📐 25000 m²
+  - 📍 Prado de Baixo — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-area-rural-em-antonio-carlos-ideal-para-chale-1497025338
+
+- **Oportunidade Única: Terreno  Praia de Itapiruba - Laguna/SC**
+  - 💰 R$ 80.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-praia-de-itapiruba-laguna-sc-1497037029
+
+- **Excelente lote na geral do loteamento Lisboa 3 com 235 m²**
+  - 💰 R$ 165.000 | 📐 235 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-lote-na-geral-do-loteamento-lisboa-3-com-235-m-1478776124
+
+- **Vendo Lote plano  com 360 m² no bairro Ipiranga, em Sao José <br><br>S**
+  - 💰 R$ 349.000 | 📐 360 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-plano-com-360-m-no-bairro-ipiranga-em-sao-jose-br-br-sao-jose-1394986591
+
+- **Terreno 10 x 30**
+  - 💰 R$ 600.000 | 📐 300 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-10-x-30-1497030457
+
+- **Terreno à venda em Palhoça - Caminho Novo**
+  - 💰 R$ 450.000 | 📐 450 m²
+  - 📍 Caminho Novo — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-palhoca-caminho-novo-1497027636
+
+- **Vendo Terreno com escritura na Guarda do Cubatão**
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-com-escritura-na-guarda-do-cubatao-1497026770
+
+- **BELO lote 325m2 PRAIA do SONHO! 200m do mar**
+  - 💰 R$ 449.000 | 📐 325 m²
+  - 📍 Praia do Sonho — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-lote-325m2-praia-do-sonho-200m-do-mar-1375126330
+
+- **Atenção Investidor e Construtor ! Áreas nobres Nova Palhoça viab. 25 a**
+  - 💰 R$ 2.889.000 | 📐 2232 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/atencao-investidor-e-construtor-areas-nobres-nova-palhoca-viab-25-and-1307386005
+
