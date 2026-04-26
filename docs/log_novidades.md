@@ -73815,3 +73815,76 @@
   - 📍  — Urussanga
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-pedra-centenaria-1496845001
 
+
+## 🆕 14 novos anúncios — 26/04/2026 05:53
+
+- **Sítio à venda no bairro Pântano do Sul - Florianópolis/SC**
+  - 💰 R$ 850.000 | 📐 4000 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-pantano-do-sul-florianopolis-sc-1496995579
+
+- **Investimento valioso...**
+  - 💰 R$ 110.000 | 📐 ? m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/investimento-valioso-1496993099
+
+- **Terreno 44435m² - Pedra Branca**
+  - 💰 R$ 805.000 | 📐 44435 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-44435m-pedra-branca-1496992239
+
+- **Terreno**
+  - 💰 R$ 150.000 | 📐 150 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1496988267
+
+- **Vendo terreno em praia**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍 Rio Grande — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-praia-1496987263
+
+- **TERRENO 680m2 SÃO JOSÉ**
+  - 💰 R$ 450.000 | 📐 680 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-680m2-sao-jose-1297323561
+
+- **Terreno**
+  - 💰 R$ 180.000 | 📐 200 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1496979792
+
+- **Vendo terreno em Nova Trento**
+  - 💰 R$ 90.000 | 📐 1000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-nova-trento-1496976819
+
+- **Terreno de boa localização**
+  - 💰 R$ 500.000 | 📐 7800 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-boa-localizacao-1496974041
+
+- **Terreno Comercial em João Paulo**
+  - 💰 R$ 6.500.000 | 📐 863 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-joao-paulo-1496969767
+
+- **Terreno em Forquilhas São José - SC**
+  - 💰 R$ 318.000 | 📐 406 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-forquilhas-sao-jose-sc-1496961279
+
+- **Sítio com 30 mil m² * Ótima localização**
+  - 💰 R$ 600.000 | 📐 30000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-30-mil-m-otima-localizacao-1382109958
+
+- **Chácara com cachoeira em Tijucas**
+  - 💰 R$ 590.000 | 📐 5000 m²
+  - 📍 Centro — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-cachoeira-em-tijucas-1476524247
+
+- **Terreno sítio timbé Tijucas SC 34.400m2**
+  - 💰 R$ 990.000 | 📐 34900 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sitio-timbe-tijucas-sc-34-400m2-1424520638
+
