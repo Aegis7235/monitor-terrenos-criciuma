@@ -73888,3 +73888,21 @@
   - 📍 Centro — Biguaçu
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sitio-timbe-tijucas-sc-34-400m2-1424520638
 
+
+## 🆕 3 novos anúncios — 26/04/2026 10:05
+
+- **Terreno de esquina na Praia Ribeiro em Passo de Torres/SC a poucos pas**
+  - 💰 R$ 165.000 | 📐 336 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-na-praia-ribeiro-em-passo-de-torres-sc-a-poucos-passos-do-mar-1497001053
+
+- **Terreno à venda, 2146 m² por R$ 546.000 - Mirim - Imbituba/SC**
+  - 💰 R$ 546.000 | 📐 2146 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2146-m-por-r-546-000-mirim-imbituba-sc-1497000372
+
+- **Ótimo terreno a poucos passos do mar na Praia Ribeiro em Passo de Torr**
+  - 💰 R$ 145.000 | 📐 336 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-a-poucos-passos-do-mar-na-praia-ribeiro-em-passo-de-torres-sc-1496999918
+
