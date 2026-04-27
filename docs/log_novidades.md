@@ -74395,3 +74395,41 @@
   - 📍  — São Bonifácio
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-sao-bonifacio-1497137327
 
+
+## 🆕 7 novos anúncios — 27/04/2026 11:17
+
+- **Lindo terreno para sítio ou chácara**
+  - 💰 R$ 285.000 | 📐 40000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-para-sitio-ou-chacara-1497225403
+
+- **Terreno à venda, 613 m² - Jurerê Internacional - Florianópolis/SC**
+  - 💰 R$ 3.500.000 | 📐 613 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-613-m-jurere-internacional-florianopolis-sc-1497225261
+
+- **Terreno à venda, 506 m² por R$ 850.000,00 - Ingleses Norte - Florianóp**
+  - 💰 R$ 850.000 | 📐 506 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-506-m-por-r-850-000-00-ingleses-norte-florianopolis-sc-1497224874
+
+- **Terreno à venda, 509 m² por R$ 850.000,00 - Ingleses Norte - Florianóp**
+  - 💰 R$ 850.000 | 📐 509 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-509-m-por-r-850-000-00-ingleses-norte-florianopolis-sc-1497224876
+
+- **Área com 226 mil m² em São José/SC**
+  - 💰 R$ 32.800.000 | 📐 226000 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-com-226-mil-m-em-sao-jose-sc-1365064247
+
+- **Terreno de 800m² à venda em Garopaba com vista para o mar**
+  - 💰 R$ 990.000 | 📐 800 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-800m-a-venda-em-garopaba-com-vista-para-o-mar-1497201403
+
+- **Excelente oportunidade de investimento em Tubarão**
+  - 💰 R$ 2.500.000 | 📐 67349 m²
+  - 📍 São Cristóvão — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-de-investimento-em-tubarao-1497217039
+
