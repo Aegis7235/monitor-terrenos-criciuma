@@ -74332,3 +74332,66 @@
   - 📍 Serraria — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-escriturado-para-construir-em-sao-jose-1497067080
 
+
+## 🆕 12 novos anúncios — 27/04/2026 06:07
+
+- **Terreno Rio Vermelho leia o anúncio**
+  - 💰 R$ 130.000 | 📐 ? m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rio-vermelho-leia-o-anuncio-1497183759
+
+- **Lote Nova Governador**
+  - 💰 R$ 250.000 | 📐 390 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-nova-governador-1497183639
+
+- **Terreno em servidão**
+  - 💰 R$ 55.000 | 📐 66 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-servidao-1497183571
+
+- **Terreno à venda no Loteamento Novo Horizonte II - Forquilhas | São Jos**
+  - 💰 R$ 250.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-novo-horizonte-ii-forquilhas-sao-jose-1497172984
+
+- **Lote Condominio Fly Ville - 1350 m2**
+  - 💰 R$ 650.000 | 📐 1350 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-condominio-fly-ville-1350-m2-1497171501
+
+- **Terreno pra sítio**
+  - 💰 R$ 120.000 | 📐 2100 m²
+  - 📍 Distrito De Aguti — Botuverá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pra-sitio-1497166288
+
+- **TERRENO A VENDA - Alfredo Wagner / SC**
+  - 💰 R$ 980.000 | 📐 128308 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-alfredo-wagner-sc-1475448044
+
+- **Procuro Chácara - Sitio para morar (Caseiro)**
+  - 💰 R$ 3.000 | 📐 ? m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/procuro-chacara-sitio-para-morar-caseiro-1497153360
+
+- **Vendo terreno Praia da Solidão**
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-praia-da-solidao-1497145782
+
+- **Sítio/Confinamento a venda na Vargem do Rio D´una em Imaruí/SC**
+  - 💰 R$ 2.000.000 | 📐 150000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-confinamento-a-venda-na-vargem-do-rio-d-una-em-imarui-sc-1379705611
+
+- **VENDO LOTE Muito bem localizado!**
+  - 💰 R$ 210.000 | 📐 336 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-muito-bem-localizado-1497140450
+
+- **Sítio São Bonifácio**
+  - 💰 R$ 160.000 | 📐 5000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-sao-bonifacio-1497137327
+
