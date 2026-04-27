@@ -74433,3 +74433,126 @@
   - 📍 São Cristóvão — Tubarão
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-de-investimento-em-tubarao-1497217039
 
+
+## 🆕 24 novos anúncios — 27/04/2026 16:38
+
+- **Sítio 3,5 hectares com 3 açudes e nascente - escriturado**
+  - 💰 R$ 550.000 | 📐 35000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-3-5-hectares-com-3-acudes-e-nascente-escriturado-1497303641
+
+- **vendo Terreno em Palhoça 370mt R$80.000**
+  - 💰 R$ 80.000 | 📐 370 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-palhoca-370mt-r-80-000-1497302791
+
+- **Terreno em Passa Vinte - Palhoça**
+  - 💰 R$ 1.000.000 | 📐 360 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-passa-vinte-palhoca-1497301025
+
+- **Terreno em Passa Vinte - Palhoça**
+  - 💰 R$ 1.900.000 | 📐 720 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-passa-vinte-palhoca-1497300704
+
+- **Terreno para Venda em Florianópolis, Cacupé**
+  - 💰 R$ 4.998.000 | 📐 6915 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cacupe-1497292073
+
+- **Sítio para Venda em Florianópolis, Vargem Pequena**
+  - 💰 R$ 1.700.000 | 📐 17763 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-florianopolis-vargem-pequena-1497291534
+
+- **Terreno para Venda em Florianópolis, Ratones**
+  - 💰 R$ 940.000 | 📐 400 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1497291497
+
+- **Terreno para Venda em Florianópolis, Pântano do Sul**
+  - 💰 R$ 1.090.000 | 📐 4320 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1497291515
+
+- **Sítio Três Riachos**
+  - 💰 R$ 980.000 | 📐 16500 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-tres-riachos-1497287684
+
+- **Vendo terreno  Ribeirão da ilha**
+  - 💰 R$ 350.000 | 📐 230 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-ribeirao-da-ilha-1497286709
+
+- **Sitio com linda casa!**
+  - 💰 R$ 1.400.000 | 📐 27000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-casa-1497285844
+
+- **Vendo terreno saco dos limões**
+  - 💰 R$ 40.000 | 📐 ? m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-saco-dos-limoes-1497285742
+
+- **Lindo terreno a venda!!!**
+  - 💰 R$ 255.000 | 📐 344 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-a-venda-1444825898
+
+- **Lote na Praia do Sol-Laguna SC**
+  - 💰 R$ 145.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-praia-do-sol-laguna-sc-1497279993
+
+- **Sítio à Venda de 5.531,53m², Bairro Vila 12 em Antônio Carlos/SC**
+  - 💰 R$ 680.000 | 📐 5555 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-de-5-531-53m-bairro-vila-12-em-antonio-carlos-sc-1480637016
+
+- **Vendo/Alugo Terreno Residencial/ Comercial Rio Tavares**
+  - 💰 R$ 880.000 | 📐 364 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-alugo-terreno-residencial-comercial-rio-tavares-1480198702
+
+- **Terreno 362m² em Condomínio - Pedra Branca - mrt**
+  - 💰 R$ 850.000 | 📐 362 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-362m-em-condominio-pedra-branca-mrt-1497275281
+
+- **Vendo terreno em SAMBAQUI laguna**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-sambaqui-laguna-1477334980
+
+- **Terreno na praia**
+  - 💰 R$ 100.000 | 📐 288 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-1497248960
+
+- **Sítio com casa e cachoeira em Águas Mornas**
+  - 💰 R$ 450.000 | 📐 9633 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-e-cachoeira-em-aguas-mornas-1480612964
+
+- **Terreno 391, 00m2(12,00X32,68m ARIRIÚ(rua do SUPER)**
+  - 💰 R$ 310.000 | 📐 391 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-391-00m2-12-00x32-68m-aririu-rua-do-super-1376240829
+
+- **Terreno em Paulo lopes**
+  - 💰 R$ 150.000 | 📐 608 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-paulo-lopes-1497242072
+
+- **Terreno de 2.271 m2 -viabilidade 6 pavimentos - Biguaçu**
+  - 💰 R$ 1.600.000 | 📐 2271462 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-271-m2-viabilidade-6-pavimentos-biguacu-1497235282
+
+- **Terreno 429m² com Boa Localização - Jardim Janaína**
+  - 💰 R$ 330.000 | 📐 429 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-429m-com-boa-localizacao-jardim-janaina-1497235271
+
