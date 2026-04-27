@@ -74556,3 +74556,131 @@
   - 📍 Jardim Janaína — Biguaçu
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-429m-com-boa-localizacao-jardim-janaina-1497235271
 
+
+## 🆕 25 novos anúncios — 27/04/2026 22:07
+
+- **Terreno em Loteamento/ Fernandes**
+  - 💰 R$ 150.000 | 📐 324 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-fernandes-1497403978
+
+- **Terreno à venda, 538,21 m² - Campeche - Florianópolis/SC**
+  - 💰 R$ 1.500.000 | 📐 538 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-538-21-m-campeche-florianopolis-sc-1497402402
+
+- **Terreno com 161m2 em condomínio fechado no bairro planejado DeltaVille**
+  - 💰 R$ 250.000 | 📐 161 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-161m2-em-condominio-fechado-no-bairro-planejado-deltaville-em-biguacu-sc-1497398563
+
+- **Lote linha Anta**
+  - 💰 R$ 90.000 | 📐 ? m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-linha-anta-1497398348
+
+- **Terreno a venda, 2.003 m², Condomínio Quinta dos Guimarães, Sul do Rio**
+  - 💰 R$ 949.000 | 📐 2003 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2-003-m-condominio-quinta-dos-guimaraes-sul-do-rio-santo-amaro-da-imp-1497394640
+
+- **Terreno a venda, 2.000 m², Condomínio Quinta dos Guimarães, Sul do Rio**
+  - 💰 R$ 959.000 | 📐 2000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2-000-m-condominio-quinta-dos-guimaraes-sul-do-rio-santo-amaro-da-imp-1497394049
+
+- **Terreno a venda, 2.001 m², Condomínio Quinta dos Guimarães, Sul do Rio**
+  - 💰 R$ 949.000 | 📐 2001 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2-001-m-condominio-quinta-dos-guimaraes-sul-do-rio-santo-amaro-da-imp-1497394062
+
+- **PROCURO TERRENO COM VISTA MAR em Canasvieiras e inglese do Rio Vermelh**
+  - 💰 R$ 2.000.000 | 📐 2000 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/procuro-terreno-com-vista-mar-em-canasvieiras-e-inglese-do-rio-vermelho-florianopolis-1480398731
+
+- **Terreno à venda em Florianópolis-SC, Ingleses: 540m² de área em locali**
+  - 💰 R$ 820.000 | 📐 540 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-florianopolis-sc-ingleses-540m-de-area-em-localizacao-privilegiada-1497380088
+
+- **Terreno à venda em Florianópolis-SC, São João do Rio Vermelho: 402m² d**
+  - 💰 R$ 450.000 | 📐 402 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-florianopolis-sc-sao-joao-do-rio-vermelho-402m-de-area-se-voce-quer-1497380062
+
+- **TERRENO EM CONDOMINIO**
+  - 💰 R$ 480.000 | 📐 420 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-1497379914
+
+- **Terreno em Biguaçu 14x30**
+  - 💰 R$ 110.000 | 📐 420 m²
+  - 📍 Tijuquinhas (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-biguacu-14x30-1497371843
+
+- **VENDO LOTES NA PASSAGEM DO MASSIAMBU**
+  - 💰 R$ 150.000 | 📐 1700 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lotes-na-passagem-do-massiambu-1497371603
+
+- **Terreno urubici**
+  - 💰 R$ 200.000 | 📐 20000 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urubici-1497371290
+
+- **Terreno no Centro de Içara**
+  - 💰 R$ 360.000 | 📐 330 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-icara-1497369845
+
+- **Terreno em Condominio em Santa Rita - Rancho Queimado**
+  - 💰 R$ 185.000 | 📐 1109 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-em-santa-rita-rancho-queimado-1497356761
+
+- **Terreno à venda Campeche Florianópolis SC 538,21 m²**
+  - 💰 R$ 1.500.000 | 📐 538 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-campeche-florianopolis-sc-538-21-m-1497351858
+
+- **Belo sitio proximo de Rancho Queimado**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-proximo-de-rancho-queimado-1497351867
+
+- **Terreno no Condomínio Villaggio Verde - Criciúma/SC | 800m²**
+  - 💰 R$ 540.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-villaggio-verde-criciuma-sc-800m-1497345863
+
+- **Vendo sítio**
+  - 💰 R$ 500.000 | 📐 4300 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-1497328898
+
+- **Imóvel para venda tem 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1497322539
+
+- **Terreno para Sitio**
+  - 💰 R$ 230.000 | 📐 2100 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-1497316183
+
+- **Sitio com 2.100m² - Moura, Canelinha/SC**
+  - 💰 R$ 550.000 | 📐 2100 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-2-100m-moura-canelinha-sc-1497315007
+
+- **Terreno Condomínio Santa Barbara - Antônio Carlos**
+  - 💰 R$ 200.000 | 📐 459 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-santa-barbara-antonio-carlos-1497311810
+
+- **Terreno 362m² - Pedra Branca - imv**
+  - 💰 R$ 750.000 | 📐 362 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-362m-pedra-branca-imv-1497306578
+
