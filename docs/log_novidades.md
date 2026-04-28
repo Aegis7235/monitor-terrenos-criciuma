@@ -75438,3 +75438,126 @@
   - 📍 Beira Rio — Biguaçu
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-fundo-lago-no-deltaville-em-condominio-blue-com-150-m-1497442075
 
+
+## 🆕 24 novos anúncios — 28/04/2026 22:13
+
+- **Oportunidade: terreno 360m² próximo à praia de palmas e BR-101**
+  - 💰 R$ 219.000 | 📐 360 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-360m-proximo-a-praia-de-palmas-e-br-101-1497765231
+
+- **Terreno amplo, de 312 m² Forquilhas - São José**
+  - 💰 R$ 255.000 | 📐 312 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-312-m-forquilhas-sao-jose-1497763219
+
+- **Terreno no Rio Tavares vista pro Morro do Lampião**
+  - 💰 R$ 350.000 | 📐 180 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-tavares-vista-pro-morro-do-lampiao-1497760494
+
+- **Terreno Frente Mar no Bairro Areias Claras, Balneário Gaivota/SC**
+  - 💰 R$ 89.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-no-bairro-areias-claras-balneario-gaivota-sc-1497757394
+
+- **Venda terreno aero Park direto com o proprietário**
+  - 💰 R$ 700.000 | 📐 700 m²
+  - 📍 Abraão — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-aero-park-direto-com-o-proprietario-1497740406
+
+- **LINDO SÍTIO ANITAPOLIS**
+  - 💰 R$ 630.000 | 📐 5000 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-anitapolis-1497737135
+
+- **VENDO URGENTE: Terreno Escriturado na Praia  de Balneário Gaivota  - R**
+  - 💰 R$ 60.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-urgente-terreno-escriturado-na-praia-de-balneario-gaivota-r-60-mil-barbada-1497735773
+
+- **TERRENO - Pantanal - JF-143199**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍 Pantanal — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pantanal-jf-143199-1497735536
+
+- **Terra 21 hectares com Água e Vista Mar**
+  - 💰 R$ 1.650.000 | 📐 210000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terra-21-hectares-com-agua-e-vista-mar-1497732543
+
+- **Terreno 294,35 m² à venda em Jaguaruna, SC - 100m da Praia!**
+  - 💰 R$ 50.000 | 📐 35 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-294-35-m-a-venda-em-jaguaruna-sc-100m-da-praia-1497730448
+
+- **TERRENO**
+  - 💰 R$ 35.000 | 📐 400 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1497725834
+
+- **Terreno em Condomínio TERRENO EM CONDOMÍNIO Garopaba - SC - Centro**
+  - 💰 R$ 2.650.000 | 📐 1269 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-terreno-em-condominio-garopaba-sc-centro-1497715968
+
+- **Terreno a venda na Praia do Rosa, com praia particular**
+  - 💰 R$ 25.000.000 | 📐 176482 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-do-rosa-com-praia-particular-1497715042
+
+- **Pedras**
+  - 💰 R$ 250.000 | 📐 250 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/pedras-1434778244
+
+- **Excelente terreno à venda em Capoeiras!!**
+  - 💰 R$ 890.000 | 📐 424 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-a-venda-em-capoeiras-1497705502
+
+- **Imóvel para venda com 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1497683346
+
+- **Vendo terreno em santo amaro.**
+  - 💰 R$ 160.000 | 📐 600 m²
+  - 📍 Flor de Nápolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-santo-amaro-1497673074
+
+- **Sítio 2 hectares para Sítio, Água de Fonte Própria, Cubatão, São Pedro**
+  - 💰 R$ 275.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-2-hectares-para-sitio-agua-de-fonte-propria-cubatao-sao-pedro-de-alcantara-sc-1497665515
+
+- **Sítio 2 Hectares, Riacho, Fonte d?água, Pastagem, Barro Branco, São Pe**
+  - 💰 R$ 300.000 | 📐 20358 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-2-hectares-riacho-fonte-d-agua-pastagem-barro-branco-sao-pedro-de-alcantara-1497663185
+
+- **Área Urbana 20.100,00 m² (ZR1), Acesso Pavimentado, Santa Tereza, São **
+  - 💰 R$ 475.000 | 📐 20100 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-urbana-20-100-00-m-zr1-acesso-pavimentado-santa-tereza-sao-pedro-de-alcantara-1497660200
+
+- **Sítio 40.000 m², Nascente, Roça, Invernada, São Pedro De Alcântara SC**
+  - 💰 R$ 350.000 | 📐 40000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-40-000-m-nascente-roca-invernada-sao-pedro-de-alcantara-sc-1497648567
+
+- **Sítio 3,7 hectares, Pastagem, Roça, 2ª Linha, Divisa de São Pedro com **
+  - 💰 R$ 265.000 | 📐 37000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-3-7-hectares-pastagem-roca-2-linha-divisa-de-sao-pedro-com-aguas-mornas-sc-1497642778
+
+- **Vender 24,880 mil metros quadrados**
+  - 💰 R$ 1.800.000 | 📐 24880 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vender-24-880-mil-metros-quadrados-1497767331
+
+- **Barbada vende-se terreno**
+  - 💰 R$ 220.000 | 📐 400 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vende-se-terreno-1497768234
+
