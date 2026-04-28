@@ -74987,3 +74987,266 @@
   - 📍 Lagoa Dos Esteves — Balneário Rincão
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-balneario-rincao-lagoa-dos-esteves-387m2-RS1700000/id-39232951/
 
+
+## 🆕 52 novos anúncios — 28/04/2026 11:19
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 700.000 | 📐 38000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1497524757
+
+- **Sitio com escritura e proximo da praça de Angelina - SC**
+  - 💰 R$ 350.000 | 📐 40000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-e-proximo-da-praca-de-angelina-sc-1497524466
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1497521695
+
+- **Casa no Condominio Quinta dos Guimarães!**
+  - 💰 R$ 1.850.000 | 📐 211 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-no-condominio-quinta-dos-guimaraes-1497520573
+
+- **TERRENO Á VENDA NA PRAIA DO SONHO**
+  - 💰 R$ 235.000 | 📐 380 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-do-sonho-1497517599
+
+- **Terreno á 600 mts da praia dos Ingleses /Região das Gaivotas**
+  - 💰 R$ 1.010.000 | 📐 1043 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-600-mts-da-praia-dos-ingleses-regiao-das-gaivotas-1497512658
+
+- **Terreno com vista panorâmica na Trindade**
+  - 💰 R$ 1.060.000 | 📐 530 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-panoramica-na-trindade-1497511522
+
+- **Venda | Terreno Trindade**
+  - 💰 R$ 1.090.000 | 📐 527 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-trindade-1497506612
+
+- **LOTE NO LOTEAMENTO RICARDO BRESSAN, MONTE CASTELO**
+  - 💰 R$ 125.000 | 📐 252 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-loteamento-ricardo-bressan-monte-castelo-1497505863
+
+- **Terreno 581m² à venda em Garopaba/SC no bairro Areias do Macacu plano **
+  - 💰 R$ 500.000 | 📐 581 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-581m-a-venda-em-garopaba-sc-no-bairro-areias-do-macacu-plano-com-escritura-1497505283
+
+- **Terreno à venda no Jardim Panorâmico  Garopaba/SC**
+  - 💰 R$ 799.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-jardim-panoramico-garopaba-sc-1497504894
+
+- **Terreno 530m² à venda em Garopaba/SC na Praia da Ferrugem a 300m do ma**
+  - 💰 R$ 1.190.000 | 📐 530 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-530m-a-venda-em-garopaba-sc-na-praia-da-ferrugem-a-300m-do-mar-1497504197
+
+- **Terreno 3.013m² à venda em Garopaba/SC na Praia da Ferrugem com vista **
+  - 💰 R$ 1.500.000 | 📐 3013 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-3-013m-a-venda-em-garopaba-sc-na-praia-da-ferrugem-com-vista-para-lagoa-1497503628
+
+- **Terreno 364m² à venda em Garopaba/SC no Loteamento Miramar com escritu**
+  - 💰 R$ 1.400.000 | 📐 364 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-364m-a-venda-em-garopaba-sc-no-loteamento-miramar-com-escritura-1497503461
+
+- **Terreno 600m² à venda em Garopaba/SC no Ambrósio com uso comercial ou **
+  - 💰 R$ 580.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-600m-a-venda-em-garopaba-sc-no-ambrosio-com-uso-comercial-ou-residencial-1497503212
+
+- **Terreno 265m² à venda em Garopaba/SC no Ambrósio com escritura e finan**
+  - 💰 R$ 420.000 | 📐 265 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-265m-a-venda-em-garopaba-sc-no-ambrosio-com-escritura-e-financiamento-1497503183
+
+- **Terreno 1.000m² à venda em Garopaba/SC no Macacu com vista para lagoa**
+  - 💰 R$ 350.000 | 📐 1000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-000m-a-venda-em-garopaba-sc-no-macacu-com-vista-para-lagoa-1497503058
+
+- **Área à venda em Garopaba/SC no Macacu com vista para lagoa e mar 11.07**
+  - 💰 R$ 850.000 | 📐 11070 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-a-venda-em-garopaba-sc-no-macacu-com-vista-para-lagoa-e-mar-11-070m-1497503047
+
+- **Terreno 1.528m² à venda em Garopaba/SC Encantada ZM1 regularizado e fi**
+  - 💰 R$ 670.000 | 📐 1528 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-528m-a-venda-em-garopaba-sc-encantada-zm1-regularizado-e-financiavel-1497503051
+
+- **Terreno 973m² à venda em Garopaba/SC na Praia da Gamboa com vista para**
+  - 💰 R$ 980.000 | 📐 973 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-973m-a-venda-em-garopaba-sc-na-praia-da-gamboa-com-vista-para-o-mar-1497502972
+
+- **Terreno 1.158m² à venda em Garopaba/SC no Campo Duna a 200m da Lagoa d**
+  - 💰 R$ 600.000 | 📐 1158 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-158m-a-venda-em-garopaba-sc-no-campo-duna-a-200m-da-lagoa-de-ibiraquera-1497502909
+
+- **Lotes à venda em Garopaba/SC no Condomínio Pôr do Sol com vista para l**
+  - 💰 R$ 580.050 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-a-venda-em-garopaba-sc-no-condominio-por-do-sol-com-vista-para-lagoa-e-cidade-1497502816
+
+- **Área 93.000m² à venda em Garopaba/SC no Macacu com vista para mar e la**
+  - 💰 R$ 3.500.000 | 📐 93000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-93-000m-a-venda-em-garopaba-sc-no-macacu-com-vista-para-mar-e-lagoa-1497502824
+
+- **Terreno no bairro Bela Vista Palhoça**
+  - 💰 R$ 8.000 | 📐 6981 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-bela-vista-palhoca-1497502836
+
+- **Terrenos à venda em Garopaba/SC no Ferraz com escritura opções de 390m**
+  - 💰 R$ 1.260.000 | 📐 810 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-em-garopaba-sc-no-ferraz-com-escritura-opcoes-de-390m-e-420m-1497502778
+
+- **Terreno 2.574m² à venda em Garopaba/SC no Ferraz com vista para o mar**
+  - 💰 R$ 1.700.000 | 📐 2574 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-574m-a-venda-em-garopaba-sc-no-ferraz-com-vista-para-o-mar-1497502787
+
+- **Terreno 422m² à venda em Garopaba/SC Areias do Macacu plano com viabil**
+  - 💰 R$ 500.000 | 📐 422 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-422m-a-venda-em-garopaba-sc-areias-do-macacu-plano-com-viabilidade-para-3-unidade-1497502709
+
+- **Terreno 2.640m² à venda em Garopaba/SC com escritura e viabilidade de **
+  - 💰 R$ 1.490.000 | 📐 2640 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-640m-a-venda-em-garopaba-sc-com-escritura-e-viabilidade-de-construcao-1497502587
+
+- **Terreno 46.578m² à venda em Garopaba/SC Macacu com vista para mar, lag**
+  - 💰 R$ 1.650.000 | 📐 46578 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-46-578m-a-venda-em-garopaba-sc-macacu-com-vista-para-mar-lagoa-e-dunas-1497502434
+
+- **Terreno 2.000m² à venda em Garopaba/SC no Macacu com vista para lagoa **
+  - 💰 R$ 900.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-000m-a-venda-em-garopaba-sc-no-macacu-com-vista-para-lagoa-e-mar-1497502366
+
+- **Terreno 3.554m² à venda em Garopaba/SC no Macacu com vista panorâmica **
+  - 💰 R$ 550.000 | 📐 3554 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-3-554m-a-venda-em-garopaba-sc-no-macacu-com-vista-panoramica-para-o-mar-1497502370
+
+- **Terreno 600m² à venda em Garopaba/SC no Condomínio Garopaba Internacio**
+  - 💰 R$ 700.000 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-600m-a-venda-em-garopaba-sc-no-condominio-garopaba-internacional-com-infraestrutu-1497502191
+
+- **Terreno 400m² à venda em Garopaba/SC no bairro Ferraz com escritura**
+  - 💰 R$ 950.000 | 📐 400 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-400m-a-venda-em-garopaba-sc-no-bairro-ferraz-com-escritura-1497493609
+
+- **Terreno 325m² à venda em Garopaba/SC no bairro Ferraz com escritura**
+  - 💰 R$ 850.000 | 📐 325 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-325m-a-venda-em-garopaba-sc-no-bairro-ferraz-com-escritura-1497492420
+
+- **Terreno 3.367m² à venda em Garopaba/SC no Macacu com potencial de valo**
+  - 💰 R$ 460.000 | 📐 1639 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-3-367m-a-venda-em-garopaba-sc-no-macacu-com-potencial-de-valorizacao-1497492368
+
+- **Terreno 303m² em Condomínio - Pedra Branca**
+  - 💰 R$ 960.000 | 📐 303 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-303m-em-condominio-pedra-branca-1497490084
+
+- **Terreno de 360m² no Santa Mônica, com viabilidade para 3 pavimentos**
+  - 💰 R$ 2.200.000 | 📐 360 m²
+  - 📍 Santa Mônica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360m-no-santa-monica-com-viabilidade-para-3-pavimentos-1497486896
+
+- **Terreno Exclusivo em Meio à Natureza - 1.499m² com Vista Panorâmica e **
+  - 💰 R$ 480.000 | 📐 1499 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-em-meio-a-natureza-1-499m-com-vista-panoramica-e-potencial-de-valoriz-1497486275
+
+- **Terreno para venda possui 300 metros quadrados em Praia do Camacho  Ca**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-possui-300-metros-quadrados-em-praia-do-camacho-camacho-jaguaruna-1402356727
+
+- **Casa com 4 quartos à venda na Avenida Getúlio Vargas, 900, Centro, Ara**
+  - 💰 R$ 850.000 | 📐 200 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-sc-ararangua-centro-RS850000/id-30611248/
+
+- **Casa com 3 quartos à venda no Urussanguinha, Araranguá**
+  - 💰 R$ 480.000 | 📐 113 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-urussanguinha-300m2-RS480000/id-41273475/
+
+- **Casa com 2 quartos à venda na Urussanguinha, 5, Urussanguinha, Ararang**
+  - 💰 R$ 370.000 | 📐 360 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-urussanguinha-360m2-RS370000/id-39681364/
+
+- **Casa para Venda em Sombrio, Raizeira, 3 dormitórios, 1 banheiro, 1 vag**
+  - 💰 R$ 230.000 | 📐 475 m²
+  - 📍 Raizeira — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-raizeira-475m2-RS230000/id-30990919/
+
+- **Casa para Venda em Sombrio, Centro, 4 dormitórios, 1 suíte, 2 banheiro**
+  - 💰 R$ 3.500.000 | 📐 452 m²
+  - 📍 Centro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-sombrio-centro-452m2-RS3500000/id-28615583/
+
+- **Casa para Venda em Sombrio, Parque das Avenidas, 3 dormitórios, 1 suít**
+  - 💰 R$ 950.000 | 📐 360 m²
+  - 📍 Parque das Avenidas — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-parque-das-avenidas-360m2-RS950000/id-25603049/
+
+- **Casa com 2 quartos à venda na Rua Santa Catarina, 520, Praia Caravelle**
+  - 💰 R$ 465.000 | 📐 86 m²
+  - 📍 Praia Caravelle — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-passo-de-torres-praia-caravelle-287m2-RS465000/id-30586357/
+
+- **Casa alto padrão 3 dormitórios, jardim américa - passo de torres**
+  - 💰 R$ 920.000 | 📐 163 m²
+  - 📍 Jardim América — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-jardim-america-314m2-RS920000/id-38340110/
+
+- **Casa em Condomínio 3 dormitórios à venda Bella Torres Passo de Torres/**
+  - 💰 R$ 891.000 | 📐 135 m²
+  - 📍 Bela Torres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-passo-de-torres-bela-torres-300m2-RS891000/id-32786925/
+
+- **Casa com 3 quartos à venda na Enseada, 275, Lagoa da Tapera, Passo de **
+  - 💰 R$ 500.000 | 📐 148 m²
+  - 📍 Lagoa da Tapera — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-lagoa-da-tapera-150m2-RS500000/id-32851181/
+
+- **EMICREI VENDE BELÍSSIMA Casa com 4 dormitórios à venda, 330 m² por R$ **
+  - 💰 R$ 2.890.000 | 📐 330 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-600m2-RS2890000/id-39772558/
+
+- **Excelente Casa na Quadra Mar - Prox. ao Antigo Gota D Água - no Centro**
+  - 💰 R$ 530.000 | 📐 130 m²
+  - 📍 Campo Bom — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-jaguaruna-campo-bom-640m2-RS530000/id-41858250/
+
+- **Casa com 3 quartos à venda no Camacho, Jaguaruna**
+  - 💰 R$ 300.000 | 📐 ? m²
+  - 📍 Camacho — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-camacho-RS300000/id-39434889/
+
