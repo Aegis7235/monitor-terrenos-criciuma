@@ -76455,3 +76455,186 @@
   - 📍 São João do Rio Vermelho — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-398-metros-quadrados-em-sao-joao-do-rio-vermelho-florianopolis-1497934466
 
+
+## 🆕 36 novos anúncios — 29/04/2026 22:13
+
+- **Terreno no Bairro Carianos**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-carianos-1498059452
+
+- **Terreno 405m2 - aluguel no Carianos**
+  - 💰 R$ 2.300 | 📐 405 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-405m2-aluguel-no-carianos-1441685346
+
+- **Vendo chácara Acesso norte Lages**
+  - 💰 R$ 1.400.000 | 📐 9650 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-chacara-acesso-norte-lages-1498045386
+
+- **Terrento 227,24 m² Trindade - BRN**
+  - 💰 R$ 1.300.000 | 📐 240 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrento-227-24-m-trindade-brn-1498041354
+
+- **Sítio com 20.004,84m2 em Anitápolis-SC**
+  - 💰 R$ 1.300.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-20-004-84m2-em-anitapolis-sc-1498030728
+
+- **Ótimo Sítio Com Ampla Casa e 20.000 m² / 2 HC**
+  - 💰 R$ 750.000 | 📐 140 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-sitio-com-ampla-casa-e-20-000-m-2-hc-1498024248
+
+- **TERRENO AEROPARK (ANEXO AO AEROCLUBE DE SÃO JOSÉ)**
+  - 💰 R$ 1.490.000 | 📐 947 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-aeropark-anexo-ao-aeroclube-de-sao-jose-1498023105
+
+- **Ótima oportunidade para construir ou investir!**
+  - 💰 R$ 250.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-para-construir-ou-investir-1498022978
+
+- **Terrento 227,24 m² Trindade - PLC**
+  - 💰 R$ 1.300.000 | 📐 240 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrento-227-24-m-trindade-plc-1498017298
+
+- **Ótima oportunidade lotes de 8x15**
+  - 💰 R$ 150.000 | 📐 120000 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-lotes-de-8x15-1498016800
+
+- **Terreno 360m² Altos da Pedra - Pedra Branca, Palhoça/SC**
+  - 💰 R$ 798.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-altos-da-pedra-pedra-branca-palhoca-sc-1498015125
+
+- **Sitio com Rio nas montanhas de Anitápolis SC**
+  - 💰 R$ 650.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-rio-nas-montanhas-de-anitapolis-sc-1498010007
+
+- **Sitio na geral de Caldas da Imperatriz!**
+  - 💰 R$ 950.000 | 📐 28700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-na-geral-de-caldas-da-imperatriz-1498008753
+
+- **Sitío com vista para o mar na Caieira da Barra do Sul**
+  - 💰 R$ 2.200.000 | 📐 13500 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-vista-para-o-mar-na-caieira-da-barra-do-sul-1498006339
+
+- **Terreno no Bairro Planejado Rio Parque - Tijucas SC, Parque Linear, Ma**
+  - 💰 R$ 449.000 | 📐 250 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-planejado-rio-parque-tijucas-sc-parque-linear-marina-e-open-mall-1498006011
+
+- **Terreno Rural em Águas Mornas**
+  - 💰 R$ 430.000 | 📐 370000 m²
+  - 📍 Fazenda do Sacramento — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-em-aguas-mornas-1498005911
+
+- **Imóvel a venda no Campeche - ÁREA DE 6.000 m²  OPORTUNIDADE PARA INCOR**
+  - 💰 R$ 10.650.000 | 📐 6000 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-a-venda-no-campeche-area-de-6-000-m-oportunidade-para-incorporacao-1498003830
+
+- **Terreno em loteamento com 371 metros quadrados em Campeche - Florianóp**
+  - 💰 R$ 1.370.000 | 📐 371 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-com-371-metros-quadrados-em-campeche-florianopolis-sc-1498003844
+
+- **Sitio com casa e duas cabanas...**
+  - 💰 R$ 980.000 | 📐 11000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-e-duas-cabanas-1498003822
+
+- **Mega sitio proximo do Termas do Tabuleiro Santo Amaro da Imperatriz - **
+  - 💰 R$ 4.500.000 | 📐 250000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/mega-sitio-proximo-do-termas-do-tabuleiro-santo-amaro-da-imperatriz-sc-1498003850
+
+- **Sitio em Anitápolis - SC**
+  - 💰 R$ 220.000 | 📐 20000 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-anitapolis-sc-1498002126
+
+- **Sitio com escritura em São Pedro de Alcântara - SC**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-em-sao-pedro-de-alcantara-sc-1498001404
+
+- **Terrenos em Criciúma - Excelente oportunidade para investir ou constru**
+  - 💰 R$ 1.021 | 📐 362 m²
+  - 📍 Sangão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-criciuma-excelente-oportunidade-para-investir-ou-construir-1497998669
+
+- **Chácara pronta para uso em Rancho Queimado - SC**
+  - 💰 R$ 650.000 | 📐 1000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-pronta-para-uso-em-rancho-queimado-sc-1497991946
+
+- **Imóvel para venda possui 509 metros quadrados em Ingleses do Rio Verme**
+  - 💰 R$ 980.000 | 📐 509 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-509-metros-quadrados-em-ingleses-do-rio-vermelho-florianopolis-1497988847
+
+- **Sitio em Rancho Queimado - SC**
+  - 💰 R$ 2.000.000 | 📐 63000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-rancho-queimado-sc-1497988746
+
+- **lote com escritura em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 160.000 | 📐 380 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-com-escritura-em-santo-amaro-da-imperatriz-sc-1497987441
+
+- **Sitio com escritura publica!**
+  - 💰 R$ 380.000 | 📐 20000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-publica-1497982771
+
+- **Excelente terreno 129m², cond. fechado-  em Potecas - São José - SC**
+  - 💰 R$ 235.000 | 📐 129 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-129m-cond-fechado-em-potecas-sao-jose-sc-1497982200
+
+- **Oportunidade! Terreno em Vargem Pequena - Florianópolis**
+  - 💰 R$ 30.000 | 📐 50533 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-vargem-pequena-florianopolis-1497715648
+
+- **Oportunidade! Terreno em Canasvieiras - Florianópolis**
+  - 💰 R$ 47.000 | 📐 5000 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-canasvieiras-florianopolis-1497714235
+
+- **PRAIA DA PINHEIRA/TERRENO**
+  - 💰 R$ 280.000 | 📐 240 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/praia-da-pinheira-terreno-1496095897
+
+- **Terreno para Investimento Frente Avenida**
+  - 💰 R$ 39.900 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-frente-avenida-1498025268
+
+- **Terreno Industrial em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 4.000.000 | 📐 8615 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-em-santo-amaro-da-imperatriz-sc-1497998128
+
+- **Imóvel para venda tem 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1497997945
+
+- **Chácara / sítio com 2 quartos à venda na Rua Antônio Nunes de Souza, 1**
+  - 💰 R$ 750.000 | 📐 140 m²
+  - 📍 Jardim Elizabeth — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-cocal-do-sul-jardim-elizabeth-20000m2-RS750000/id-42047804/
+
