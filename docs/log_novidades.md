@@ -77172,3 +77172,121 @@
   - 📍 Vargem do Bom Jesus — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-ingleses-do-rio-vermelho-sc-1498150753
 
+
+## 🆕 23 novos anúncios — 30/04/2026 22:09
+
+- **Terreno Residencial próximo à praia do Campeche.**
+  - 💰 R$ 10.600.000 | 📐 6000 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-proximo-a-praia-do-campeche-1498322000
+
+- **Terreno de esquina no bairro Golfinhos**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-bairro-golfinhos-1498317701
+
+- **Terreno 365m² - Potecas São José - BRN**
+  - 💰 R$ 375.000 | 📐 365 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-365m-potecas-sao-jose-brn-1498313271
+
+- **Terreno 452m² em Condomínio - Forquilhas - BRN**
+  - 💰 R$ 400.000 | 📐 452 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-452m-em-condominio-forquilhas-brn-1498310675
+
+- **Terreno Plano, Portaria 24 horas, 451,98 M² - Forquilhas - BRN**
+  - 💰 R$ 400.000 | 📐 452 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-portaria-24-horas-451-98-m-forquilhas-brn-1498310250
+
+- **Casa de condomínio para venda com 887 metros quadrados em Centro - Ran**
+  - 💰 R$ 270.000 | 📐 887 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-condominio-para-venda-com-887-metros-quadrados-em-centro-rancho-queimado-sc-1498298590
+
+- **Ótimo terreno na beira mar na Lagoa Cortada (Bairro Furnas)**
+  - 💰 R$ 1.600.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-na-beira-mar-na-lagoa-cortada-bairro-furnas-1498296196
+
+- **erreno de Esquina à Venda no Reserva da Pedra | 375m² em Condomínio Fe**
+  - 💰 R$ 950.000 | 📐 375 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/erreno-de-esquina-a-venda-no-reserva-da-pedra-375m-em-condominio-fechado-pedra-branca-1498291970
+
+- **Terreno Plano, Portaria 24 horas, 451,98 M² - Forquilhas - PLC**
+  - 💰 R$ 400.000 | 📐 452 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-portaria-24-horas-451-98-m-forquilhas-plc-1498289426
+
+- **Terreno 365m² - Potecas São José - PLC**
+  - 💰 R$ 375.000 | 📐 365 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-365m-potecas-sao-jose-plc-1498288596
+
+- **Terreno 452m² em Condomínio - Forquilhas - PLC**
+  - 💰 R$ 400.000 | 📐 452 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-452m-em-condominio-forquilhas-plc-1498286423
+
+- **Terreno em biguaçu 360m**
+  - 💰 R$ 185.000 | 📐 360 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-biguacu-360m-1498274227
+
+- **Vendo terreno 9x20 no sertão do maruim  perto da Arena Opus são José S**
+  - 💰 R$ 148.000 | 📐 180 m²
+  - 📍 Picadas do Sul — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-9x20-no-sertao-do-maruim-perto-da-arena-opus-sao-jose-sc-com-escritura-1498273633
+
+- **Vendo terreno  de sítio  em laguna**
+  - 💰 R$ 100.000 | 📐 1200 m²
+  - 📍 Ribeirão Pequeno — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-de-sitio-em-laguna-1498272658
+
+- **Imóvel para venda com 20000 metros quadrados em Invernadinha - Rancho **
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-20000-metros-quadrados-em-invernadinha-rancho-queimado-sc-1498266386
+
+- **Imóvel para venda com 6431 metros quadrados em Campeche - Florianópoli**
+  - 💰 R$ 11.500.000 | 📐 6431 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-6431-metros-quadrados-em-campeche-florianopolis-sc-1498264455
+
+- **Terreno em sorocaba- Paulo lopes- sc**
+  - 💰 R$ 88.000 | 📐 385 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sorocaba-paulo-lopes-sc-1498253567
+
+- **Terreno Urbano**
+  - 💰 R$ 150.000 | 📐 425 m²
+  - 📍 Praia de Fora — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-1498251382
+
+- **Terreno pra quem quer sair do aluguel .**
+  - 💰 R$ 50.000 | 📐 180 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pra-quem-quer-sair-do-aluguel-1498248907
+
+- **vendo lote de frente para o mar**
+  - 💰 R$ 150.000 | 📐 650 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-de-frente-para-o-mar-1498248175
+
+- **Terreno de barbada em Balneário Gaivota**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-barbada-em-balneario-gaivota-1498244960
+
+- **Terreno - Rancho Queimado SC**
+  - 💰 R$ 350.000 | 📐 7365 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rancho-queimado-sc-1498241865
+
+- **Terreno a venda bairro Ambrósio, Garopaba-SC**
+  - 💰 R$ 690.000 | 📐 363 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-ambrosio-garopaba-sc-1498241864
+
