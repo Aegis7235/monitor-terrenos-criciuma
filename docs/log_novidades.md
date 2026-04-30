@@ -76971,3 +76971,61 @@
   - 📍  — Governador Celso Ramos
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vila-verde-1496238714
 
+
+## 🆕 11 novos anúncios — 30/04/2026 11:08
+
+- **Terreno à venda, 300 m² por R$ 280.000,00 - Potecas - São José/SC**
+  - 💰 R$ 280.000 | 📐 300 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-280-000-00-potecas-sao-jose-sc-1498167066
+
+- **Terreno em Capoeiras, Florianópolis/SC**
+  - 💰 R$ 450.000 | 📐 240 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-capoeiras-florianopolis-sc-1498158871
+
+- **Terreno 308m² à venda em Garopaba/SC no Ambrósio com ótima localização**
+  - 💰 R$ 490.000 | 📐 308 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-308m-a-venda-em-garopaba-sc-no-ambrosio-com-otima-localizacao-1498154247
+
+- **Terrenos à venda em Garopaba condomínio Pôr do Sol com vista lagoa**
+  - 💰 R$ 590.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-em-garopaba-condominio-por-do-sol-com-vista-lagoa-1498153877
+
+- **Terreno no Centro de Sombrio..**
+  - 💰 R$ 550.000 | 📐 375 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-sombrio-1498149677
+
+- **Excelente Terreno com 375m² no Aririú em Palhoça/SC: NÃO ACEITA TROCA!**
+  - 💰 R$ 380.000 | 📐 375 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-com-375m-no-aririu-em-palhoca-sc-nao-aceita-troca-1498144451
+
+- **Terreno venda Sao Jose Potecas**
+  - 💰 R$ 150.000 | 📐 396 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-sao-jose-potecas-1498144436
+
+- **Venda de Terreno de 420m² no Jardim Janaína, Biguaçu-SC: Oportunidade **
+  - 💰 R$ 500.000 | 📐 420 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-terreno-de-420m-no-jardim-janaina-biguacu-sc-oportunidade-unica-em-localizacao-1498143790
+
+- **Terreno à venda em Forquilhas São José com área total de 1.190m² (Viab**
+  - 💰 R$ 595.000 | 📐 1190 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-forquilhas-sao-jose-com-area-total-de-1-190m-viabilidade-residencial-1498143818
+
+- **Terreno no Centro de Sombrio..**
+  - 💰 R$ 550.000 | 📐 375 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-sombrio-1498156272
+
+- **Terreno no Centro de Sombrio..**
+  - 💰 R$ 550.000 | 📐 375 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-sombrio-1498154081
+
