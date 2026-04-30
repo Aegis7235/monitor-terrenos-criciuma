@@ -76638,3 +76638,336 @@
   - 📍 Jardim Elizabeth — Cocal do Sul
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-cocal-do-sul-jardim-elizabeth-20000m2-RS750000/id-42047804/
 
+
+## 🆕 66 novos anúncios — 30/04/2026 06:18
+
+- **Terreno à venda, 360 m² por R$ 140.000,00 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 140.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-140-000-00-aracatuba-imbituba-sc-1498141328
+
+- **Terreno Campeche - Cravo Branco**
+  - 💰 R$ 10.500.000 | 📐 5947 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-cravo-branco-1498141217
+
+- **Terreno à venda, 360 m² por R$ 140.000,00 - Araçatuba - Imbituba/SC**
+  - 💰 R$ 140.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-140-000-00-aracatuba-imbituba-sc-1498141163
+
+- **SÍTIO - INGLESES DO RIO VERMELHO - SC**
+  - 💰 R$ 10.000.000 | 📐 650 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-ingleses-do-rio-vermelho-sc-1498138691
+
+- **Venda-Terreno-Imbituba-Village**
+  - 💰 R$ 477.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-village-1498138257
+
+- **Venda-Terreno-Imbituba-Centro**
+  - 💰 R$ 1.100.000 | 📐 660 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-centro-1498138117
+
+- **Seu refúgio particular a minutos da Lagoa da Conceição**
+  - 💰 R$ 280.000 | 📐 460 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-refugio-particular-a-minutos-da-lagoa-da-conceicao-1498138116
+
+- **Terreno no Rio Tavares**
+  - 💰 R$ 1.300.000 | 📐 545 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-tavares-1498138018
+
+- **Terreno na Lagoa da Conceição com viabilidade comercial**
+  - 💰 R$ 26.000.000 | 📐 10800 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-lagoa-da-conceicao-com-viabilidade-comercial-1498138031
+
+- **Terreno em condomínio - Campeche**
+  - 💰 R$ 1.400.000 | 📐 512 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-campeche-1498137994
+
+- **Terreno no Canto da Lagoa**
+  - 💰 R$ 5.300.000 | 📐 4356 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-canto-da-lagoa-1498137526
+
+- **Terreno em Condomínio Fechado - Ingleses, Florianópolis**
+  - 💰 R$ 500.000 | 📐 400 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-ingleses-florianopolis-1498137538
+
+- **Terreno em Rio Lageado, em Alfredo Wagner - SC**
+  - 💰 R$ 850.000 | 📐 60000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-rio-lageado-em-alfredo-wagner-sc-1498137461
+
+- **Terreno em Loteamento de Alto Padrão na Lagoa da Conceição - Viabilida**
+  - 💰 R$ 1.760.000 | 📐 425 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-de-alto-padrao-na-lagoa-da-conceicao-viabilidade-arp2-5-1498137438
+
+- **Terreno na Barra da Lagoa**
+  - 💰 R$ 3.900.000 | 📐 2009 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-barra-da-lagoa-1498137435
+
+- **Terreno - CAMPECHE**
+  - 💰 R$ 430.000 | 📐 400 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-1498137440
+
+- **Terreno com Escritura Pública - Barra da Lagoa**
+  - 💰 R$ 895.000 | 📐 385 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-barra-da-lagoa-1498137346
+
+- **Terreno em condomínio - Ingleses**
+  - 💰 R$ 495.000 | 📐 380 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-ingleses-1498137327
+
+- **Terreno em loteamento na Lagoa da Conceição - Florianópolis**
+  - 💰 R$ 1.705.000 | 📐 540 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-na-lagoa-da-conceicao-florianopolis-1498137169
+
+- **Terreno com escritura pública - Vargem Pequena**
+  - 💰 R$ 5.000.000 | 📐 28000 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-vargem-pequena-1498137118
+
+- **Terreno em Garopaba**
+  - 💰 R$ 6.299.000 | 📐 32000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-1498137124
+
+- **Terreno à Venda na Lagoa da Conceição - Florianópolis**
+  - 💰 R$ 1.950.000 | 📐 616 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-lagoa-da-conceicao-florianopolis-1498137112
+
+- **Terreno com Escritura Pública - Lagoa da Conceição**
+  - 💰 R$ 850.000 | 📐 250 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-lagoa-da-conceicao-1498137126
+
+- **Terreno no Rio Tavares**
+  - 💰 R$ 876.000 | 📐 400 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-tavares-1498137107
+
+- **Terreno com vista para a Lagoa**
+  - 💰 R$ 4.500.000 | 📐 5600 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-a-lagoa-1498137087
+
+- **Terreno Amplo na Lagoa da Conceição**
+  - 💰 R$ 3.900.000 | 📐 2996 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-na-lagoa-da-conceicao-1498137090
+
+- **Terreno na beira do Canal da Barra da Lagoa**
+  - 💰 R$ 1.200.000 | 📐 584 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-beira-do-canal-da-barra-da-lagoa-1498137093
+
+- **Terreno com 815,5 m² à venda no João Paulo**
+  - 💰 R$ 3.370.000 | 📐 815 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-815-5-m-a-venda-no-joao-paulo-1498137071
+
+- **Terreno com 390m² no Rio Tavares - Ideal para Construir com Qualidade **
+  - 💰 R$ 995.000 | 📐 390 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-390m-no-rio-tavares-ideal-para-construir-com-qualidade-de-vida-1498137068
+
+- **Lote - Campeche**
+  - 💰 R$ 1.150.906 | 📐 453 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-campeche-1498137052
+
+- **Terreno 360m² - Lagoa da Conceição**
+  - 💰 R$ 850.000 | 📐 360 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-lagoa-da-conceicao-1498137054
+
+- **Terreno em condomínio fechado - Praia do Moçambique**
+  - 💰 R$ 450.000 | 📐 400 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-praia-do-mocambique-1498137030
+
+- **Terreno com Viabilidade Comercial**
+  - 💰 R$ 4.000.000 | 📐 15356 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-comercial-1498136996
+
+- **Terreno com escritura pública - Lagoa da Conceição**
+  - 💰 R$ 2.240.000 | 📐 539 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-lagoa-da-conceicao-1498137033
+
+- **Amplo Terreno com 1.010m² no Porto da Lagoa - Localização Privilegiada**
+  - 💰 R$ 3.900.000 | 📐 1010 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-com-1-010m-no-porto-da-lagoa-localizacao-privilegiada-1498136979
+
+- **Terrenos no Centrinho da Lagoa da Conceição, local privilegiado**
+  - 💰 R$ 1.800.000 | 📐 540 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-centrinho-da-lagoa-da-conceicao-local-privilegiado-1498136981
+
+- **Terreno em loteamento na Lagoa da Conceição - Florianópolis**
+  - 💰 R$ 1.800.000 | 📐 532 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-na-lagoa-da-conceicao-florianopolis-1498136983
+
+- **Oportunidade Única em LAURO MULLER - SC | Tipo: Terreno | Negociação: **
+  - 💰 R$ 69.332 | 📐 595 m²
+  - 📍  — Lauro Müller
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-lauro-muller-sc-tipo-terreno-negociacao-licitacao-aberta-s-1498136249
+
+- **Terreno no bairro Vargem Grande, em Águas Mornas - SC**
+  - 💰 R$ 330.000 | 📐 42286 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-vargem-grande-em-aguas-mornas-sc-1498136040
+
+- **Terreno no bairro Mar das Pedras, em Biguaçu - SC**
+  - 💰 R$ 160.000 | 📐 288 m²
+  - 📍 Mar das Pedras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-mar-das-pedras-em-biguacu-sc-1498135862
+
+- **Terreno à venda, 576 m² por R$ 500.000,00 - Daniela - Florianópolis/SC**
+  - 💰 R$ 500.000 | 📐 576 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-576-m-por-r-500-000-00-daniela-florianopolis-sc-1498135842
+
+- **Lindo lote na Laureano com 218 m² com projeto aprovado.**
+  - 💰 R$ 580.000 | 📐 218 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-lote-na-laureano-com-218-m-com-projeto-aprovado-1498135459
+
+- **Amplo terreno à venda, com 3 casas de alvenaria, Caiacanga, FLORIANÓPO**
+  - 💰 R$ 6.000.000 | 📐 17000 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-a-venda-com-3-casas-de-alvenaria-caiacanga-florianopolis-sc-1498135401
+
+- **Terreno à venda, Campeche, FLORIANOPOLIS - SC**
+  - 💰 R$ 22.000.000 | 📐 18000 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-campeche-florianopolis-sc-1498135379
+
+- **Terreno plano no Campeche | 225m² | Pronto para construir**
+  - 💰 R$ 500.000 | 📐 225 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-no-campeche-225m-pronto-para-construir-1498135114
+
+- **Terreno Financiável Sul da Ilha**
+  - 💰 R$ 700.000 | 📐 375 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-financiavel-sul-da-ilha-1498135123
+
+- **Terrento 227,24 m² Trindade - EST**
+  - 💰 R$ 1.300.000 | 📐 240 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrento-227-24-m-trindade-est-1498130773
+
+- **TERRENO RURAL em SÃO JOÃO BATISTA - SC, Colônia Nova Itália**
+  - 💰 R$ 480.000 | 📐 5775 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-em-sao-joao-batista-sc-colonia-nova-italia-1498122980
+
+- **Terreno no Bairro Carianos**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-carianos-1498120536
+
+- **Terreno em Leilão - Pantano do Sul - Florianópolis - SC**
+  - 💰 R$ 257.175 | 📐 390 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-leilao-pantano-do-sul-florianopolis-sc-1498113808
+
+- **Terreno/ Rio Vermelho**
+  - 💰 R$ 1.000.000 | 📐 7175 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rio-vermelho-1498111663
+
+- **Terreno a venda loteamento jardins, palhoça**
+  - 💰 R$ 165.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-jardins-palhoca-1498108896
+
+- **Área de 710 m² na Pinheira com 28m de frente para avenida ideal para e**
+  - 💰 R$ 1.450.000 | 📐 710 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-de-710-m-na-pinheira-com-28m-de-frente-para-avenida-ideal-para-empreendimento-multif-1498103274
+
+- **Terrento 227,24 m² Trindade - CEN**
+  - 💰 R$ 1.300.000 | 📐 240 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrento-227-24-m-trindade-cen-1498100357
+
+- **Terreno com IPTU individual, Costa de dentro Açores**
+  - 💰 R$ 149.000 | 📐 220 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-iptu-individual-costa-de-dentro-acores-1498099419
+
+- **SÍTIO À VENDA PRÓXIMO À LAGOA!**
+  - 💰 R$ 1.800.000 | 📐 100 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-venda-proximo-lagoa-1498099095
+
+- **Terreno à venda no Centro de Balneário Rincão!**
+  - 💰 R$ 320.000 | 📐 300 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-balneario-rincao-1498098041
+
+- **TERRENO EM JOINVILLE**
+  - 💰 R$ 280.000 | 📐 ? m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-joinville-1498097604
+
+- **Terreno no Bairro Carianos**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-carianos-1498091736
+
+- **Terreno no Terrá Wave Resort - Potecas**
+  - 💰 R$ 235.000 | 📐 129 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-terra-wave-resort-potecas-1498086122
+
+- **Terreno em loteamento com ótima localização em Garopaba.**
+  - 💰 R$ 450.000 | 📐 471 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-com-otima-localizacao-em-garopaba-1498084015
+
+- **Terreno em Jurerê internacional**
+  - 💰 R$ 2.499.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1498079805
+
+- **Terreno a venda 580m²**
+  - 💰 R$ 110.000 | 📐 580 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-580m-1498072856
+
+- **Terreno de Esquina 300m² no Bairro Janaína  Ótimo Preço a 800m da Prai**
+  - 💰 R$ 86.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-300m-no-bairro-janaina-otimo-preco-a-800m-da-praia-1498070862
+
+- **Terreno**
+  - 💰 R$ 120.000 | 📐 ? m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1498067251
+
+- **Terreno Vila Verde**
+  - 💰 R$ 450.000 | 📐 483 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vila-verde-1496238714
+
