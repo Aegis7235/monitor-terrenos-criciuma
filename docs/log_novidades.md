@@ -77029,3 +77029,146 @@
   - 📍  — Sombrio
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-sombrio-1498154081
 
+
+## 🆕 28 novos anúncios — 30/04/2026 16:33
+
+- **Lote com 390m² - Centro - Antônio Carlos - SC**
+  - 💰 R$ 285.000 | 📐 390 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-com-390m-centro-antonio-carlos-sc-1498233760
+
+- **Terreno para Venda em Florianópolis, Morro das Pedras**
+  - 💰 R$ 650.000 | 📐 615 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-morro-das-pedras-1498232484
+
+- **Sítio em água mornas**
+  - 💰 R$ 230.000 | 📐 130 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-agua-mornas-1498229640
+
+- **Terreno do Praia Antenor**
+  - 💰 R$ 350.000 | 📐 430 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-do-praia-antenor-1498228564
+
+- **Terreno Areias de Baixo**
+  - 💰 R$ 650.000 | 📐 1 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-de-baixo-1498228577
+
+- **Terreno Areias de Baixo Próximo Ao Mercado Livre**
+  - 💰 R$ 1.950.000 | 📐 3951 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-de-baixo-proximo-ao-mercado-livre-1498228383
+
+- **Terreno Antônio Carlos**
+  - 💰 R$ 287.000 | 📐 390 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-antonio-carlos-1498228364
+
+- **Terreno Areias de Baixo**
+  - 💰 R$ 240.000 | 📐 700 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-de-baixo-1498228315
+
+- **Terreno Areias do Meio**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-do-meio-1498228334
+
+- **Canto dos Ganchos**
+  - 💰 R$ 2.800.000 | 📐 4000 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/canto-dos-ganchos-1498228124
+
+- **Cabana na Montanha Encantada - Garopaba/SC**
+  - 💰 R$ 250.000 | 📐 250 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/cabana-na-montanha-encantada-garopaba-sc-1498223084
+
+- **Terreno de 250 m² para venda no Sertão do Maruim, próximo ao CTG os Pr**
+  - 💰 R$ 265.000 | 📐 250 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-250-m-para-venda-no-sertao-do-maruim-proximo-ao-ctg-os-praianos-1498210406
+
+- **Terreno Plano, Portaria 24 horas, 451,98 M² - Forquilhas - JMS**
+  - 💰 R$ 400.000 | 📐 452 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-portaria-24-horas-451-98-m-forquilhas-jms-1498204694
+
+- **Terreno 452m² em Condomínio - Forquilhas - JMS**
+  - 💰 R$ 400.000 | 📐 452 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-452m-em-condominio-forquilhas-jms-1498203985
+
+- **Terreno Plano, Portaria 24 horas, 451,98 M² - Forquilhas**
+  - 💰 R$ 400.000 | 📐 452 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-portaria-24-horas-451-98-m-forquilhas-1498194780
+
+- **Terreno com 2 hectares para sitio em Antônio Carlos SC  na localidade **
+  - 💰 R$ 500.000 | 📐 20000 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2-hectares-para-sitio-em-antonio-carlos-sc-na-localidade-do-rachadel-1412877066
+
+- **Terreno para sitio com 4 hectares em Antônio Carlos SC na localidade d**
+  - 💰 R$ 470.000 | 📐 40000 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-com-4-hectares-em-antonio-carlos-sc-na-localidade-de-rachadel-1413965993
+
+- **TERRENO IDEAL PARA QUEM BUSCA INVESTIMENTO**
+  - 💰 R$ 29.000 | 📐 300 m²
+  - 📍 Centro — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ideal-para-quem-busca-investimento-1498183068
+
+- **OPORTUNIDADE EM AREIAS - TERRENO 300m² PROX AO GIASSI**
+  - 💰 R$ 420.000 | 📐 300 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-areias-terreno-300m-prox-ao-giassi-1498182052
+
+- **TERR. p/ POSTO COMBUSTIVEL/LOJAS - Excel. Localização frente SC 281 2**
+  - 💰 R$ 3.995.000 | 📐 2098 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terr-p-posto-combustivel-lojas-excel-localizacao-frente-sc-281-2-1400244135
+
+- **Terreno LOCADO p/ R$ 2.000,  em ótima localização Barra Aririú**
+  - 💰 R$ 369.000 | 📐 360 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-locado-p-r-2-000-em-otima-localizacao-barra-aririu-1370600800
+
+- **TERRENO 2.907m2(17,00mX175,00m) VIAB  coml/ind./MULTIF em Avenida**
+  - 💰 R$ 1.399.000 | 📐 2907 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-907m2-17-00mx175-00m-viab-coml-ind-multif-em-avenida-1458678519
+
+- **Terreno residencial**
+  - 💰 R$ 280.000 | 📐 184 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1498172949
+
+- **Terreno residencial**
+  - 💰 R$ 250.000 | 📐 754 m²
+  - 📍 Fazenda Santo Antônio — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1498171575
+
+- **Terreno à venda, 545 m² por R$ 1.400.000,00 - Rio Tavares - Florianópo**
+  - 💰 R$ 1.400.000 | 📐 545 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-545-m-por-r-1-400-000-00-rio-tavares-florianopolis-sc-1498169946
+
+- **Terreno à venda, 900 m² por R$ 2.400.000,00 - Rio Tavares - Florianópo**
+  - 💰 R$ 2.400.000 | 📐 900 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-900-m-por-r-2-400-000-00-rio-tavares-florianopolis-sc-1498169607
+
+- **Terreno à venda, 333 m² por R$ 1.200.000,00 - Rio Tavares - Florianópo**
+  - 💰 R$ 1.200.000 | 📐 333 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-333-m-por-r-1-200-000-00-rio-tavares-florianopolis-sc-1498169580
+
+- **SÍTIO - INGLESES DO RIO VERMELHO - SC**
+  - 💰 R$ 10.000.000 | 📐 650 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-ingleses-do-rio-vermelho-sc-1498150753
+
