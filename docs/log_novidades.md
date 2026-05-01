@@ -77693,3 +77693,51 @@
   - 📍 Três Barras — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-por-moto-ou-carro-1498330879
 
+
+## 🆕 9 novos anúncios — 01/05/2026 10:34
+
+- **Lote para Incorporação à venda no Caminho Novo**
+  - 💰 R$ 990.000 | 📐 969 m²
+  - 📍 Caminho Novo — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-para-incorporacao-a-venda-no-caminho-novo-1498421009
+
+- **Terrenos à venda no bairro Carianos**
+  - 💰 R$ 960.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-bairro-carianos-1498420014
+
+- **Terreno Amplo Próximo a Interpraias**
+  - 💰 R$ 180.000 | 📐 462 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-proximo-a-interpraias-1498418898
+
+- **SC 403 Ida p ingleses terreno de 1.284,14m² útil**
+  - 💰 R$ 2.480.000 | 📐 1284 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sc-403-ida-p-ingleses-terreno-de-1-284-14m-util-1361327537
+
+- **Terreno 300m² Lisboa III - Forquilhas - PLC**
+  - 💰 R$ 320.000 | 📐 300 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-lisboa-iii-forquilhas-plc-1498417221
+
+- **Terreno à venda, 150 m² por R$ 190.000,00 - Fundos - Biguaçu/SC**
+  - 💰 R$ 190.000 | 📐 150 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-150-m-por-r-190-000-00-fundos-biguacu-sc-1498414860
+
+- **Lote para Incorporação à venda no Caminho Novo**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍 Caminho Novo — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-para-incorporacao-a-venda-no-caminho-novo-1498409769
+
+- **Terreno à venda na Penha, Paulo Lopes-SC: 4.681,10 m² de área para inv**
+  - 💰 R$ 750.000 | 📐 4681 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-penha-paulo-lopes-sc-4-681-10-m-de-area-para-investimento-1498409594
+
+- **Área 81 000m2 na Servidão Percival em Vargem Grande**
+  - 💰 R$ 5.000.000 | 📐 94551 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-81-000m2-na-servidao-percival-em-vargem-grande-1377260943
+
