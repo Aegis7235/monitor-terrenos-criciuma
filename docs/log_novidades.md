@@ -78573,3 +78573,61 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-a-poucos-passos-do-mar-na-praia-ribeiro-em-passo-de-torres-sc-1498631652
 
+
+## 🆕 11 novos anúncios — 02/05/2026 16:01
+
+- **TERRENO - Passa Vinte - FM-152354**
+  - 💰 R$ 450.000 | 📐 558 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-passa-vinte-fm-152354-1498700885
+
+- **Terreno com casa sede**
+  - 💰 R$ 650.000 | 📐 4020 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-sede-1498700297
+
+- **TERRENO - Invernadinha - FM-265991**
+  - 💰 R$ 550.000 | 📐 1190 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-invernadinha-fm-265991-1498700192
+
+- **Terreno Areias de Baixo Governador Celso Ramos 208 m2**
+  - 💰 R$ 150.000 | 📐 208 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-de-baixo-governador-celso-ramos-208-m2-1498699526
+
+- **Terreno para sítios em Anitápolis SC**
+  - 💰 R$ 200.000 | 📐 40000000 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitios-em-anitapolis-sc-1498694777
+
+- **Terreno Financiavel**
+  - 💰 R$ 285.000 | 📐 300 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-financiavel-1498692778
+
+- **Terreno à Venda R$ 231.900 - DIRETO C PROPR - OPORTUNIDADE - Bairro De**
+  - 💰 R$ 231.900 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-r-231-900-direto-c-propr-oportunidade-bairro-deltaville-1475083380
+
+- **Vendo Terreno - Lote - Sítio Produtivo Centro de Anitápolis SC**
+  - 💰 R$ 159.600 | 📐 250 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-lote-sitio-produtivo-centro-de-anitapolis-sc-1498667410
+
+- **TERRENOS a VENDA CANELINHA**
+  - 💰 R$ 250.000 | 📐 2000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-canelinha-1498667347
+
+- **Imóvel único a venda na região! São 25 hectares com escritura num luga**
+  - 💰 R$ 490.000 | 📐 250000 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-unico-a-venda-na-regiao-sao-25-hectares-com-escritura-num-lugar-historico-1319001106
+
+- **Terreno São João do rio vermelho**
+  - 💰 R$ 380.000 | 📐 360 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sao-joao-do-rio-vermelho-1498650980
+
