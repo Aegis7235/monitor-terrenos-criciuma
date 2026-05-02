@@ -78560,3 +78560,16 @@
   - 📍  — Içara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-aguas-do-atlantico-a-venda-434-82-m-por-r-421-324-67-dunas-ba-1498588455
 
+
+## 🆕 2 novos anúncios — 02/05/2026 10:09
+
+- **Terreno de leilão em Centro / IMARUI / SC | Venda Online**
+  - 💰 R$ 934.633 | 📐 715100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-centro-imarui-sc-venda-online-1498637620
+
+- **Ótimo terreno a poucos passos do mar na Praia Ribeiro em Passo de Torr**
+  - 💰 R$ 145.000 | 📐 336 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-a-poucos-passos-do-mar-na-praia-ribeiro-em-passo-de-torres-sc-1498631652
+
