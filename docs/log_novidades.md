@@ -79083,3 +79083,76 @@
   - 📍 Centro — Tubarão
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-centro-1498844155
 
+
+## 🆕 14 novos anúncios — 03/05/2026 21:58
+
+- **VENDO TERRENO EM SANTO AMARO DA IMPERATRIZ**
+  - 💰 R$ 180.000 | 📐 700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-santo-amaro-da-imperatriz-1498968160
+
+- **VENDO TERRENO PROX A LAGUNA**
+  - 💰 R$ 320.000 | 📐 2000 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-prox-a-laguna-1498967538
+
+- **BARBADA! Terreno de 203m² no bairro Jardim América , em Passo de Torre**
+  - 💰 R$ 108.000 | 📐 203 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-de-203m-no-bairro-jardim-america-em-passo-de-torres-1498966435
+
+- **Sítio à venda próximo do centro de São Bonifácio/SC**
+  - 💰 R$ 800.000 | 📐 55000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-proximo-do-centro-de-sao-bonifacio-sc-1498962433
+
+- **Sítio à venda em São Bonifácio/SC**
+  - 💰 R$ 530.000 | 📐 30000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-sao-bonifacio-sc-1498962404
+
+- **?Oportunidade? Terreno/lote Ribeirão da Ilha / Caieira apenas 250 mil**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-lote-ribeirao-da-ilha-caieira-apenas-250-mil-1498959227
+
+- **Vendo ou Troco Terreno em Santo Amaro da Imperatriz!!!**
+  - 💰 R$ 120.000 | 📐 200 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-terreno-em-santo-amaro-da-imperatriz-1498949260
+
+- **Lote balneário esplanada**
+  - 💰 R$ 300.000 | 📐 375 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-balneario-esplanada-1498943561
+
+- **Sítio**
+  - 💰 R$ 170.000 | 📐 600 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1498939961
+
+- **Terreno para Venda em Florianópolis, Jurerê**
+  - 💰 R$ 4.500.000 | 📐 450 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-jurere-1498935079
+
+- **Terreno 360m² com luz e água - Boa Vista - Governador Celso Ramos**
+  - 💰 R$ 220.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-com-luz-e-agua-boa-vista-governador-celso-ramos-1498931765
+
+- **Vendo terreno mina do toco, murado.**
+  - 💰 R$ 120.000 | 📐 260 m²
+  - 📍 Área Rural de Criciúma — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-mina-do-toco-murado-1498916780
+
+- **Sítio de Alto Padrão em Águas Mornas**
+  - 💰 R$ 2.000.000 | 📐 200 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-alto-padrao-em-aguas-mornas-1498912035
+
+- **Terreno na Vargem Grande**
+  - 💰 R$ 280.000 | 📐 800 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-vargem-grande-1498904304
+
