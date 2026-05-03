@@ -79010,3 +79010,76 @@
 
 ## ✅ Sem novidades — 03/05/2026 10:19
 
+
+## 🆕 14 novos anúncios — 03/05/2026 16:02
+
+- **Excelente oportunidade! - Terreno 360m² escriturado**
+  - 💰 R$ 190.000 | 📐 360 m²
+  - 📍 Centro — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-terreno-360m-escriturado-1498900382
+
+- **Terreno 15 min da praia do Rosa**
+  - 💰 R$ 69.000 | 📐 250 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-15-min-da-praia-do-rosa-1498900029
+
+- **Sítio com 34.300 m²-Alfredo Wagner - Serra Catarinense**
+  - 💰 R$ 295.000 | 📐 34300 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-34-300-m-alfredo-wagner-serra-catarinense-1498898182
+
+- **Terreno no bairro Lagoinhas Norte em Balneário Arroio do Silva**
+  - 💰 R$ 95.000 | 📐 327 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-lagoinhas-norte-em-balneario-arroio-do-silva-1498892202
+
+- **Terreno de 402 m² | Deltaville | Biguaçu**
+  - 💰 R$ 550.000 | 📐 402 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-402-m-deltaville-biguacu-1498887195
+
+- **Vendo terreno para sítio.     -    Aceito ofertas, valor negociável**
+  - 💰 R$ 450.000 | 📐 2000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-para-sitio---aceito-ofertas-valor-negociavel-1498886805
+
+- **OPORTUNIDADE: Terreno de 1.327m² no Rio do Pouso Margem Direita**
+  - 💰 R$ 160.000 | 📐 1327 m²
+  - 📍 São João (Margem Direita) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-de-1-327m-no-rio-do-pouso-margem-direita-1498875789
+
+- **Encante-se neste paraíso!!! Sítio a venda em Canelinha SC**
+  - 💰 R$ 690.000 | 📐 3000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/encante-se-neste-paraiso-sitio-a-venda-em-canelinha-sc-1498872046
+
+- **Excelente oportunidade! - Terreno 360m² escriturado**
+  - 💰 R$ 190.000 | 📐 360 m²
+  - 📍 Centro — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-terreno-360m-escriturado-1498872960
+
+- **Terreno Comercial para Venda em Paulo Lopes, Nova Belém**
+  - 💰 R$ 3.900.000 | 📐 96000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-para-venda-em-paulo-lopes-nova-belem-1498866213
+
+- **Terreno para Venda em Paulo Lopes, laranjal**
+  - 💰 R$ 380.000 | 📐 14000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-paulo-lopes-laranjal-1498865519
+
+- **Terreno Loteamento Jk no São Cristóvão a 50mt da BR 101**
+  - 💰 R$ 220.000 | 📐 ? m²
+  - 📍 São Cristóvão — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-jk-no-sao-cristovao-a-50mt-da-br-101-1498851650
+
+- **Terreno Avenida Universitária**
+  - 💰 R$ 550.000 | 📐 909 m²
+  - 📍 Mãe Luzia — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-avenida-universitaria-1498845215
+
+- **TERRENO BAIRRO CENTRO**
+  - 💰 R$ 750.000 | 📐 576 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-centro-1498844155
+
