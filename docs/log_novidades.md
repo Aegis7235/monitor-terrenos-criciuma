@@ -78959,3 +78959,51 @@
   - 📍 Centro — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-cidade-de-palhoca-1498511332
 
+
+## 🆕 9 novos anúncios — 03/05/2026 06:17
+
+- **Sítio à venda, 218000 m² por R$ 990.000,00 - Taquaraçutuba - Imaruí/SC**
+  - 💰 R$ 990.000 | 📐 218000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-218000-m-por-r-990-000-00-taquaracutuba-imarui-sc-1498829666
+
+- **Lote Nova Governador**
+  - 💰 R$ 212.000 | 📐 390 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-nova-governador-1498826183
+
+- **Oferta para investidores 3 terrenos juntos**
+  - 💰 R$ 108.000 | 📐 359 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oferta-para-investidores-3-terrenos-juntos-1498815268
+
+- **LOTE DE ESQUINA NO DELTAVILLE POR R$240 MIL**
+  - 💰 R$ 240.000 | 📐 168 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-no-deltaville-por-r-240-mil-1498814866
+
+- **Terreno na Praia dos Ingleses**
+  - 💰 R$ 530.000 | 📐 396 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-dos-ingleses-1498806864
+
+- **Terreno em condomínio fechado no Campeche - Florianópolis**
+  - 💰 R$ 1.399.000 | 📐 510 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-campeche-florianopolis-1498803610
+
+- **VENDE-SE TERRENO COM DUAS CASAS ?**
+  - 💰 R$ 260.000 | 📐 231 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-com-duas-casas-1498797525
+
+- **Terreno no Bela Vista - Palhoça**
+  - 💰 R$ 200.000 | 📐 200 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bela-vista-palhoca-1498793636
+
+- **TERRENO A VENDA NO ARIRIU**
+  - 💰 R$ 380.000 | 📐 375 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-aririu-1498787584
+
