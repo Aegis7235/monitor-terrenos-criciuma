@@ -79204,3 +79204,46 @@
   - 📍 Jardim Eldorado — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-2-terreno-de-1000-metros-em-imarui-1498968599
 
+
+## 🆕 8 novos anúncios — 04/05/2026 11:17
+
+- **Chácara com casa de 2 quartos**
+  - 💰 R$ 280.000 | 📐 1329 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-casa-de-2-quartos-1499029899
+
+- **Imóvel para venda tem 446 metros quadrados em Li - Garopaba - SC**
+  - 💰 R$ 190.000 | 📐 446 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-446-metros-quadrados-em-li-garopaba-sc-1360028547
+
+- **Imóvel para venda tem 203 metros quadrados em Costa do Macacu - Garopa**
+  - 💰 R$ 109.900 | 📐 203 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-203-metros-quadrados-em-costa-do-macacu-garopaba-sc-1432284828
+
+- **Sítio para Venda em Paulo Lopes, laranjal**
+  - 💰 R$ 300.000 | 📐 5000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-paulo-lopes-laranjal-1403839832
+
+- **Sítio com Casa à venda, 20000 m² por R$ 877.000 - Área Rural de Biguaç**
+  - 💰 R$ 876.000 | 📐 120 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-a-venda-20000-m-por-r-877-000-area-rural-de-biguacu-biguacu-sc-1387077796
+
+- **TERRENO RURAL EM SÃO BONIFACIO SC**
+  - 💰 R$ 480.000 | 📐 26000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-em-sao-bonifacio-sc-1480730194
+
+- **SÍTIO - 3 Quartos, 1 Suíte, 3 Vagas - 3600m² - Sorocaba**
+  - 💰 R$ 385.000 | 📐 168 m²
+  - 📍 Prado de Baixo — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-3-quartos-1-suite-3-vagas-3600m-sorocaba-1426842582
+
+- **Terreno com 360 metros quadrados para venda em Sertão do Maruim - São **
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360-metros-quadrados-para-venda-em-sertao-do-maruim-sao-jose-sc-1473063658
+
