@@ -79510,3 +79510,86 @@
   - 📍 Laranjinha — Criciúma
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-criciuma-laranjinha-55m2-RS290000/id-41275376/
 
+
+## 🆕 16 novos anúncios — 04/05/2026 22:14
+
+- **AREA NO MORRO DAS PEDRAS , BUSINESS**
+  - 💰 R$ 15.000.000 | 📐 10000 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-no-morro-das-pedras-business-1479484521
+
+- **Terreno de 608,62 m² à Venda  Alto Penha | Paulo Lopes/SC**
+  - 💰 R$ 150.000 | 📐 608 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-608-62-m-a-venda-alto-penha-paulo-lopes-sc-1499227203
+
+- **Terreno 360 m2 Deltaville lote externo - BRN**
+  - 💰 R$ 477.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360-m2-deltaville-lote-externo-brn-1499226659
+
+- **Terreno em Condomínio Fechado**
+  - 💰 R$ 288.933 | 📐 152 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-1499219002
+
+- **Terreno em Loteamento fechado. Delta Ville - Biguaçu**
+  - 💰 R$ 478.566 | 📐 359 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-fechado-delta-ville-biguacu-1499218747
+
+- **Terreno no Condomínio Costa da Serra, Rancho Queimado**
+  - 💰 R$ 390.000 | 📐 1002 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-costa-da-serra-rancho-queimado-1499207218
+
+- **Terreno 360 m2 Deltaville lote externo - PLC**
+  - 💰 R$ 477.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360-m2-deltaville-lote-externo-plc-1499199744
+
+- **Terreno a venda no bairro lagoão**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-lagoao-1499193686
+
+- **Terreno de 275m² em Arroio do Silva/SC**
+  - 💰 R$ 50.000 | 📐 275 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-275m-em-arroio-do-silva-sc-1499193381
+
+- **Terreno Condomínio Terra Norte  na Vargem Grande**
+  - 💰 R$ 480.000 | 📐 372 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-terra-norte-na-vargem-grande-1499192669
+
+- **Terreno 123m² à venda em Palhoça - Bela Vista (ótima localização)**
+  - 💰 R$ 158.000 | 📐 123 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-123m-a-venda-em-palhoca-bela-vista-otima-localizacao-1499177177
+
+- **Sítio**
+  - 💰 R$ 870.000 | 📐 5000 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1499146438
+
+- **SÍTIO ENCANTADOR COM CHALÉ A-FRAME TIJUCAS/SC**
+  - 💰 R$ 350.000 | 📐 1242 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-encantador-com-chale-a-frame-tijucas-sc-1499169240
+
+- **Terreno à venda em Biguaçu, Beira Rio, com 150.5 m², Deltaville - Cost**
+  - 💰 R$ 285.950 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-biguacu-beira-rio-com-150-5-m-deltaville-costa-do-sol-condominio-1499158710
+
+- **TERRENO À VENDA - CONDOMÍNIO GREEN CAMINHO DO MEIO | VIAMÃO - RS**
+  - 💰 R$ 110.000 | 📐 ? m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-condominio-green-caminho-do-meio-viamao-rs-1499100169
+
+- **Imóvel para venda com 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1499168270
+
