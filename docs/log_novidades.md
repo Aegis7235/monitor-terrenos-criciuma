@@ -79156,3 +79156,51 @@
   - 📍 Lagoa da Conceição — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-vargem-grande-1498904304
 
+
+## 🆕 9 novos anúncios — 04/05/2026 06:28
+
+- **Terreno de esquina amplo (~200m² privativos/303m² total) - Blue Condom**
+  - 💰 R$ 384.000 | 📐 303 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-amplo-200m-privativos-303m-total-blue-condominio-aceito-apto-1499013347
+
+- **Dois terrenos lado a lado no bairro Village em Imbituba**
+  - 💰 R$ 699.000 | 📐 700 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-lado-a-lado-no-bairro-village-em-imbituba-1499003323
+
+- **VENDA aceito imóvel menor valor.**
+  - 💰 R$ 1.450.000 | 📐 150 m²
+  - 📍  — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-aceito-imovel-menor-valor-1498988035
+
+- **Terreno no Costa da Serra | Vila Golf | Vista incrível**
+  - 💰 R$ 400.000 | 📐 1011 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-costa-da-serra-vila-golf-vista-incrivel-1498987788
+
+- **Terreno à venda no Centro de Florianópolis**
+  - 💰 R$ 759.000 | 📐 280 m²
+  - 📍 José Mendes — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-florianopolis-1498987627
+
+- **Vendo Terreno/Pego carro entrada**
+  - 💰 R$ 100.000 | 📐 450 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-pego-carro-entrada-1498987174
+
+- **Lote Balneário Esplanada, Jaguaruna**
+  - 💰 R$ 230.000 | 📐 375 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-balneario-esplanada-jaguaruna-1498987002
+
+- **Terreno para investir em Palhoça**
+  - 💰 R$ 200.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investir-em-palhoca-1498985582
+
+- **Vendo 2 terreno de 1000 metros em Imarui**
+  - 💰 R$ 200.000 | 📐 2000 m²
+  - 📍 Jardim Eldorado — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-2-terreno-de-1000-metros-em-imarui-1498968599
+
