@@ -79989,3 +79989,111 @@
   - 📍 Balneário Esplanada — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-balneario-esplanada-360m2-RS550000/id-42034563/
 
+
+## 🆕 21 novos anúncios — 05/05/2026 16:39
+
+- **Casa Angelina SC**
+  - 💰 R$ 250.000 | 📐 11000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-angelina-sc-1499479960
+
+- **Sitio com escritura proximo da praça de Angelina - SC**
+  - 💰 R$ 350.000 | 📐 40000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-proximo-da-praca-de-angelina-sc-1499477764
+
+- **Terreno Comercial na Avenida Mauro Ramos - Bairro Centro, em Florianóp**
+  - 💰 R$ 13.000.000 | 📐 11144 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-na-avenida-mauro-ramos-bairro-centro-em-florianopolis-1499469657
+
+- **Imovel com linda vista e escritura publica!**
+  - 💰 R$ 370.000 | 📐 2500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-com-linda-vista-e-escritura-publica-1499458459
+
+- **Parcele direto c/ proprietário! 200 m do mar! Terreno 390m² escriturad**
+  - 💰 R$ 175.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parcele-direto-c-proprietario-200-m-do-mar-terreno-390m-escriturado-negocicao-facilit-1499457447
+
+- **Chácara na Vargem do Braço - Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 380.000 | 📐 6000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-na-vargem-do-braco-santo-amaro-da-imperatriz-sc-1499451342
+
+- **Chacara em Anitápolis - SC**
+  - 💰 R$ 460.000 | 📐 5800 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-anitapolis-sc-1499451098
+
+- **Preço de ocasião. Terreno de  390m² murado, aterrado, c\ energia eletr**
+  - 💰 R$ 145.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/preco-de-ocasiao-terreno-de-390m-murado-aterrado-c-energia-eletrica-e-internet-1499450773
+
+- **Terreno na Praia Guarajuba**
+  - 💰 R$ 70.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-guarajuba-1499444119
+
+- **Terreno no Centro de Rancho Rancho Queimado - SC**
+  - 💰 R$ 4.500.000 | 📐 8689 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-rancho-rancho-queimado-sc-1499443680
+
+- **Belo sitio em Santo Amaro!**
+  - 💰 R$ 1.400.000 | 📐 27000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-santo-amaro-1499438507
+
+- **Terreno no Centro de Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 1.500.000 | 📐 1600 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-santo-amaro-da-imperatriz-sc-1499422760
+
+- **Terreno de esquina em Condomínio Blue no Deltaville**
+  - 💰 R$ 250.000 | 📐 186 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-condominio-blue-no-deltaville-1499407527
+
+- **Sitio com escritura publica em Águas Mornas - SC**
+  - 💰 R$ 220.000 | 📐 37000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-publica-em-aguas-mornas-sc-1499407014
+
+- **Terreno residencial**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Prado — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1499405533
+
+- **? OPORTUNIDADE IMPERDÍVEL EM SANTO AMARO DA IMPERATRIZ!!**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-imperdivel-em-santo-amaro-da-imperatriz-1499405525
+
+- **TERRENO/LOTE 15x23 (345 m²)**
+  - 💰 R$ 145.000 | 📐 345 m²
+  - 📍 Praia Redonda — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-15x23-345-m-1499402922
+
+- **Terreno à venda em Condomínio fechado, no Ratones, Florianópolis/SC.**
+  - 💰 R$ 1.200.000 | 📐 421 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-no-ratones-florianopolis-sc-1499401348
+
+- **Terreno de Esquina fundo lago em Condomínio fechado - Blue Condomínio **
+  - 💰 R$ 429.000 | 📐 200 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-fundo-lago-em-condominio-fechado-blue-condominio-clube-deltville-1499390782
+
+- **Sitio com linda vista em Santa Izabel - Águas Mornas - SC**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-santa-izabel-aguas-mornas-sc-1499457108
+
+- **JARDIM AMÉRICA FLÓRIDA PARQUE - Terrenos Loteamento em Passo**
+  - 💰 R$ 96.891 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jardim-america-florida-parque-terrenos-loteamento-em-passo-1312809190
+
