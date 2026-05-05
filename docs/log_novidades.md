@@ -79886,3 +79886,106 @@
   - 📍 Forquilhas — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-jose-1499246716
 
+
+## 🆕 20 novos anúncios — 05/05/2026 10:59
+
+- **Terreno em Forquilhinha, São José/SC**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-forquilhinha-sao-jose-sc-1499372675
+
+- **Terreno à venda em Santo Antônio de Lisboa**
+  - 💰 R$ 15.000.000 | 📐 15309 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-santo-antonio-de-lisboa-1499368888
+
+- **Terreno à venda no Centro**
+  - 💰 R$ 3.200.000 | 📐 220 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-1499362439
+
+- **Venda | Terreno | Sertão do Maruim**
+  - 💰 R$ 450.000 | 📐 507 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-sertao-do-maruim-1499355591
+
+- **Terreno no Cond. Quinta do Lago Residence, Monte Castelo, Tubarão/SC**
+  - 💰 R$ 529.999 | 📐 628 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-cond-quinta-do-lago-residence-monte-castelo-tubarao-sc-1499354373
+
+- **Casa Alto padrão a venda 5 quartos 2 suites 2 vagas de garagem Içara**
+  - 💰 R$ 1.280.000 | 📐 200 m²
+  - 📍 Liri — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-5-quartos-com-garagem-sc-icara-liri-320m2-RS1280000/id-35782301/
+
+- **Casa com 4 quartos à venda na Cidade Alta, Araranguá**
+  - 💰 R$ 1.290.000 | 📐 286 m²
+  - 📍 Cidade Alta — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-ararangua-cidade-alta-471m2-RS1290000/id-41273433/
+
+- **Casa à venda na Rua Amaro José Pereira, Coloninha, Araranguá**
+  - 💰 R$ 1.007.000 | 📐 393 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-ararangua-coloninha-393m2-RS1007000/id-37917781/
+
+- **Casa com 2 quartos à venda no Caverazinho, Araranguá**
+  - 💰 R$ 220.000 | 📐 47 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-caverazinho-RS220000/id-27931486/
+
+- **Oportunidade! Casa alto padrão, 03 dormitórios sendo 02 suítes em Arar**
+  - 💰 R$ 1.080.000 | 📐 165 m²
+  - 📍 Jardim das Avenidas — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-jardim-das-avenidas-RS1080000/id-40617564/
+
+- **Casa para Venda em Sombrio, Centro, 6 dormitórios, 2 suítes, 3 banheir**
+  - 💰 R$ 1.400.000 | 📐 ? m²
+  - 📍 Centro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-6-quartos-com-garagem-sc-sombrio-centro-RS1400000/id-30643580/
+
+- **Venda - Casas - 2 dormitórios - Jardim América - Passo de Torres - SC**
+  - 💰 R$ 590.000 | 📐 98 m²
+  - 📍 Jardim América — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-passo-de-torres-jardim-america-RS590000/id-41460881/
+
+- **Casa em condomínio fechado com 3 quartos à venda na Rod. Pref. João Lu**
+  - 💰 R$ 2.190.000 | 📐 220 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-passo-de-torres-centro-450m2-RS2190000/id-40364177/
+
+- **Casa de Alto Padrão a 200 Metros do Mar em Bella Torres, Passo de Torr**
+  - 💰 R$ 1.080.000 | 📐 162 m²
+  - 📍 Balneário Rosa do Mar — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-balneario-rosa-do-mar-162m2-RS1080000/id-24607459/
+
+- **Casa com 2 quartos à venda na 1, 1, Village Dunas Norte, Balneário Gai**
+  - 💰 R$ 560.000 | 📐 87 m²
+  - 📍 Village Dunas Norte — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-village-dunas-norte-300m2-RS560000/id-40164966/
+
+- **Casa com 3 quartos à venda na Rua Antônio Nunes de Souza, 1, Jardim It**
+  - 💰 R$ 690.000 | 📐 155 m²
+  - 📍 Jardim Itália — Cocal do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-cocal-do-sul-jardim-italia-RS690000/id-41997759/
+
+- **Casa com 4 quartos à venda na Rua Maria Lino Vieira, s n, Zona Nova, B**
+  - 💰 R$ 636.000 | 📐 100 m²
+  - 📍 Zona Nova — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-balneario-rincao-zona-nova-360m2-RS636000/id-40136574/
+
+- **Casa à venda na Zona Sul, Balneário Rincão**
+  - 💰 R$ 450.000 | 📐 ? m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-balneario-rincao-zona-sul-RS450000/id-39434628/
+
+- **Casa com 3 quartos à venda no Centro, Balneário Rincão**
+  - 💰 R$ 1.750.000 | 📐 600 m²
+  - 📍 Centro — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-rincao-centro-RS1750000/id-28603223/
+
+- **Casa com 2 quartos à venda na Casa Zona Sul Esplanada, Balneário Espla**
+  - 💰 R$ 550.000 | 📐 80 m²
+  - 📍 Balneário Esplanada — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-balneario-esplanada-360m2-RS550000/id-42034563/
+
