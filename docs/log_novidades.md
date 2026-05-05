@@ -79593,3 +79593,296 @@
   - 📍 Aririú — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1499168270
 
+
+## 🆕 58 novos anúncios — 05/05/2026 05:57
+
+- **Terreno Sertão do Maruim São José Loteamento Nova Sao Jose I**
+  - 💰 R$ 450.000 | 📐 507 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sertao-do-maruim-sao-jose-loteamento-nova-sao-jose-i-1499342667
+
+- **Venda-Terreno-Imaruí-Aguas Mornas**
+  - 💰 R$ 260.000 | 📐 8712 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imarui-aguas-mornas-1499340224
+
+- **Terreno à venda em Biguaçu, Beira Rio, com 150.5 m², Deltaville - Bris**
+  - 💰 R$ 273.200 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-biguacu-beira-rio-com-150-5-m-deltaville-brisas-condominio-parque-1499337643
+
+- **Fazenda em Estrada Geral do Moura - Moura - Canelinha/SC**
+  - 💰 R$ 14.989.690 | 📐 300000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-em-estrada-geral-do-moura-moura-canelinha-sc-1499337687
+
+- **Sítio à Venda no Pagará  Santo Amaro da Imperatriz/SC**
+  - 💰 R$ 249.990 | 📐 100 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-pagara-santo-amaro-da-imperatriz-sc-1499338078
+
+- **Lote em Rua 41568 - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 320.000 | 📐 323 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-41568-praia-do-rosa-imbituba-sc-1499337283
+
+- **Lote em Estrada Geral Ibiraquera - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 10.000.000 | 📐 13050 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-estrada-geral-ibiraquera-ibiraquera-imbituba-sc-1499336153
+
+- **Lote em IMB 407 - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 1.695.460 | 📐 5000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-imb-407-ibiraquera-imbituba-sc-1499335964
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.449.140 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1499333998
+
+- **Lote em Servidão Nossa Senhora do Desterro - Carianos - Florianópolis/**
+  - 💰 R$ 514.740 | 📐 530 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-servidao-nossa-senhora-do-desterro-carianos-florianopolis-sc-1499334032
+
+- **Terreno Praia da Barra**
+  - 💰 R$ 620.000 | 📐 965 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-da-barra-1499335111
+
+- **Lote em Avenida Santa Catarina - Centro - Imbituba/SC**
+  - 💰 R$ 799.280 | 📐 380 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-avenida-santa-catarina-centro-imbituba-sc-1499334490
+
+- **Lote em Cangueri Quadro - Cangueri Quadro - Imaruí/SC**
+  - 💰 R$ 589.480 | 📐 20000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-cangueri-quadro-cangueri-quadro-imarui-sc-1499332103
+
+- **Lote em Loteamento Mares Garopaba - Gamboa - Garopaba/SC**
+  - 💰 R$ 889.290 | 📐 500 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-loteamento-mares-garopaba-gamboa-garopaba-sc-1499331544
+
+- **Lote em condomínio em Rua Esperança - Araçatuba - Imbituba/SC**
+  - 💰 R$ 749.900 | 📐 831 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-em-rua-esperanca-aracatuba-imbituba-sc-1499330975
+
+- **Lote em Rua Aristides Balsani Francalaci - Village - Imbituba/SC**
+  - 💰 R$ 759.430 | 📐 700 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-aristides-balsani-francalaci-village-imbituba-sc-1499330981
+
+- **Lote em Rodovia Baldicero Filomeno - Ribeirão da Ilha - Florianópolis/**
+  - 💰 R$ 448.890 | 📐 474 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rodovia-baldicero-filomeno-ribeirao-da-ilha-florianopolis-sc-1499330243
+
+- **Sítio em Canto do Schuch - Canto do Schuch - Águas Mornas/SC**
+  - 💰 R$ 490.000 | 📐 120 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-canto-do-schuch-canto-do-schuch-aguas-mornas-sc-1499329766
+
+- **Lote em Rua Antônio Bittencourt Capanema 858 - Itapeva - Imaruí/SC**
+  - 💰 R$ 651.000 | 📐 30000 m²
+  - 📍 Centro — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-bittencourt-capanema-858-itapeva-imarui-sc-1499329631
+
+- **Lote em Loteamento Mares Garopaba - Gamboa - Garopaba/SC**
+  - 💰 R$ 679.080 | 📐 409 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-loteamento-mares-garopaba-gamboa-garopaba-sc-1499329260
+
+- **Lote em Rua da pousada da vida sol e mar - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 750.000 | 📐 514 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-da-pousada-da-vida-sol-e-mar-praia-do-rosa-imbituba-sc-1499328231
+
+- **Lote em Rua Siderópolis - Vila Nova - Imbituba/SC**
+  - 💰 R$ 380.000 | 📐 356 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-sideropolis-vila-nova-imbituba-sc-1499327717
+
+- **Lote em BR 101 - Alto Arroio - Imbituba/SC**
+  - 💰 R$ 5.959.330 | 📐 50000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-br-101-alto-arroio-imbituba-sc-1499327640
+
+- **Lote em Rua José Corrêa - Village - Imbituba/SC**
+  - 💰 R$ 385.000 | 📐 350 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-jose-correa-village-imbituba-sc-1499327481
+
+- **Lote em condomínio em Rod. Pref. João Luiz da Silva - Costa do Rio Man**
+  - 💰 R$ 399.020 | 📐 445 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-em-rod-pref-joao-luiz-da-silva-costa-do-rio-manpituba-passo-de-to-1499326193
+
+- **Sítio em Estrada Geral Sertão Cangueri - Sertão Cangueri - Imaruí/SC**
+  - 💰 R$ 879.230 | 📐 100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-estrada-geral-sertao-cangueri-sertao-cangueri-imarui-sc-1499325668
+
+- **Sítio em Rua Jaime Rodrigues - Praia do Sol - Laguna/SC**
+  - 💰 R$ 600.000 | 📐 140 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-rua-jaime-rodrigues-praia-do-sol-laguna-sc-1499325180
+
+- **Terreno à venda em Condomínio fechado, no Ratones, Florianópolis/SC.**
+  - 💰 R$ 1.200.000 | 📐 421 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-no-ratones-florianopolis-sc-1499319230
+
+- **Terreno na Sorocaba de Paulo Lopes**
+  - 💰 R$ 115.000 | 📐 420 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-sorocaba-de-paulo-lopes-1499318926
+
+- **Vendo terrenob em Biguaçu SC**
+  - 💰 R$ 7.000.000 | 📐 3000 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terrenob-em-biguacu-sc-1499318664
+
+- **OPORTUNIDADE EM RATONES**
+  - 💰 R$ 650.000 | 📐 ? m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-ratones-1499306812
+
+- **Terreno à Venda em Alfredo Wagner  Bairro Canto Triste**
+  - 💰 R$ 65.000 | 📐 700 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-alfredo-wagner-bairro-canto-triste-1499296180
+
+- **Terreno amplo no Deltaville com 402m²**
+  - 💰 R$ 550.000 | 📐 402 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-no-deltaville-com-402m-1499295054
+
+- **Terreno no Deltaville pronto para construir com 150 m²**
+  - 💰 R$ 239.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-pronto-para-construir-com-150-m-1499294706
+
+- **Terreno no Deltaville pronto para construir com 150 m²**
+  - 💰 R$ 239.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-pronto-para-construir-com-150-m-1499293971
+
+- **Lindo sitio com uma cachoera todo plano**
+  - 💰 R$ 260.000 | 📐 2100 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-com-uma-cachoera-todo-plano-1499287907
+
+- **Lote em Forquilhas, São José SC**
+  - 💰 R$ 215.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-forquilhas-sao-jose-sc-1499286866
+
+- **Terreno à Venda em Içara - Solar Das Orquídeas**
+  - 💰 R$ 490.000 | 📐 553 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-solar-das-orquideas-1499283837
+
+- **Terreno à Venda em Içara - Solar Das Orquídeas**
+  - 💰 R$ 210.000 | 📐 420 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-solar-das-orquideas-1499282495
+
+- **Terreno à Venda em Içara - Solar Das Orquídeas**
+  - 💰 R$ 316.000 | 📐 456 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-solar-das-orquideas-1499282462
+
+- **Terreno 612M- Centro da cidade**
+  - 💰 R$ 429 | 📐 612 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-612m-centro-da-cidade-1499282353
+
+- **Terreno à Venda em Içara - Solar Das Orquídeas**
+  - 💰 R$ 160.000 | 📐 429 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-solar-das-orquideas-1499282286
+
+- **Terreno à Venda em Içara - Solar Das Orquídeas**
+  - 💰 R$ 165.000 | 📐 362 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-solar-das-orquideas-1499282278
+
+- **Terreno à Venda em Içara - Solar Das Orquídeas**
+  - 💰 R$ 518.000 | 📐 741 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-solar-das-orquideas-1499282246
+
+- **Terreno à Venda em Içara - Solar Das Orquídeas**
+  - 💰 R$ 144.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-solar-das-orquideas-1499281395
+
+- **Terreno à Venda em Içara - Solar Das Orquídeas**
+  - 💰 R$ 270.000 | 📐 395 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-solar-das-orquideas-1499280792
+
+- **Terreno 300m² no Arpoador - Arroio do Silva/SC**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-no-arpoador-arroio-do-silva-sc-1499269774
+
+- **TERRENO - Campeche - JP-311302**
+  - 💰 R$ 990.000 | 📐 401 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-jp-311302-1499269107
+
+- **Terreno 300m da praia em Arroio do Silva/SC**
+  - 💰 R$ 50.000 | 📐 275 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-da-praia-em-arroio-do-silva-sc-1499268028
+
+- **Chácara em São Pedro de Alcântara, Pagará  2km de estrada de chão.**
+  - 💰 R$ 650.000 | 📐 1750 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-sao-pedro-de-alcantara-pagara-2km-de-estrada-de-chao-1499267877
+
+- **Vendo lindo Terreno de Esquina Nova Governador**
+  - 💰 R$ 210.000 | 📐 380 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lindo-terreno-de-esquina-nova-governador-1499259828
+
+- **Terreno com 280m² no Bairro Alto Arroio/Imbituba-SC**
+  - 💰 R$ 115.000 | 📐 280 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-280m-no-bairro-alto-arroio-imbituba-sc-1499257052
+
+- **Terreno em Imarui com 1600m² com vista para Lagoa**
+  - 💰 R$ 180.000 | 📐 1600 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imarui-com-1600m-com-vista-para-lagoa-1499257010
+
+- **Chácara com área total de 2.285m², oferecendo amplo espaço e lazer com**
+  - 💰 R$ 650.000 | 📐 2285 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-area-total-de-2-285m-oferecendo-amplo-espaco-e-lazer-completo-com-piscina-1499257013
+
+- **Oportunidade Única: Terreno no Bairro Ribanceira / Imbituba - SC**
+  - 💰 R$ 170.000 | 📐 150 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-no-bairro-ribanceira-imbituba-sc-1499256062
+
+- **Sítio com 3 dormitórios à venda, 800 m² por R$ 390.000,00 - Pagará - S**
+  - 💰 R$ 390.000 | 📐 75 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-3-dormitorios-a-venda-800-m-por-r-390-000-00-pagara-santo-amaro-da-impera-1499252692
+
+- **Terreno Condomínio Águas Do Atlântico**
+  - 💰 R$ 299.000 | 📐 480 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-aguas-do-atlantico-1499249072
+
+- **Terreno à Venda em São José**
+  - 💰 R$ 260.000 | 📐 250 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-jose-1499246716
+
