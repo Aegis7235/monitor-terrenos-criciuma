@@ -80761,3 +80761,61 @@
   - 📍 Forquilhas — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-forquilhas-sao-jose-1499658684
 
+
+## 🆕 11 novos anúncios — 06/05/2026 16:56
+
+- **Terreno 450 m2-Campeche próximo do banco do Brasil**
+  - 💰 R$ 960.000 | 📐 450 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450-m2-campeche-proximo-do-banco-do-brasil-1499784161
+
+- **Terreno em ponto alto com vista à venda - Centro, Florianópolis/SC**
+  - 💰 R$ 1.060.000 | 📐 494 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ponto-alto-com-vista-a-venda-centro-florianopolis-sc-1499783074
+
+- **VENDA TERRENO BARBACENA**
+  - 💰 R$ 50.000 | 📐 420 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-barbacena-1499778050
+
+- **Imóvel para venda tem 360 metros quadrados em Saco Grande - Florianópo**
+  - 💰 R$ 620.000 | 📐 360 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-360-metros-quadrados-em-saco-grande-florianopolis-sc-1499774621
+
+- **Terreno à venda no bairro Recife**
+  - 💰 R$ 659.000 | 📐 370 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-recife-1499771897
+
+- **Terreno loteamento altos do Janaína**
+  - 💰 R$ 310.000 | 📐 360 m²
+  - 📍 Tapera da Base — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-altos-do-janaina-1499762741
+
+- **Terreno à Venda na Enseada da Pinheira, Palhoça por R$1.500.000**
+  - 💰 R$ 1.500.000 | 📐 850 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-enseada-da-pinheira-palhoca-por-r-1-500-000-1499753792
+
+- **Terreno em Angelina Barragem do Garcia**
+  - 💰 R$ 99.973 | 📐 240 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-angelina-barragem-do-garcia-1499733744
+
+- **Terreno C/ Estacas - Brisas Cond. Parque**
+  - 💰 R$ 185.000 | 📐 161 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-c-estacas-brisas-cond-parque-1499710610
+
+- **Terreno à venda Pedra Branca - Palhoça/SC**
+  - 💰 R$ 560.000 | 📐 398 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-pedra-branca-palhoca-sc-1430012484
+
+- **Chácara / sítio com 3 quartos à venda no Centro, Timbé do Sul**
+  - 💰 R$ 379.900 | 📐 1200 m²
+  - 📍 Centro — Timbé do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-timbe-do-sul-centro-1200m2-RS379900/id-42252924/
+
