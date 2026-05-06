@@ -80819,3 +80819,901 @@
   - 📍 Centro — Timbé do Sul
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-timbe-do-sul-centro-1200m2-RS379900/id-42252924/
 
+
+## 🆕 179 novos anúncios — 06/05/2026 22:13
+
+- **Lote em Rua Ivoni Jacinta da Silva - Bela Vista - Palhoça/SC**
+  - 💰 R$ 374.050 | 📐 611 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-ivoni-jacinta-da-silva-bela-vista-palhoca-sc-1499872690
+
+- **Lote em Rua: Vicente Pereira - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 689.770 | 📐 1400 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-vicente-pereira-ibiraquera-imbituba-sc-1499871018
+
+- **Sítio em Rodovia Governador Mário Covas - Cova Triste - Garopaba/SC**
+  - 💰 R$ 2.099.080 | 📐 400 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-rodovia-governador-mario-covas-cova-triste-garopaba-sc-1499870617
+
+- **Lote em Rua:lúcio Machado - Vila Santo Antônio - Imbituba/SC**
+  - 💰 R$ 749.750 | 📐 1044655 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-lucio-machado-vila-santo-antonio-imbituba-sc-1499870439
+
+- **Lote em Estrada Geral da Ibiraquera - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-estrada-geral-da-ibiraquera-ibiraquera-imbituba-sc-1499869669
+
+- **Fazenda em Estrada Geral Rio Duna - Penha - Paulo Lopes/SC**
+  - 💰 R$ 7.999.160 | 📐 3000000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-em-estrada-geral-rio-duna-penha-paulo-lopes-sc-1499867344
+
+- **Lote em Rua Antônio Dal Farra - Vila São Jorge - Siderópolis/SC**
+  - 💰 R$ 319.510 | 📐 4008 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1499867039
+
+- **Lote em Estrada Geral do Rosa - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 3.000.000 | 📐 4500 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-estrada-geral-do-rosa-ibiraquera-imbituba-sc-1499866733
+
+- **Sítio em Angelina**
+  - 💰 R$ 1.400.000 | 📐 181500 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-angelina-1499865965
+
+- **Lote em Rua: Lote 12 Quadra I - Village - Imbituba/SC**
+  - 💰 R$ 489.120 | 📐 462 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-lote-12-quadra-i-village-imbituba-sc-1499864078
+
+- **Vendo pequeno lote em Imbituba**
+  - 💰 R$ 60.000 | 📐 96 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-pequeno-lote-em-imbituba-1499864285
+
+- **Lote em Rua: Ramón Barbosa Rodrigues - Morro do Mirim - Imbituba/SC**
+  - 💰 R$ 649.060 | 📐 5303 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-ramon-barbosa-rodrigues-morro-do-mirim-imbituba-sc-1499862485
+
+- **Terreno para Venda em Santo Amaro da Imperatriz, Centro**
+  - 💰 R$ 180.000 | 📐 21000 m²
+  - 📍 Centro — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-santo-amaro-da-imperatriz-centro-1499857330
+
+- **TERRENO BOA VISTA - 375m2**
+  - 💰 R$ 120.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-boa-vista-375m2-1499855931
+
+- **Terreno para Venda em Rancho Queimado, Centro**
+  - 💰 R$ 199.000 | 📐 907 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-rancho-queimado-centro-1499853553
+
+- **Terreno para Venda em Florianópolis, Canasvieiras**
+  - 💰 R$ 1.850.000 | 📐 1448 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-canasvieiras-1499850946
+
+- **Terreno para Venda em Florianópolis, Canasvieiras**
+  - 💰 R$ 4.500.000 | 📐 1008 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-canasvieiras-1499850950
+
+- **Terreno para Venda em Florianópolis, Saco Grande**
+  - 💰 R$ 15.000.000 | 📐 7804 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-saco-grande-1499850948
+
+- **Terreno em laguna itapiruba**
+  - 💰 R$ 65.000 | 📐 450 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-laguna-itapiruba-1499849335
+
+- **Terreno à venda com 295 m2 no bairro Areias, em São José S/C.**
+  - 💰 R$ 320.000 | 📐 295 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-295-m2-no-bairro-areias-em-sao-jose-s-c-1499849196
+
+- **TERRENO COMERCIAL PARA LOCAÇÃO ANUAL**
+  - 💰 R$ 15.000 | 📐 800 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-para-locacao-anual-1499849152
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 5.000.000 | 📐 3487 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1499847491
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 2.495.000 | 📐 47743 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1499847460
+
+- **Terreno para Venda em Florianópolis, Santo Antônio De Lisboa**
+  - 💰 R$ 1.380.000 | 📐 451 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santo-antonio-de-lisboa-1499847141
+
+- **Terreno para Venda em Florianópolis, Ratones**
+  - 💰 R$ 49.999.000 | 📐 3594350 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1499847112
+
+- **Terreno para Venda em Florianópolis, Rio Tavares**
+  - 💰 R$ 4.995.000 | 📐 6859 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-rio-tavares-1499847050
+
+- **Terreno para Venda em Florianópolis, Morro das Pedras**
+  - 💰 R$ 40.000.000 | 📐 386000 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-morro-das-pedras-1499847037
+
+- **Terreno para Venda em Florianópolis, Pântano do Sul**
+  - 💰 R$ 2.000.000 | 📐 360 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1499847009
+
+- **Terreno para Venda em Florianópolis, Balneário**
+  - 💰 R$ 3.100.000 | 📐 825 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-balneario-1499846723
+
+- **Terreno para Venda em Florianópolis, Abraão**
+  - 💰 R$ 2.650.000 | 📐 874 m²
+  - 📍 Abraão — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-abraao-1499846583
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 3.500.000 | 📐 25257 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1499846589
+
+- **Terreno para Venda em Florianópolis, Balneário**
+  - 💰 R$ 3.500.000 | 📐 700 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-balneario-1499846552
+
+- **Terreno para Venda em Florianópolis, Sambaqui**
+  - 💰 R$ 4.255.350 | 📐 600 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sambaqui-1499846542
+
+- **Terreno para Venda em Florianópolis, Canasvieiras**
+  - 💰 R$ 3.900.000 | 📐 781 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-canasvieiras-1499846507
+
+- **Terreno para Venda em Florianópolis, Vargem do Bom Jesus**
+  - 💰 R$ 2.650.000 | 📐 1800 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-do-bom-jesus-1499846328
+
+- **Terreno para Venda em Florianópolis, Coqueiros**
+  - 💰 R$ 2.700.000 | 📐 744 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-coqueiros-1499845093
+
+- **Terreno para Venda em Florianópolis, Cacupé**
+  - 💰 R$ 14.900.000 | 📐 11023 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cacupe-1499845121
+
+- **Terreno para Venda em Florianópolis, Vargem Grande**
+  - 💰 R$ 23.100.000 | 📐 33044 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-grande-1499845108
+
+- **Terreno para Venda em Florianópolis, Cacupé**
+  - 💰 R$ 3.800.000 | 📐 3000 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cacupe-1499845104
+
+- **Terreno para Venda em Florianópolis, Sambaqui**
+  - 💰 R$ 1.400.000 | 📐 425 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sambaqui-1499845011
+
+- **Terreno para Venda em Florianópolis, Cacupé**
+  - 💰 R$ 3.200.000 | 📐 601 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cacupe-1499845013
+
+- **Terreno para Venda em Florianópolis, Saco Grande**
+  - 💰 R$ 11.000.000 | 📐 2500 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-saco-grande-1499845037
+
+- **Terreno para Venda em Florianópolis, Canto da Lagoa**
+  - 💰 R$ 5.000.000 | 📐 6991 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-canto-da-lagoa-1499844993
+
+- **Terreno para Venda em Florianópolis, Lagoa Da Conceição**
+  - 💰 R$ 4.200.000 | 📐 2220 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-lagoa-da-conceicao-1499844999
+
+- **Terreno para Venda em Florianópolis, Vargem Grande**
+  - 💰 R$ 4.700.000 | 📐 3342 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-grande-1499845015
+
+- **Terreno para Venda em Florianópolis, Santo Antônio De Lisboa**
+  - 💰 R$ 6.500.000 | 📐 2422 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santo-antonio-de-lisboa-1499844958
+
+- **Terreno para Venda em Florianópolis, Campeche**
+  - 💰 R$ 3.800.000 | 📐 1302 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-campeche-1499844969
+
+- **Terreno para Venda em Florianópolis, Capoeiras**
+  - 💰 R$ 2.900.000 | 📐 1042 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-capoeiras-1499844983
+
+- **Terreno para Venda em Florianópolis, Lagoa Da Conceição**
+  - 💰 R$ 3.250.000 | 📐 27629 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-lagoa-da-conceicao-1499844989
+
+- **Terreno para Venda em Florianópolis, José Mendes**
+  - 💰 R$ 21.500.000 | 📐 5305 m²
+  - 📍 José Mendes — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-jose-mendes-1499844933
+
+- **Terreno para Venda em Florianópolis, Santo Antônio De Lisboa**
+  - 💰 R$ 4.500.000 | 📐 10384 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santo-antonio-de-lisboa-1499844918
+
+- **Terreno para Venda em Florianópolis, Campeche**
+  - 💰 R$ 3.500.000 | 📐 1014 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-campeche-1499844887
+
+- **Terreno para Venda em Florianópolis, Rio Tavares**
+  - 💰 R$ 14.600.000 | 📐 5870 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-rio-tavares-1499844885
+
+- **Terreno para Venda em Florianópolis, Estreito**
+  - 💰 R$ 1.060.000 | 📐 416 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-estreito-1499844892
+
+- **Terreno para Venda em Florianópolis, Coqueiros**
+  - 💰 R$ 3.144.990 | 📐 28315 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-coqueiros-1499844898
+
+- **Terreno para Venda em Florianópolis, Pântano do Sul**
+  - 💰 R$ 1.090.000 | 📐 4320 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1499844922
+
+- **Terreno para Venda em Florianópolis, Campeche**
+  - 💰 R$ 5.100.000 | 📐 1367 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-campeche-1499844903
+
+- **Terreno para Venda em Florianópolis, Estreito**
+  - 💰 R$ 1.300.000 | 📐 690 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-estreito-1499844891
+
+- **Terreno para Venda em Florianópolis, Vargem Pequena**
+  - 💰 R$ 12.900.000 | 📐 51254 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-pequena-1499844897
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 3.360.000 | 📐 1130 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1499844886
+
+- **Terreno para Venda em Florianópolis, Canasvieiras**
+  - 💰 R$ 14.000.000 | 📐 23725 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-canasvieiras-1499844785
+
+- **Terreno para Venda em Florianópolis, Barra Da Lagoa**
+  - 💰 R$ 1.200.000 | 📐 364 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-barra-da-lagoa-1499844725
+
+- **Terreno para Venda em Florianópolis, Capoeiras**
+  - 💰 R$ 1.800.000 | 📐 1450 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-capoeiras-1499844683
+
+- **Terreno na Invernadinha, Rancho Queimado**
+  - 💰 R$ 330.000 | 📐 10000 m²
+  - 📍 Vila Becker — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-invernadinha-rancho-queimado-1499844412
+
+- **Terreno para Venda em Florianópolis, Santo Antônio De Lisboa**
+  - 💰 R$ 21.850.000 | 📐 5056 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santo-antonio-de-lisboa-1499844187
+
+- **Terreno para Venda em Florianópolis, Sambaqui**
+  - 💰 R$ 24.900.000 | 📐 9399 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sambaqui-1499844159
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 12.500.000 | 📐 398100 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1499844140
+
+- **Terreno para Venda em Florianópolis, Balneário**
+  - 💰 R$ 2.300.000 | 📐 539 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-balneario-1499844161
+
+- **Terreno para Venda em Florianópolis, Pântano do Sul**
+  - 💰 R$ 6.900.000 | 📐 19380 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1499843888
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 3.150.000 | 📐 74863 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1499843885
+
+- **Terreno para Venda em Florianópolis, Lagoa Da Conceição**
+  - 💰 R$ 2.150.000 | 📐 450 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-lagoa-da-conceicao-1499843879
+
+- **Terreno para Venda em Florianópolis, Pântano do Sul**
+  - 💰 R$ 2.800.000 | 📐 640 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1499843742
+
+- **Terreno para Venda em Florianópolis, Vargem Grande**
+  - 💰 R$ 51.000.000 | 📐 125000 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-grande-1499843672
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 30.000.000 | 📐 21407 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1499843612
+
+- **Terreno para Venda em Florianópolis, Balneário**
+  - 💰 R$ 3.700.000 | 📐 868 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-balneario-1499843611
+
+- **Terreno para Venda em Florianópolis, Saco Grande**
+  - 💰 R$ 2.000.000 | 📐 604 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-saco-grande-1499843609
+
+- **Terreno para Venda em Florianópolis, Estreito**
+  - 💰 R$ 8.160.000 | 📐 1872 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-estreito-1499843596
+
+- **Terreno à venda no bairro Santa Fé  Balneário Gaivota**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-santa-fe-balneario-gaivota-1499842995
+
+- **Terreno para Venda em Florianópolis, Praia Brava**
+  - 💰 R$ 30.000.000 | 📐 39707 m²
+  - 📍 Praia Brava — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-praia-brava-1499843020
+
+- **Terreno para Venda em Florianópolis, Cacupé**
+  - 💰 R$ 5.350.000 | 📐 3602 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cacupe-1499842742
+
+- **Terreno para Venda em Florianópolis, Jardim Atlântico**
+  - 💰 R$ 3.000.000 | 📐 1768 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-jardim-atlantico-1499842689
+
+- **Terreno para Venda em Florianópolis, Lagoa Da Conceição**
+  - 💰 R$ 7.500.000 | 📐 2911 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-lagoa-da-conceicao-1499842690
+
+- **Terreno para Venda em Florianópolis, Cacupé**
+  - 💰 R$ 3.300.000 | 📐 2500 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cacupe-1499841094
+
+- **Terreno para Venda em Florianópolis, Rio Tavares**
+  - 💰 R$ 9.200.000 | 📐 4400 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-rio-tavares-1499841093
+
+- **Terreno para Venda em Florianópolis, Estreito**
+  - 💰 R$ 1.200.000 | 📐 573 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-estreito-1499841049
+
+- **Terreno para Venda em Florianópolis, Jardim Atlântico**
+  - 💰 R$ 1.500.000 | 📐 393 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-jardim-atlantico-1499841051
+
+- **Terreno para Venda em Florianópolis, Saco Grande**
+  - 💰 R$ 2.250.000 | 📐 464 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-saco-grande-1499840825
+
+- **Terreno para Venda em Florianópolis, Saco Dos Limões**
+  - 💰 R$ 2.800.000 | 📐 797 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-saco-dos-limoes-1499840826
+
+- **Terreno para Venda em Florianópolis, Canasvieiras**
+  - 💰 R$ 25.000.000 | 📐 5382 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-canasvieiras-1499840831
+
+- **Terreno para Venda em Florianópolis, Cacupé**
+  - 💰 R$ 25.000.000 | 📐 32600 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cacupe-1499840780
+
+- **Terreno para Venda em Florianópolis, Barra Da Lagoa**
+  - 💰 R$ 5.348.000 | 📐 35409 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-barra-da-lagoa-1499840755
+
+- **Terreno para Venda em Florianópolis, Santo Antônio De Lisboa**
+  - 💰 R$ 4.050.000 | 📐 1910 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santo-antonio-de-lisboa-1499840769
+
+- **Terreno para Venda em Florianópolis, Rio Tavares**
+  - 💰 R$ 12.000.000 | 📐 7520 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-rio-tavares-1499840771
+
+- **Terreno para Venda em Florianópolis, Ratones**
+  - 💰 R$ 49.999.000 | 📐 3594350 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1499840544
+
+- **Terreno para Venda em São José, Picadas do Sul**
+  - 💰 R$ 17.500.000 | 📐 14708 m²
+  - 📍 Picadas do Sul — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-sao-jose-picadas-do-sul-1499840561
+
+- **Terreno para Venda em Florianópolis, Vargem Grande**
+  - 💰 R$ 1.999.000 | 📐 1819 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-grande-1499840502
+
+- **Terreno para Venda em Florianópolis, Vargem Pequena**
+  - 💰 R$ 20.000.000 | 📐 4098 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-pequena-1499840515
+
+- **Terreno para Venda em Florianópolis, Capoeiras**
+  - 💰 R$ 2.900.000 | 📐 3105 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-capoeiras-1499840530
+
+- **Terreno para Venda em Biguaçu, Biguaçu**
+  - 💰 R$ 65.000.000 | 📐 34672 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-biguacu-biguacu-1499840483
+
+- **Terreno para Venda em Florianópolis, Coqueiros**
+  - 💰 R$ 2.300.000 | 📐 237 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-coqueiros-1499840488
+
+- **Terreno para Venda em Florianópolis, Carianos**
+  - 💰 R$ 10.000.000 | 📐 10911 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-carianos-1499840507
+
+- **Terreno para Venda em Florianópolis, Morro das Pedras**
+  - 💰 R$ 4.700.000 | 📐 3575 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-morro-das-pedras-1499840466
+
+- **Terreno para Venda em Florianópolis, Ratones**
+  - 💰 R$ 8.500.000 | 📐 125000 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1499840324
+
+- **Terreno para Venda em Florianópolis, Ratones**
+  - 💰 R$ 18.900.000 | 📐 167808 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1499840245
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 1.800.000 | 📐 1485 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1499840251
+
+- **Terreno para Venda em Florianópolis, Rio Tavares**
+  - 💰 R$ 30.000.000 | 📐 24364 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-rio-tavares-1499840252
+
+- **Terreno para Venda em Florianópolis, Morro das Pedras**
+  - 💰 R$ 10.000.000 | 📐 952 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-morro-das-pedras-1499840232
+
+- **Terreno para Venda em Florianópolis, Ratones**
+  - 💰 R$ 1.200.000 | 📐 421 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1499840178
+
+- **Terreno para Venda em Florianópolis, Carianos**
+  - 💰 R$ 30.000.000 | 📐 4475 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-carianos-1499840179
+
+- **Terreno para Venda em Florianópolis, São João do Rio Vermelho**
+  - 💰 R$ 3.322.000 | 📐 2867 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sao-joao-do-rio-vermelho-1499840181
+
+- **Terreno para Venda em Florianópolis, Pântano do Sul**
+  - 💰 R$ 9.000.000 | 📐 1710 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1499840134
+
+- **Terreno para Venda em Florianópolis, Barra Da Lagoa**
+  - 💰 R$ 27.000.000 | 📐 27598 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-barra-da-lagoa-1499840165
+
+- **Terreno para Venda em Florianópolis, Saco Dos Limões**
+  - 💰 R$ 14.500.000 | 📐 2605 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-saco-dos-limoes-1499840153
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 4.995.000 | 📐 4048 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1499840136
+
+- **Terreno para Venda em Florianópolis, Ponta das Canas**
+  - 💰 R$ 12.500.000 | 📐 2538 m²
+  - 📍 Ponta das Canas — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ponta-das-canas-1499840162
+
+- **Terreno para Venda em Florianópolis, Monte Verde**
+  - 💰 R$ 22.000.000 | 📐 12804 m²
+  - 📍 Monte Verde — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-monte-verde-1499840135
+
+- **Terreno para Venda em Florianópolis, Cachoeira Do Bom Jesus**
+  - 💰 R$ 25.000.000 | 📐 7610 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cachoeira-do-bom-jesus-1499839917
+
+- **Terreno para Venda em Florianópolis, Beiramar**
+  - 💰 R$ 3.888.000 | 📐 486 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-beiramar-1499839885
+
+- **Terreno para Venda em Florianópolis, Sambaqui**
+  - 💰 R$ 6.200.000 | 📐 12200 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sambaqui-1499839897
+
+- **Terreno para Venda em Florianópolis, Campeche**
+  - 💰 R$ 28.000.000 | 📐 22323 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-campeche-1499839918
+
+- **Terreno para Venda em Florianópolis, Saco Grande**
+  - 💰 R$ 60.000.000 | 📐 19753 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-saco-grande-1499839858
+
+- **Terreno para Venda em Florianópolis, Sambaqui**
+  - 💰 R$ 5.000.000 | 📐 22000 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sambaqui-1499839880
+
+- **Terreno para Venda em Florianópolis, Balneário**
+  - 💰 R$ 1.300.000 | 📐 262 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-balneario-1499839785
+
+- **Terreno para Venda em Florianópolis, Vargem Grande**
+  - 💰 R$ 4.950.000 | 📐 50083 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-grande-1499839780
+
+- **Terreno para Venda em Florianópolis, Lagoa Da Conceição**
+  - 💰 R$ 3.250.000 | 📐 27517 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-lagoa-da-conceicao-1499839588
+
+- **Terreno para Venda em Florianópolis, Cacupé**
+  - 💰 R$ 4.998.000 | 📐 6915 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cacupe-1499839605
+
+- **Terreno para Venda em Florianópolis, Vargem Pequena**
+  - 💰 R$ 18.000.000 | 📐 19699 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-pequena-1499839533
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 1.850.000 | 📐 1752 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1499839461
+
+- **Terreno para Venda em Florianópolis, Vargem Grande**
+  - 💰 R$ 35.999.000 | 📐 328544 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-grande-1499839483
+
+- **Terreno para Venda em Florianópolis, Ingleses**
+  - 💰 R$ 14.500.000 | 📐 2600 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ingleses-1499839485
+
+- **Terreno para Venda em Florianópolis, Ratones**
+  - 💰 R$ 10.600.000 | 📐 57571 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1499839490
+
+- **Terreno para Venda em Florianópolis, Vargem Pequena**
+  - 💰 R$ 1.350.000 | 📐 1351 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-pequena-1499839471
+
+- **Terreno para Venda em Florianópolis, Santinho**
+  - 💰 R$ 1.800.000 | 📐 1414 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santinho-1499839455
+
+- **Terreno para Venda em Florianópolis, Rio Tavares**
+  - 💰 R$ 14.600.000 | 📐 5870 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-rio-tavares-1499839406
+
+- **Terreno para Venda em Florianópolis, Santo Antônio De Lisboa**
+  - 💰 R$ 12.800.000 | 📐 700 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santo-antonio-de-lisboa-1499839422
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 8.000.000 | 📐 65739 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1499839378
+
+- **Terreno para Venda em Florianópolis, Açores**
+  - 💰 R$ 1.350.000 | 📐 512 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-acores-1499839374
+
+- **Terreno para Venda em Florianópolis, Lagoa Da Conceição**
+  - 💰 R$ 1.760.000 | 📐 425 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-lagoa-da-conceicao-1499839368
+
+- **Terreno para Venda em Florianópolis, Lagoa Da Conceição**
+  - 💰 R$ 1.200.000 | 📐 198 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-lagoa-da-conceicao-1499839369
+
+- **Terreno para Venda em Florianópolis, Pântano do Sul**
+  - 💰 R$ 3.400.000 | 📐 1641 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-pantano-do-sul-1499839316
+
+- **Terreno para Venda em Florianópolis, Santo Antônio De Lisboa**
+  - 💰 R$ 15.000.000 | 📐 15871 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santo-antonio-de-lisboa-1499839321
+
+- **Terreno para Venda em Florianópolis, Ratones**
+  - 💰 R$ 54.000.000 | 📐 39683 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1499839314
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 3.000.000 | 📐 24000 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1499839181
+
+- **Terreno para Venda em Florianópolis, Santo Antônio De Lisboa**
+  - 💰 R$ 5.320.000 | 📐 53356 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santo-antonio-de-lisboa-1499839166
+
+- **Terreno para Venda em Florianópolis, Santo Antônio De Lisboa**
+  - 💰 R$ 2.000.000 | 📐 648 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-santo-antonio-de-lisboa-1499838917
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 2.500.000 | 📐 13750 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1499838849
+
+- **Terreno para Venda em Florianópolis, Coqueiros**
+  - 💰 R$ 2.000.000 | 📐 1427 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-coqueiros-1499838630
+
+- **Terreno para Venda em Florianópolis, Balneário**
+  - 💰 R$ 3.300.000 | 📐 780 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-balneario-1499838429
+
+- **Terreno para Venda em Florianópolis, Balneário**
+  - 💰 R$ 15.000.000 | 📐 2599 m²
+  - 📍 Balneário — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-balneario-1499838416
+
+- **Terreno para Venda em Florianópolis, São João do Rio Vermelho**
+  - 💰 R$ 11.800.000 | 📐 48230 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sao-joao-do-rio-vermelho-1499838283
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 4.000.000 | 📐 2859 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1499838275
+
+- **Terreno para Venda em Florianópolis, Vargem Pequena**
+  - 💰 R$ 7.840.000 | 📐 399 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-pequena-1499837965
+
+- **Terreno para Venda em Florianópolis, Rio Tavares**
+  - 💰 R$ 16.000.000 | 📐 28274 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-rio-tavares-1499837961
+
+- **Terreno para Venda em Florianópolis, Itacorubi**
+  - 💰 R$ 21.450.000 | 📐 37291 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-itacorubi-1499837963
+
+- **Terreno para Venda em Florianópolis, Saco Dos Limões**
+  - 💰 R$ 9.000.000 | 📐 1588 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-saco-dos-limoes-1499837886
+
+- **Terreno para Venda em Florianópolis, Campeche**
+  - 💰 R$ 9.490.000 | 📐 4122 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-campeche-1499837898
+
+- **Terreno para Venda em Florianópolis, Cachoeira Do Bom Jesus**
+  - 💰 R$ 20.000.000 | 📐 37920 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cachoeira-do-bom-jesus-1499837826
+
+- **Terreno para Venda em Florianópolis, Esatreito**
+  - 💰 R$ 7.000.000 | 📐 1268 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-esatreito-1499837614
+
+- **Terreno para Venda em Florianópolis, Canasvieiras**
+  - 💰 R$ 4.750.000 | 📐 500 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-canasvieiras-1499837541
+
+- **Terreno para Venda em Florianópolis, Saco Grande**
+  - 💰 R$ 35.000.000 | 📐 29270 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-saco-grande-1499837537
+
+- **Terreno para Venda em Florianópolis, Cachoeira Do Bom Jesus**
+  - 💰 R$ 3.900.000 | 📐 2017 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cachoeira-do-bom-jesus-1499837543
+
+- **TERRENO A VENDA EM PAULO LOPES ? EXCELENTE OPORTUNIDADE**
+  - 💰 R$ 300.000 | 📐 2550 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-paulo-lopes-excelente-oportunidade-1499836458
+
+- **Terreno amplo, de 334 m² Barreiros - São José**
+  - 💰 R$ 600.000 | 📐 333 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-334-m-barreiros-sao-jose-1499835349
+
+- **Vende-se Lote Loteamento Nova Orleans**
+  - 💰 R$ 160.000 | 📐 375 m²
+  - 📍  — Orleans
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-lote-loteamento-nova-orleans-1499832743
+
+- **Sítio à venda em Santo Amaro da Imperatriz**
+  - 💰 R$ 2.900.000 | 📐 330 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-santo-amaro-da-imperatriz-1499827813
+
+- **Terreno Comercial/ Residencial - Pagani/ Palhoça**
+  - 💰 R$ 5.000.000 | 📐 767 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-residencial-pagani-palhoca-1499817480
+
+- **Terreno Comercial/ Residencial - Capoeiras/ Florianópolis**
+  - 💰 R$ 8.000.000 | 📐 1 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-residencial-capoeiras-florianopolis-1499813995
+
+- **terreno em Angelina - Barragem doGarcia**
+  - 💰 R$ 100.000 | 📐 240 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-angelina-barragem-dogarcia-1499806455
+
+- **Terreno Pedra Branca Palhoça 362 Metros**
+  - 💰 R$ 460.000 | 📐 362 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pedra-branca-palhoca-362-metros-1499799037
+
+- **Terreno - Florianópolis SC**
+  - 💰 R$ 900.000 | 📐 322 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-florianopolis-sc-1499795729
+
+- **Ótimo terreno na Praia da Barra**
+  - 💰 R$ 1.300.000 | 📐 366 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-na-praia-da-barra-1499847541
+
+- **linda, mobiliada, alto padrão, 3 quartos, 1 suite em Criciúma**
+  - 💰 R$ 2.400.000 | 📐 262 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-criciuma-primeira-linha-262m2-RS2400000/id-40898294/
+
+- **Casa com 2 quartos à venda no Cristo Redentor, Criciúma**
+  - 💰 R$ 195.000 | 📐 40 m²
+  - 📍 Cristo Redentor — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-criciuma-cristo-redentor-240m2-RS195000/id-36676666/
+
+- **Casa com 2 quartos à venda na Jaqueline, Içara**
+  - 💰 R$ 165.000 | 📐 91 m²
+  - 📍 Jaqueline — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-jaqueline-371m2-RS165000/id-36426233/
+
+- **Casa à venda no Primeiro De Maio, Içara**
+  - 💰 R$ 400.000 | 📐 ? m²
+  - 📍 Primeiro De Maio — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-icara-primeiro-de-maio-RS400000/id-32818596/
+
+- **Casa com 3 quartos à venda no Morro dos Conventos, Araranguá**
+  - 💰 R$ 3.000.000 | 📐 225 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-morro-dos-conventos-1200m2-RS3000000/id-32817035/
+
+- **Casa com 2 dormitórios à venda, 70 m² - Caverazinho - Araranguá/SC**
+  - 💰 R$ 330.000 | 📐 70 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-caverazinho-300m2-RS330000/id-40635630/
+
+- **Oportunidade Única em MORRO DA FUMACA - SC | Tipo: Apartamento | Negoc**
+  - 💰 R$ 119.673 | 📐 62 m²
+  - 📍 Capelinha — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-2-quartos-com-garagem-sc-morro-da-fumaca-capelinha-84m2-RS119673/id-42234700/
+
+- **EMICREI VENDE Casa com 2 dormitórios, 70 m² por R$ 1.590.000 - Lagoa d**
+  - 💰 R$ 1.590.000 | 📐 70 m²
+  - 📍 Lagoa Dos Esteves — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-2-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-esteves-450m2-RS1590000/id-18199160/
+
