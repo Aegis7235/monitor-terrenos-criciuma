@@ -81975,3 +81975,66 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/bom-negocio-terreno-1800m-br-101-imbituba-possibilidade-de-loteamento-1499876451
 
+
+## 🆕 12 novos anúncios — 07/05/2026 11:21
+
+- **Vendo Terreno para sítio em Anitápolis SC, com vista para as montanhas**
+  - 💰 R$ 190.000 | 📐 20000 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-para-sitio-em-anitapolis-sc-com-vista-para-as-montanhas-1500003165
+
+- **Terreno à venda, 300 m² por R$ 100.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-100-000-00-tapera-passo-de-torres-sc-1499991393
+
+- **Lote / Terreno em Aririu - Palhoça**
+  - 💰 R$ 630.000 | 📐 717 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-aririu-palhoca-1499991359
+
+- **Lote / Terreno em Centro - Biguaçu**
+  - 💰 R$ 3.500.000 | 📐 1117 m²
+  - 📍 Praia João Rosa — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-centro-biguacu-1499988561
+
+- **Terreno Plano no Porto da Lagoa - Próximo à Lagoa da Conceição**
+  - 💰 R$ 1.010.000 | 📐 303 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-no-porto-da-lagoa-proximo-a-lagoa-da-conceicao-1499988274
+
+- **Venda-Área Industrial-Imbituba-Nova Brasília**
+  - 💰 R$ 26.500.000 | 📐 56000 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-area-industrial-imbituba-nova-brasilia-1499987208
+
+- **Terreno de 360 m² em Loteamento em Ambrósio**
+  - 💰 R$ 530.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360-m-em-loteamento-em-ambrosio-1499972226
+
+- **Terreno em Ressacada, Garopaba/SC**
+  - 💰 R$ 250.000 | 📐 550 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ressacada-garopaba-sc-1499968018
+
+- **Green Park**
+  - 💰 R$ 390.000 | 📐 655 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/green-park-1499962479
+
+- **Lote de Esquina Condomínio Green Park**
+  - 💰 R$ 455.000 | 📐 609 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-condominio-green-park-1499960449
+
+- **Terreno em Ressacada, Garopaba/SC**
+  - 💰 R$ 420.000 | 📐 1114 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ressacada-garopaba-sc-1499959879
+
+- **Terreno em Condomínio à Venda**
+  - 💰 R$ 1.500.000 | 📐 812 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-1499959500
+
