@@ -82181,3 +82181,146 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-1500103536
 
+
+## 🆕 28 novos anúncios — 07/05/2026 22:13
+
+- **Terreno com viabilidade para prédio - Trindade - Fpolis - SC**
+  - 💰 R$ 11.000.000 | 📐 835 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-para-predio-trindade-fpolis-sc-1500210551
+
+- **Sitio em Ratones Florianopolis SC**
+  - 💰 R$ 2.500.000 | 📐 210 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-ratones-florianopolis-sc-1500210375
+
+- **Terreno 310 m² com viabilidade construtiva - Estreito/Jardim Atlântico**
+  - 💰 R$ 745.000 | 📐 310 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-310-m-com-viabilidade-construtiva-estreito-jardim-atlantico-florianopolis-sc-1500209452
+
+- **Terreno de 506.06m² no bairro Picadas Do Sul**
+  - 💰 R$ 600.000 | 📐 506 m²
+  - 📍 Picadas do Sul — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-506-06m-no-bairro-picadas-do-sul-1500208641
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1500204976
+
+- **Parcele direto c proprietário Terreno de 540m² esquina  avenida princi**
+  - 💰 R$ 365.000 | 📐 540 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parcele-direto-c-proprietario-terreno-de-540m-esquina-avenida-principal-aterrado-murado-1500183903
+
+- **Lote Esquina 525m2 em CRICIÚMA-SC**
+  - 💰 R$ 150.000 | 📐 525 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-esquina-525m2-em-criciuma-sc-1500177564
+
+- **Chácaras com acesso a Lagoa!**
+  - 💰 R$ 193.000 | 📐 1165 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacaras-com-acesso-a-lagoa-1500177051
+
+- **Chácaras com acesso a Lagoa!**
+  - 💰 R$ 160.000 | 📐 1150 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacaras-com-acesso-a-lagoa-1500177028
+
+- **Lotes Prontos para Construir próximo a Lagoa!**
+  - 💰 R$ 90.000 | 📐 310 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-prontos-para-construir-proximo-a-lagoa-1500176915
+
+- **Chácaras à beira da lagoa!!**
+  - 💰 R$ 350.000 | 📐 1354 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacaras-a-beira-da-lagoa-1500176907
+
+- **Terreno a 150m do mar em Passo de Torres**
+  - 💰 R$ 99.900 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-150m-do-mar-em-passo-de-torres-1500176918
+
+- **Terreno de esquina à venda no bairro Nova Torres**
+  - 💰 R$ 90.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-no-bairro-nova-torres-1500176537
+
+- **ANITÁPOLIS/SC - Terreno para sítio com 2hectares**
+  - 💰 R$ 120.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-para-sitio-com-2hectares-1500175160
+
+- **Terreno nova fazenda (laguna)**
+  - 💰 R$ 70.000 | 📐 ? m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nova-fazenda-laguna-1500175814
+
+- **TERRENO LOTEAMENTO NOVO HORIZONTE 2**
+  - 💰 R$ 210.000 | 📐 200 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-novo-horizonte-2-1500175516
+
+- **ANITÁPOLIS/SC - Sítio com casa pronta, 7hectares de terra**
+  - 💰 R$ 400.000 | 📐 70000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-sitio-com-casa-pronta-7hectares-de-terra-1500170129
+
+- **VENDA: Terreno Plano com 484 m², Ponta de Baixo, São José - SC**
+  - 💰 R$ 480.000 | 📐 484 m²
+  - 📍 Fazenda Santo Antônio — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-plano-com-484-m-ponta-de-baixo-sao-jose-sc-1500166904
+
+- **ANITÁPOLIS/SC - Chácara à venda**
+  - 💰 R$ 150.000 | 📐 4000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-chacara-a-venda-1500165535
+
+- **Troco terreno..**
+  - 💰 R$ 120.000 | 📐 1900 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/troco-terreno-1500156674
+
+- **Vendo sítio com 45000 m2**
+  - 💰 R$ 1.600.000 | 📐 45000 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-45000-m2-1500148031
+
+- **Lindo lote no Vivendas Praianos em São José!**
+  - 💰 R$ 265.000 | 📐 267 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-lote-no-vivendas-praianos-em-sao-jose-1500148259
+
+- **Terreno Área de Mata Nativa. Verde preservado.**
+  - 💰 R$ 280.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-area-de-mata-nativa-verde-preservado-1500140961
+
+- **Terreno**
+  - 💰 R$ 500.000 | 📐 1200 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1500139686
+
+- **TERRENO IMBITUBA ESCRITURADO 204 M2**
+  - 💰 R$ 180.000 | 📐 204 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-imbituba-escriturado-204-m2-1500127855
+
+- **30m do mar. Terreno escriturado de 390m² em frente a restinga.  Beira **
+  - 💰 R$ 219.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/30m-do-mar-terreno-escriturado-de-390m-em-frente-a-restinga-beira-mar-frente-ao-acess-1500196563
+
+- **Ótimo terreno com matricula.**
+  - 💰 R$ 380.000 | 📐 1190 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-com-matricula-1500141275
+
+- **250m do mr Terreno de 390m² aterrado  escriturado e documentado Finani**
+  - 💰 R$ 199.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/250m-do-mr-terreno-de-390m-aterrado-escriturado-e-documentado-finaniavel-estuda-parcelar-1500133859
+
