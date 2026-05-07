@@ -82038,3 +82038,146 @@
   - 📍  — Garopaba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-1499959500
 
+
+## 🆕 28 novos anúncios — 07/05/2026 17:04
+
+- **Chácara em Varginha - Santo Amaro da Imperatriz**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-varginha-santo-amaro-da-imperatriz-1500122882
+
+- **Terreno 1600m², no Fly ville, Gov. Celso Ramos - Abaixo da tabela**
+  - 💰 R$ 990.000 | 📐 1601 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1600m-no-fly-ville-gov-celso-ramos-abaixo-da-tabela-1500111567
+
+- **Terreno em condomínio fechado à venda, 794m² - Córrego Grande - Floria**
+  - 💰 R$ 1.200.000 | 📐 794 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-a-venda-794m-corrego-grande-florianopolis-sc-1500105236
+
+- **Terreno Frente Mar com 2.800 m² à venda na Praia de Ponta das Canas, e**
+  - 💰 R$ 12.900.000 | 📐 2800 m²
+  - 📍 Ponta das Canas — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-com-2-800-m-a-venda-na-praia-de-ponta-das-canas-em-florianopolis-1500101589
+
+- **Terreno com 392 m² à venda na Praia da Cachoeira do Bom Jesus - Condom**
+  - 💰 R$ 590.000 | 📐 392 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-392-m-a-venda-na-praia-da-cachoeira-do-bom-jesus-condominio-green-hills-1500101144
+
+- **LOTE DE ESQUINA 295M² EM IMBITUBA**
+  - 💰 R$ 160.000 | 📐 295 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-295m-em-imbituba-1500099000
+
+- **Terreno | Condomínio Fechado | Biguaçu**
+  - 💰 R$ 199.990 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-fechado-biguacu-1500096450
+
+- **SÍTIO DOS SONHOS EM IÇARA SC**
+  - 💰 R$ 1.600.000 | 📐 55000 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-dos-sonhos-em-icara-sc-1500093353
+
+- **Terreno residencial**
+  - 💰 R$ 420.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1500089140
+
+- **Terreno am Águas mornas**
+  - 💰 R$ 187.000 | 📐 390 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-am-aguas-mornas-1500085852
+
+- **Vendo terreno na Guarita - Sombrio**
+  - 💰 R$ 85.000 | 📐 360 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-guarita-sombrio-1500085189
+
+- **Terreno à venda às margens da BR-101, em Biguaçu/SC.**
+  - 💰 R$ 6.500.000 | 📐 10817 m²
+  - 📍 Tijuquinhas (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-as-margens-da-br-101-em-biguacu-sc-1500084912
+
+- **Terreno à venda por R$ 550000.00, 400.00 m2 - INGLESES DO RIO VERMELHO**
+  - 💰 R$ 550.000 | 📐 400 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-por-r-550000-00-400-00-m2-ingleses-do-rio-vermelho-florianopolis-sc-1500082732
+
+- **Terreno residencial**
+  - 💰 R$ 210.000 | 📐 360 m²
+  - 📍 Prado — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1500074062
+
+- **Chácara c/4.000m², casa de madeira 3 quartos - Pagará, Santo Amaro Da **
+  - 💰 R$ 575.000 | 📐 4000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-c-4-000m-casa-de-madeira-3-quartos-pagara-santo-amaro-da-imperatriz-1500067458
+
+- **Chácara 6,35 hectares c/nascente de água - Águas Mornas**
+  - 💰 R$ 380.000 | 📐 63852 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-6-35-hectares-c-nascente-de-agua-aguas-mornas-1500063327
+
+- **Terreno a 2 minutos do centro de Criciúma com LINDA VISTA da cidade Lo**
+  - 💰 R$ 210.000 | 📐 362 m²
+  - 📍 Santa Catarina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-2-minutos-do-centro-de-criciuma-com-linda-vista-da-cidade-lot-parque-dos-ipes-1500070806
+
+- **Sítio c/2 quartos - Santo Amaro da Imperatriz**
+  - 💰 R$ 280.000 | 📐 550 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-c-2-quartos-santo-amaro-da-imperatriz-1500062891
+
+- **Vendo lindo sítio dentro da cidade !!**
+  - 💰 R$ 650.000 | 📐 6000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lindo-sitio-dentro-da-cidade-1499741848
+
+- **Terreno PLANO e AMPLO para Pavilhão próximo ao centro Cricúma ACEITA p**
+  - 💰 R$ 550.000 | 📐 1586 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-e-amplo-para-pavilhao-proximo-ao-centro-cricuma-aceita-parcelamento-direto-1500035343
+
+- **Lote / Terreno em Centro - Biguaçu**
+  - 💰 R$ 3.500.000 | 📐 1117 m²
+  - 📍 Praia João Rosa — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-centro-biguacu-1500034043
+
+- **Vendo terreno na praia do Caravelle - Cidade de Passo de Torres - Valo**
+  - 💰 R$ 115.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-do-caravelle-cidade-de-passo-de-torres-valor-115-mil-1500032820
+
+- **Lote / Terreno em Aririu - Palhoça**
+  - 💰 R$ 630.000 | 📐 717 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-aririu-palhoca-1500031581
+
+- **Terreno 414,36m2 no Reserva do Lago. Melhor loteamento da região. Abai**
+  - 💰 R$ 365.000 | 📐 41436 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-414-36m2-no-reserva-do-lago-melhor-loteamento-da-regiao-abaixo-valor-de-mercado-1500018219
+
+- **Terreno Rural para Venda em Angelina, ALTO GARCIA**
+  - 💰 R$ 160.000 | 📐 20000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-para-venda-em-angelina-alto-garcia-1500017404
+
+- **Terreno para Venda com 901m² - Barreiros - São José/SC**
+  - 💰 R$ 2.600.000 | 📐 901 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-com-901m-barreiros-sao-jose-sc-1499963574
+
+- **200m do mar. Terreno de 390m² aterrado murado escriturado ja c\ casa d**
+  - 💰 R$ 319.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/200m-do-mar-terreno-de-390m-aterrado-murado-escriturado-ja-c-casa-de-madeira-edificada-1500115129
+
+- **Terreno a venda em Garopaba - SC**
+  - 💰 R$ 265.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-1500103536
+
