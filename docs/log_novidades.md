@@ -82324,3 +82324,256 @@
   - 📍  — Laguna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/250m-do-mr-terreno-de-390m-aterrado-escriturado-e-documentado-finaniavel-estuda-parcelar-1500133859
 
+
+## 🆕 50 novos anúncios — 08/05/2026 05:43
+
+- **Oportunidade Única em CRICIUMA - SC | Tipo: Terreno | Negociação: Lici**
+  - 💰 R$ 65.084 | 📐 360 m²
+  - 📍 Vila Floresta II — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-criciuma-sc-tipo-terreno-negociacao-licitacao-aberta-situa-1500304745
+
+- **Oportunidade Terreno pra Investimento**
+  - 💰 R$ 3.286.000 | 📐 331 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-pra-investimento-1500304417
+
+- **Oportunidade Única em URUSSANGA - SC | Tipo: Terreno | Negociação: Lei**
+  - 💰 R$ 210.414 | 📐 507 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-urussanga-sc-tipo-terreno-negociacao-leilao-situacao-imov-1500303585
+
+- **Oportunidade Única em SAO JOSE - SC | Tipo: Terreno | Negociação: Leil**
+  - 💰 R$ 604.900 | 📐 633 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-sao-jose-sc-tipo-terreno-negociacao-leilao-situacao-imove-1500303500
+
+- **Terreno no Campeche 360m² - Alto Potencial de Valorização**
+  - 💰 R$ 383.000 | 📐 360 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-campeche-360m-alto-potencial-de-valorizacao-1500303181
+
+- **Terreno na principal avenida dos Ingleses**
+  - 💰 R$ 3.800.000 | 📐 450 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-principal-avenida-dos-ingleses-1500302105
+
+- **Terreno no bairro Trindade**
+  - 💰 R$ 850.000 | 📐 417 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-trindade-1500293866
+
+- **Terreno com viabilidade para prédio - Trindade - Fpolis - SC**
+  - 💰 R$ 11.000.000 | 📐 835 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-para-predio-trindade-fpolis-sc-1500288588
+
+- **Terreno 310 m² com viabilidade construtiva - Estreito/Jardim Atlântico**
+  - 💰 R$ 745.000 | 📐 310 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-310-m-com-viabilidade-construtiva-estreito-jardim-atlantico-florianopolis-sc-1500287062
+
+- **Terreno Plano próximo ao CIC e TITRI com Viabilidade**
+  - 💰 R$ 2.125.000 | 📐 300 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-proximo-ao-cic-e-titri-com-viabilidade-1500278947
+
+- **Terreno proximo a UFSC A VENDA.**
+  - 💰 R$ 1.350.000 | 📐 720 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-ufsc-a-venda-1500278836
+
+- **Terreno de 794m² em condomínio fechado no bairro Córrego Grande**
+  - 💰 R$ 1.100.000 | 📐 794 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-794m-em-condominio-fechado-no-bairro-corrego-grande-1500278750
+
+- **Venda - Terreno no bairro Trindade, Florianópolis**
+  - 💰 R$ 1.815.000 | 📐 322 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-no-bairro-trindade-florianopolis-1500278655
+
+- **Terreno no bairro Carvoeira**
+  - 💰 R$ 700.000 | 📐 456 m²
+  - 📍 Carvoeira — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-carvoeira-1500278553
+
+- **Terreno próximo à UFSC**
+  - 💰 R$ 2.000.000 | 📐 6000 m²
+  - 📍 Pantanal — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-ufsc-1500278529
+
+- **Terreno plano de 360m próximo ao Shopping Via Romana**
+  - 💰 R$ 2.600.000 | 📐 360 m²
+  - 📍 Santa Mônica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-de-360m-proximo-ao-shopping-via-romana-1500278163
+
+- **Terreno no bairro Carvoeira**
+  - 💰 R$ 30.000.000 | 📐 22621 m²
+  - 📍 Carvoeira — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-carvoeira-1500278003
+
+- **Terreno 600 M2 ( Ratones )**
+  - 💰 R$ 400.000 | 📐 600 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-600-m2-ratones-1500277865
+
+- **Terreno residencial, 360 metros à venda na trindade**
+  - 💰 R$ 750.000 | 📐 360 m²
+  - 📍 Carvoeira — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-360-metros-a-venda-na-trindade-1500277767
+
+- **Terreno no bairro Carvoeira**
+  - 💰 R$ 700.000 | 📐 456 m²
+  - 📍 Carvoeira — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-carvoeira-1500277345
+
+- **Terreno à Venda no bairro São João do Rio Vermelho com 3045 m² de área**
+  - 💰 R$ 6.000.000 | 📐 3045 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-sao-joao-do-rio-vermelho-com-3045-m-de-area-total-1500277056
+
+- **TERRENO RESIDENCIAL em Governador Celso Ramos - SC, Areias de Baixo**
+  - 💰 R$ 200.000 | 📐 390 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-governador-celso-ramos-sc-areias-de-baixo-1500274578
+
+- **Terreno à venda em Mina do Mato, Criciúma**
+  - 💰 R$ 190.000 | 📐 420 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-mina-do-mato-criciuma-1500274383
+
+- **Terreno com vista ao mar em Garopaba SC**
+  - 💰 R$ 900.000 | 📐 2050 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-ao-mar-em-garopaba-sc-1500274099
+
+- **Terreno à Venda no bairro São João do Rio Vermelho com 3045 m² de área**
+  - 💰 R$ 6.000.000 | 📐 3045 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-sao-joao-do-rio-vermelho-com-3045-m-de-area-total-1500273785
+
+- **Terreno super bem localizado (centro de Garopaba)**
+  - 💰 R$ 1.590.000 | 📐 640 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-super-bem-localizado-centro-de-garopaba-1500273458
+
+- **Terreno Loteamento Real Parque na Vargem do Bom Jesus**
+  - 💰 R$ 490.000 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-real-parque-na-vargem-do-bom-jesus-1500270854
+
+- **TERRENO 1.164 M2 - DECLIVE - VILLAGIO DA MONTANHA - ESCRITURA PÚBLICA**
+  - 💰 R$ 190.000 | 📐 1164 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-164-m2-declive-villagio-da-montanha-escritura-publica-1500266959
+
+- **Terreno à venda em condomínio familiar, Ratones, Florianópolis/SC**
+  - 💰 R$ 500.000 | 📐 1100 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-familiar-ratones-florianopolis-sc-1500265192
+
+- **Terreno Nova Camboriu - Jaguaruna SC**
+  - 💰 R$ 150.000 | 📐 450 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nova-camboriu-jaguaruna-sc-1500261069
+
+- **LOTE EM ÁREA NOBRE NA Praia da Pinheira**
+  - 💰 R$ 600.000 | 📐 358 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-area-nobre-na-praia-da-pinheira-1500255408
+
+- **Terreno com viabilidade para prédio - Trindade - Fpolis - SC**
+  - 💰 R$ 11.000.000 | 📐 835 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-para-predio-trindade-fpolis-sc-1500240613
+
+- **Brognoli Vende: Excelente terreno no Centro dos Inglês, Florianópolis.**
+  - 💰 R$ 6.450.000 | 📐 1203 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-excelente-terreno-no-centro-dos-ingles-florianopolis-1500240027
+
+- **Brognoli Vende - Terreno ótimo para investimento imobiliário**
+  - 💰 R$ 5.000.000 | 📐 1296 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-terreno-otimo-para-investimento-imobiliario-1500239481
+
+- **Vende-se terreno no córrego grande, ótima localização!!**
+  - 💰 R$ 1.500.000 | 📐 543 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-no-corrego-grande-otima-localizacao-1500238663
+
+- **Sitio em Ratones Florianopolis SC**
+  - 💰 R$ 2.500.000 | 📐 210 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-ratones-florianopolis-sc-1500238636
+
+- **Terreno 310 m² com viabilidade construtiva - Estreito/Jardim Atlântico**
+  - 💰 R$ 745.000 | 📐 310 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-310-m-com-viabilidade-construtiva-estreito-jardim-atlantico-florianopolis-sc-1500238045
+
+- **Terreno 200m² em Condomínio - Aririú**
+  - 💰 R$ 240.000 | 📐 200 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-200m-em-condominio-aririu-1500234106
+
+- **Vendo terreno**
+  - 💰 R$ 300.000 | 📐 430 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1500233345
+
+- **Terreno com 620 m² à venda, no Bairro Jurerê Internacional - Florianóp**
+  - 💰 R$ 3.800.000 | 📐 620 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-620-m-a-venda-no-bairro-jurere-internacional-florianopolis-sc-1500232759
+
+- **Terreno de esquina Imbituba**
+  - 💰 R$ 511.000 | 📐 1000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-imbituba-1500230408
+
+- **Terreno Ibiraquera - praia do rosa**
+  - 💰 R$ 170.000 | 📐 1000 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ibiraquera-praia-do-rosa-1500230233
+
+- **Lote/Terreno à Venda, 720 m² por R$ 720.000**
+  - 💰 R$ 720.000 | 📐 720 m²
+  - 📍 Praia do Sonho — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-a-venda-720-m-por-r-720-000-1500225881
+
+- **Terreno bairro Cobre Canelinha SC**
+  - 💰 R$ 110.000 | 📐 363 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-cobre-canelinha-sc-1500222249
+
+- **Ótimo Terreno em Garopaba**
+  - 💰 R$ 300.000 | 📐 315 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-em-garopaba-1500212086
+
+- **Terreno para Sítio com Preço Baixo  630m² na Querência, São João do Su**
+  - 💰 R$ 59.000 | 📐 630 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-com-preco-baixo-630m-na-querencia-sao-joao-do-sul-1500220338
+
+- **Oportunidade Única em LAURO MULLER - SC | Tipo: Terreno | Negociação: **
+  - 💰 R$ 69.332 | 📐 595 m²
+  - 📍  — Lauro Müller
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-lauro-muller-sc-tipo-terreno-negociacao-licitacao-aberta-s-1500304020
+
+- **Oportunidade Única em IMBITUBA - SC | Tipo: Terreno | Negociação: Leil**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-imbituba-sc-tipo-terreno-negociacao-leilao-situacao-imove-1500303785
+
+- **Terreno de 2 Hectares na Ressacada em Garopaba com Escritura Pública**
+  - 💰 R$ 880.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-hectares-na-ressacada-em-garopaba-com-escritura-publica-1500217766
+
+- **Oportunidade Única em CRICIUMA - SC | Tipo: Terreno | Negociação: Leil**
+  - 💰 R$ 234.995 | 📐 360 m²
+  - 📍 Vila Floresta II — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-criciuma-sc-tipo-terreno-negociacao-leilao-situacao-imove-1500303713
+
