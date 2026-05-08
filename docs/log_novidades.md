@@ -82750,3 +82750,116 @@
   - 📍 São Sebastião — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-chacara-chale-de-850m-com-vista-pro-mar-aceito-permuta-1500220796
 
+
+## 🆕 22 novos anúncios — 08/05/2026 16:28
+
+- **Terreno para Venda em Florianópolis, Sambaqui**
+  - 💰 R$ 1.500.000 | 📐 1100 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sambaqui-1500449151
+
+- **Terreno para Venda em Florianópolis, Rio Tavares**
+  - 💰 R$ 1.000.000 | 📐 229 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-rio-tavares-1500445177
+
+- **Terreno em cond. fechado Natureza, Privacidade, segurança com acesso f**
+  - 💰 R$ 319.000 | 📐 1300 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-cond-fechado-natureza-privacidade-seguranca-com-acesso-facil-a-cidade-1500444138
+
+- **Terreno em Loteamento | Deltaville | Biguaçu**
+  - 💰 R$ 478.566 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-deltaville-biguacu-1500430441
+
+- **Terreno em Loteamento | Deltaville | Biguaçu**
+  - 💰 R$ 374.471 | 📐 235 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-deltaville-biguacu-1500425261
+
+- **Terreno de 350m2 em Imbituba-SC**
+  - 💰 R$ 97.900 | 📐 350 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-350m2-em-imbituba-sc-1500423259
+
+- **Terreno 300m², Imbituba/SC**
+  - 💰 R$ 297.500 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-imbituba-sc-1500423165
+
+- **Terreno no Jardim Helena - Sanga Funda - Içara, com 360,00 m ²**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍 Sanga Funda — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-helena-sanga-funda-icara-com-360-00-m-1500413439
+
+- **? OPORTUNIDADE ÚNICA EM ALFREDO WAGNER ?**
+  - 💰 R$ 97.000 | 📐 1321 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-alfredo-wagner-1500405054
+
+- **Terreno à Venda no bairro São João do Rio Vermelho com 3045 m² de área**
+  - 💰 R$ 6.000.000 | 📐 3045 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-sao-joao-do-rio-vermelho-com-3045-m-de-area-total-1500402768
+
+- **TERRENO COND. FECHADO VILLAGE DA MONTANHA - RANCHO QUEIMADO/SC.  957,5**
+  - 💰 R$ 240.000 | 📐 957 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-cond-fechado-village-da-montanha-rancho-queimado-sc-957-51-m2-1480736482
+
+- **Terreno com 360m² - Porto do Moura, Canelinha**
+  - 💰 R$ 140.000 | 📐 360 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360m-porto-do-moura-canelinha-1500392437
+
+- **Vendo lote no cemitério Parque Senhor do Bonfim.**
+  - 💰 R$ 6.500 | 📐 ? m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-no-cemiterio-parque-senhor-do-bonfim-1500383673
+
+- **Excelente Oportunidade Terreno**
+  - 💰 R$ 317.000 | 📐 232 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-terreno-1500378536
+
+- **Terreno a venda em condomínio fechado na Pedra Branca.**
+  - 💰 R$ 850.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-na-pedra-branca-1500376901
+
+- **Terreno na melhor localização de Ratones**
+  - 💰 R$ 1.500.000 | 📐 1229 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-melhor-localizacao-de-ratones-1500372652
+
+- **Terreno de 360 m² em Condomínio Fechado, Biguaçu**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360-m-em-condominio-fechado-biguacu-1500356754
+
+- **Terreno a venda no sul da ilha**
+  - 💰 R$ 3.000.000 | 📐 510 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-sul-da-ilha-1500354109
+
+- **Terreno 1738,16m², no Fly ville, Gov. Celso Ramos - Abaixo da tabela**
+  - 💰 R$ 1.590.000 | 📐 1738 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1738-16m-no-fly-ville-gov-celso-ramos-abaixo-da-tabela-1500134451
+
+- **Terreno 1400m², no Fly ville, Gov. Celso Ramos - Abaixo da tabela**
+  - 💰 R$ 1.435.000 | 📐 1400 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1400m-no-fly-ville-gov-celso-ramos-abaixo-da-tabela-1500111565
+
+- **Terreno 9.054m² à Venda no Bairro Oliveira  Excelente Investimento**
+  - 💰 R$ 900.000 | 📐 9054 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-9-054m-a-venda-no-bairro-oliveira-excelente-investimento-1500423924
+
+- **Casa para Venda em Santa Rosa do Sul, Centro, 2 dormitórios, 1 banheir**
+  - 💰 R$ 190.000 | 📐 86 m²
+  - 📍 Centro — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-santa-rosa-do-sul-centro-464m2-RS190000/id-36829640/
+
