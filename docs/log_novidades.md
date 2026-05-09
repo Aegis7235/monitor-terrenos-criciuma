@@ -83164,3 +83164,51 @@
   - 📍  — Imaruí
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-20815-m-por-r-370-000-00-centro-imarui-sc-1500631868
 
+
+## 🆕 9 novos anúncios — 09/05/2026 10:18
+
+- **Terreno à venda Bairro Pachecos, Palhoça-SC**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-pachecos-palhoca-sc-1500660283
+
+- **Terreno à venda na Carvoeira**
+  - 💰 R$ 4.500.000 | 📐 2248 m²
+  - 📍 Carvoeira — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-carvoeira-1500647067
+
+- **Terreno à venda em Garopaba-SC, bairro Campo Duna - 360,00 m² de área**
+  - 💰 R$ 430.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-bairro-campo-duna-360-00-m-de-area-1500638928
+
+- **Terreno exclusivo no condomínio Montenegro Marine, Delta Ville! 360,00**
+  - 💰 R$ 420.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-no-condominio-montenegro-marine-delta-ville-360-00-m-na-beira-rio-bi-1500637991
+
+- **Terreno à venda em Garopaba-SC, bairro Campo Duna, 456m² de área. Venh**
+  - 💰 R$ 295.000 | 📐 456 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-bairro-campo-duna-456m-de-area-venha-conhecer-1500637614
+
+- **TERRENO À VENDA NO BAIRRO BELA VISTA, PALHOÇA/SC**
+  - 💰 R$ 186.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-no-bairro-bela-vista-palhoca-sc-1500637400
+
+- **TERRENO À VENDA NO BAIRRO BELA VISTA, PALHOÇA/SC**
+  - 💰 R$ 170.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-no-bairro-bela-vista-palhoca-sc-1500635868
+
+- **À venda na Praia do Sol, em Laguna-SC, é uma oportunidade imperdível.**
+  - 💰 R$ 200.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-na-praia-do-sol-em-laguna-sc-e-uma-oportunidade-imperdivel-1379196010
+
+- **Terreno no Campeche**
+  - 💰 R$ 1.010.000 | 📐 502 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-campeche-1481234784
+
