@@ -83001,3 +83001,166 @@
   - 📍 Zona Rural — Timbé do Sul
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-sc-timbe-do-sul-zona-rural-1200m2-RS379900/id-42370629/
 
+
+## 🆕 32 novos anúncios — 09/05/2026 06:01
+
+- **Vendo terreno .**
+  - 💰 R$ 340.000 | 📐 394 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1500604928
+
+- **Terreno Plano com 476m² no Córrego Grande**
+  - 💰 R$ 2.200.000 | 📐 476 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-com-476m-no-corrego-grande-1500631407
+
+- **Condomínio Mirante das Baías**
+  - 💰 R$ 1.386.000 | 📐 505 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-mirante-das-baias-1500622745
+
+- **TERRENO À VENDA EM GOVERNADOR CELSO RAMOS**
+  - 💰 R$ 380.000 | 📐 451 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-em-governador-celso-ramos-1500622676
+
+- **Terreno Quinta da Camboa**
+  - 💰 R$ 750.000 | 📐 368 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-quinta-da-camboa-1500621456
+
+- **AREA - CENTRO - SC**
+  - 💰 R$ 190.000 | 📐 447 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-centro-sc-1500620557
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi**
+  - 💰 R$ 1.299.000 | 📐 511 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1500619361
+
+- **Terrenos em Condominio Fechado no Bairro Itacurubi**
+  - 💰 R$ 1.401.000 | 📐 490 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1500617887
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi.**
+  - 💰 R$ 1.266.000 | 📐 450 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1500617520
+
+- **TERRENO NA LAGOA DA CONCEIÇÃO**
+  - 💰 R$ 4.000.000 | 📐 1110 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-lagoa-da-conceicao-1500615864
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi em Florianópolis-SC**
+  - 💰 R$ 1.491.000 | 📐 473 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-em-florianopolis-sc-1500615875
+
+- **Chácara à Venda - 2.000m², a 2 Minutos do Centro - Alfredo Wagner**
+  - 💰 R$ 450.000 | 📐 111 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-2-000m-a-2-minutos-do-centro-alfredo-wagner-1500615286
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi em Florianópolis-SC**
+  - 💰 R$ 1.528.000 | 📐 450 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-em-florianopolis-sc-1500613156
+
+- **Terreno no bairro Saco Grande**
+  - 💰 R$ 1.700.000 | 📐 728 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-saco-grande-1500613309
+
+- **Terreno no bairro João Paulo**
+  - 💰 R$ 1.300.000 | 📐 480 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-joao-paulo-1500612293
+
+- **Venda de Imóvel Agrícola em Loefelscheidt - Área Construída de 5000m²**
+  - 💰 R$ 750.000 | 📐 5000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-imovel-agricola-em-loefelscheidt-area-construida-de-5000m-1500611863
+
+- **Venda de Imóvel Agrícola em Loefelscheidt - Área Construída de 5000m²**
+  - 💰 R$ 750.000 | 📐 5000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-imovel-agricola-em-loefelscheidt-area-construida-de-5000m-1500604822
+
+- **Terreno para Venda com 749m² - Aririú - Palhoça/SC**
+  - 💰 R$ 975.000 | 📐 749 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-com-749m-aririu-palhoca-sc-1500604673
+
+- **Terreno amplo, de 312 m² Forquilhas - São José**
+  - 💰 R$ 255.000 | 📐 312 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-312-m-forquilhas-sao-jose-1500603799
+
+- **Terreno Industrial**
+  - 💰 R$ 5.500.000 | 📐 5533 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-1500590139
+
+- **Terreno à venda com 372 m² no loteamento Bosque Residence no Campeche **
+  - 💰 R$ 1.390.000 | 📐 372 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-372-m-no-loteamento-bosque-residence-no-campeche-florianopolis-sc-1500585566
+
+- **Terreno à venda com 377,88 m² no loteamento Bosque Residence no Campec**
+  - 💰 R$ 1.390.000 | 📐 378 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-377-88-m-no-loteamento-bosque-residence-no-campeche-florianopolis-s-1500584015
+
+- **LOTE EM SANTO AMARO COM ESCRITURA PUBLICA**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-santo-amaro-com-escritura-publica-1500574709
+
+- **2 Terrenos Juntos 900m² Esquina Sertão do Maruim**
+  - 💰 R$ 850.000 | 📐 900 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-juntos-900m-esquina-sertao-do-maruim-1500551344
+
+- **Ótima oportunidade, terreno no Bairro Arroio**
+  - 💰 R$ 220.000 | 📐 432 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-terreno-no-bairro-arroio-1500550874
+
+- **Terreno com Vista Lagoa e Mar em Garopaba | 2.050m² com Escritura e Vi**
+  - 💰 R$ 900.000 | 📐 2051 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-lagoa-e-mar-em-garopaba-2-050m-com-escritura-e-viabilidade-para-4-cas-1500550908
+
+- **Terreno na Encantada**
+  - 💰 R$ 280.000 | 📐 531 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-encantada-1500550751
+
+- **Venda de Imóvel Agrícola em Loefelscheidt - Área Construída de 5000m²**
+  - 💰 R$ 750.000 | 📐 5000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-imovel-agricola-em-loefelscheidt-area-construida-de-5000m-1500545196
+
+- **Vendo um belo terreno**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-um-belo-terreno-1500535631
+
+- **Terreno à venda, 700 m² por R$ 1.150.000 - Córrego Grande - Florianópo**
+  - 💰 R$ 1.150.000 | 📐 700 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-700-m-por-r-1-150-000-corrego-grande-florianopolis-sc-1500277159
+
+- **Venda-Sítio-Imbituba-Forquilha**
+  - 💰 R$ 280.000 | 📐 1700 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-sitio-imbituba-forquilha-1499510903
+
+- **Terreno à venda, 20815 m² por R$ 370.000,00 - Centro - Imaruí/SC**
+  - 💰 R$ 370.000 | 📐 20815 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-20815-m-por-r-370-000-00-centro-imarui-sc-1500631868
+
