@@ -83212,3 +83212,81 @@
   - 📍 Campeche — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-campeche-1481234784
 
+
+## 🆕 15 novos anúncios — 09/05/2026 16:06
+
+- **Terreno para Venda em Florianópolis, João Paulo**
+  - 💰 R$ 1.300.000 | 📐 360 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-joao-paulo-1500732343
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi.**
+  - 💰 R$ 1.982.000 | 📐 450 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1500725471
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi**
+  - 💰 R$ 2.302.000 | 📐 525 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1500724066
+
+- **Vendo terreno escriturado**
+  - 💰 R$ 180.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-escriturado-1500718808
+
+- **Preço de ocasião. Terreno de  390m² aterrado escriturado. C/ energia e**
+  - 💰 R$ 170.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/preco-de-ocasiao-terreno-de-390m-aterrado-escriturado-c-energia-eletrica-financiavel-1500708842
+
+- **Terreno à venda às margens da BR-101, em Biguaçu/SC.**
+  - 💰 R$ 3.180.000 | 📐 7005 m²
+  - 📍 Tijuquinhas (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-as-margens-da-br-101-em-biguacu-sc-1500691646
+
+- **LINDO SÍTIO EM ÁGUAS MORNAS C/CASA**
+  - 💰 R$ 410.000 | 📐 1700 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-em-aguas-mornas-c-casa-1500687035
+
+- **Sítio com lindo riacho passando dentro, casa 02 quartos em Águas Morna**
+  - 💰 R$ 430.000 | 📐 9633 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-lindo-riacho-passando-dentro-casa-02-quartos-em-aguas-mornas-1500681936
+
+- **AREA - CENTRO - SC**
+  - 💰 R$ 190.000 | 📐 447 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-centro-sc-1500674252
+
+- **AREA - CENTRO - SC**
+  - 💰 R$ 190.000 | 📐 447 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-centro-sc-1500666820
+
+- **Lote à venda no Reserva do Lago - 300m²**
+  - 💰 R$ 285.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-reserva-do-lago-300m-1500665378
+
+- **Terreno residencial**
+  - 💰 R$ 280.000 | 📐 151 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1500665206
+
+- **Terreno residencial**
+  - 💰 R$ 220.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1500664419
+
+- **Terreno escriturado de 480m² na avenida principal. Financiável Aceita-**
+  - 💰 R$ 225.000 | 📐 480 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-de-480m-na-avenida-principal-financiavel-aceita-se-carro-neg-facili-1500685961
+
+- **Lote escriturado 450 m²**
+  - 💰 R$ 139.000 | 📐 450 m²
+  - 📍  — Braço do Norte
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-escriturado-450-m-1500732941
+
