@@ -83290,3 +83290,106 @@
   - 📍  — Braço do Norte
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-escriturado-450-m-1500732941
 
+
+## 🆕 20 novos anúncios — 09/05/2026 21:59
+
+- **Terreno com 360mª no João Paulo em Florianópolis.**
+  - 💰 R$ 1.300.000 | 📐 360 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360m-no-joao-paulo-em-florianopolis-1500797057
+
+- **Terreno de 25774.8m² no bairro Rancho Queimado**
+  - 💰 R$ 440.000 | 📐 25774 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-25774-8m-no-bairro-rancho-queimado-1500797009
+
+- **Terreno de 2327.85m² no bairro Pachecos**
+  - 💰 R$ 2.120.000 | 📐 2327 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2327-85m-no-bairro-pachecos-1500796913
+
+- **Terreno de 40018m² no bairro Interior**
+  - 💰 R$ 298.000 | 📐 40018 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-40018m-no-bairro-interior-1500796915
+
+- **Terreno de 350m² no bairro Pântano Do Sul**
+  - 💰 R$ 650.000 | 📐 350 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-350m-no-bairro-pantano-do-sul-1500796860
+
+- **Área rural em Águas Mornas com 10 hectares ao lado da BR 282.**
+  - 💰 R$ 240.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-em-aguas-mornas-com-10-hectares-ao-lado-da-br-282-1500793341
+
+- **Terreno de 420m² no Alto Aririu em Palhoça**
+  - 💰 R$ 230.000 | 📐 420 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-420m-no-alto-aririu-em-palhoca-1500793281
+
+- **Terrenos na Av. Beira mar.**
+  - 💰 R$ 980.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-na-av-beira-mar-1500787410
+
+- **Terreno em Condomínio com Lazer de Resort e Lago Privativo**
+  - 💰 R$ 1.200.000 | 📐 421 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-com-lazer-de-resort-e-lago-privativo-1500779692
+
+- **LOTE 200M2, JARDINS 3, PALHOÇA-SC**
+  - 💰 R$ 160.000 | 📐 12 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-200m2-jardins-3-palhoca-sc-1500779691
+
+- **Terreno de 419,23 m² no em condomínio no Rio Vermelho**
+  - 💰 R$ 504.000 | 📐 419 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-419-23-m-no-em-condominio-no-rio-vermelho-1500779700
+
+- **Terreno frente 1100m do mar, potencial de valorização**
+  - 💰 R$ 36.500 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-1100m-do-mar-potencial-de-valorizacao-1500779173
+
+- **Imperdível! Lote Terra preço de custo!**
+  - 💰 R$ 225.000 | 📐 129 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imperdivel-lote-terra-preco-de-custo-1460951117
+
+- **terreno com casa**
+  - 💰 R$ 150.000 | 📐 ? m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-1500758617
+
+- **SUNSET CONDOMÍNIO CLUBE**
+  - 💰 R$ 408.214 | 📐 240 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sunset-condominio-clube-1500755171
+
+- **SUNSET CONDOMINIO CLUBE**
+  - 💰 R$ 357.187 | 📐 210 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sunset-condominio-clube-1500755162
+
+- **Chácara em Varginha - Santo Amaro da Imperatriz**
+  - 💰 R$ 500.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-varginha-santo-amaro-da-imperatriz-1500740669
+
+- **Terreno - Florianópolis SC**
+  - 💰 R$ 900.000 | 📐 300 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-florianopolis-sc-1500739556
+
+- **Chácara em Varginha - Santo Amaro da Imperatriz**
+  - 💰 R$ 700.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-varginha-santo-amaro-da-imperatriz-1500739112
+
+- **Conheça esse encanto de sítio em meio a natureza**
+  - 💰 R$ 4.500.000 | 📐 230 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/conheca-esse-encanto-de-sitio-em-meio-a-natureza-1500733131
+
