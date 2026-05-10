@@ -83462,3 +83462,61 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-600m-parcele-ou-financie-imbituba-pronto-p-construir-direto-c-proprietario-1500859655
 
+
+## 🆕 11 novos anúncios — 10/05/2026 22:01
+
+- **Terreno Carianos**
+  - 💰 R$ 620.000 | 📐 360 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-carianos-1500928356
+
+- **TERRENO - Campeche - DP-311299**
+  - 💰 R$ 990.000 | 📐 396 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-dp-311299-1500927267
+
+- **TERRENO - Campeche - DP-311301**
+  - 💰 R$ 990.000 | 📐 397 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-dp-311301-1500927261
+
+- **Terreno com vista pra cidade**
+  - 💰 R$ 100.000 | 📐 20000 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-pra-cidade-1479856665
+
+- **sítio Biguaçu 140.000m2**
+  - 💰 R$ 2.200.000 | 📐 140000 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-biguacu-140-000m2-1500921741
+
+- **Propriedade em imaruí/SC, quase 3 hectares.**
+  - 💰 R$ 700.000 | 📐 27588 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/propriedade-em-imarui-sc-quase-3-hectares-1500913707
+
+- **Vendo terreno do Ribeirão da ilha 360m2**
+  - 💰 R$ 520.000 | 📐 360 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-do-ribeirao-da-ilha-360m2-1500904166
+
+- **Venda-Chácara-Palhoça-Sertão do Campo**
+  - 💰 R$ 850.000 | 📐 120 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-chacara-palhoca-sertao-do-campo-1500902312
+
+- **Venda-Terreno-Imbituba-Praia do Sol**
+  - 💰 R$ 380.000 | 📐 540 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-praia-do-sol-1500902308
+
+- **Lote no pouso alto Gravatal 220 metros quadrados**
+  - 💰 R$ 130.000 | 📐 220 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-pouso-alto-gravatal-220-metros-quadrados-1500898197
+
+- **Terreno para Venda em Florianópolis, Jurerê**
+  - 💰 R$ 8.000.000 | 📐 555 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-jurere-1500894702
+
