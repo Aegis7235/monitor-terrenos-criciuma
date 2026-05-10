@@ -83431,3 +83431,11 @@
   - 📍  — São Pedro de Alcântara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-area-de-8000m2-em-sao-pedro-de-alcantara-1500777718
 
+
+## 🆕 1 novos anúncios — 10/05/2026 10:27
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1500848297
+
