@@ -83393,3 +83393,41 @@
   - 📍 Centro — Antônio Carlos
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/conheca-esse-encanto-de-sitio-em-meio-a-natureza-1500733131
 
+
+## 🆕 7 novos anúncios — 10/05/2026 06:24
+
+- **Terrenos no Condomínio Mirante Das Baías**
+  - 💰 R$ 1.693.000 | 📐 1024 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-condominio-mirante-das-baias-1500835903
+
+- **Terreno residencial**
+  - 💰 R$ 220.000 | 📐 200 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1500834076
+
+- **Jazigo no cemitério Jardim da paz em Florianópolis**
+  - 💰 R$ 4.000 | 📐 4 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jazigo-no-cemiterio-jardim-da-paz-em-florianopolis-1500807015
+
+- **Quitinete mobilliada - centro**
+  - 💰 R$ 1.550 | 📐 18 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/quitinete-mobilliada-centro-1500802252
+
+- **Terreno para chácara**
+  - 💰 R$ 265.000 | 📐 7380 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-chacara-1500802341
+
+- **Vendo sitio com casa.**
+  - 💰 R$ 600.000 | 📐 25000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-casa-1500778480
+
+- **Vendo Sítio com área de 8000m2 em São Pedro de Alcântara**
+  - 💰 R$ 480.000 | 📐 8000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-area-de-8000m2-em-sao-pedro-de-alcantara-1500777718
+
