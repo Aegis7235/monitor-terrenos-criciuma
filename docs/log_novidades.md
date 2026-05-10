@@ -83439,3 +83439,26 @@
   - 📍 Campeche — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1500848297
 
+
+## 🆕 4 novos anúncios — 10/05/2026 16:07
+
+- **Terrenos em Condomínio fechado no Itacorubi em Florianópolis-SC.**
+  - 💰 R$ 1.477.000 | 📐 477 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-itacorubi-em-florianopolis-sc-1500888834
+
+- **Terreno Campeche: 231m², 600m da praia, área nobre, não alaga, frutas **
+  - 💰 R$ 1.000.000 | 📐 232 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-231m-600m-da-praia-area-nobre-nao-alaga-frutas-e-escritura-publica-1500888368
+
+- **Terreno à venda - Loteamento 3 Caminhos**
+  - 💰 R$ 129.990 | 📐 273 m²
+  - 📍 Santa Luzia — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-3-caminhos-1500869046
+
+- **Lote 600m², Parcele ou Financie - Imbituba | Pronto p/ Construir | Dir**
+  - 💰 R$ 469.000 | 📐 601 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-600m-parcele-ou-financie-imbituba-pronto-p-construir-direto-c-proprietario-1500859655
+
