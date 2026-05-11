@@ -83598,3 +83598,71 @@
   - 📍 Cacupé — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-700-metros-quadrados-em-cacupe-florianopolis-sc-1500944923
 
+
+## 🆕 13 novos anúncios — 11/05/2026 12:23
+
+- **Lote / Terreno em Canasvieiras - Florianópolis**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-canasvieiras-florianopolis-1501027603
+
+- **Terreno ótima oportunidade próximo ao Pagani e Pedra Branca**
+  - 💰 R$ 6.999.999 | 📐 5842 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-otima-oportunidade-proximo-ao-pagani-e-pedra-branca-1501025649
+
+- **Terreno à Venda em Águas Mornas - Excelente Oportunidade de Investimen**
+  - 💰 R$ 770.000 | 📐 81100 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-aguas-mornas-excelente-oportunidade-de-investimento-1501019459
+
+- **Terreno para Venda em São José / SC no bairro Sertão do Maruim**
+  - 💰 R$ 360.000 | 📐 360 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-sao-jose-sc-no-bairro-sertao-do-maruim-1501019322
+
+- **Terreno á venda na Barra do Aririu**
+  - 💰 R$ 630.000 | 📐 717 m²
+  - 📍 Nova Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-barra-do-aririu-1501019090
+
+- **Terreno à Venda - Localização Privilegiada próximo ao Shopping Contine**
+  - 💰 R$ 597.000 | 📐 600 m²
+  - 📍 Picadas do Sul — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-localizacao-privilegiada-proximo-ao-shopping-continente-park-1501018697
+
+- **Terreno para Venda em Palhoça / SC no bairro AEROPARK**
+  - 💰 R$ 750.000 | 📐 701 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-palhoca-sc-no-bairro-aeropark-1501017995
+
+- **Terreno para Venda em Palhoça / SC no bairro AEROPARK**
+  - 💰 R$ 749.000 | 📐 704 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-palhoca-sc-no-bairro-aeropark-1501017815
+
+- **Terreno á venda em Picadas do Sul**
+  - 💰 R$ 1.007.000 | 📐 648 m²
+  - 📍 Picadas do Sul — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-picadas-do-sul-1501015036
+
+- **Terreno à venda em Acqua Condominio Clube**
+  - 💰 R$ 190.000 | 📐 254 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-acqua-condominio-clube-1501014823
+
+- **Terreno no Condomínio Vista da Pedra**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-vista-da-pedra-1501014726
+
+- **Terreno á venda no Bela Vista**
+  - 💰 R$ 390.000 | 📐 348 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bela-vista-1501014255
+
+- **Terreno Barra de Ibiraquera**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-barra-de-ibiraquera-1501009241
+
