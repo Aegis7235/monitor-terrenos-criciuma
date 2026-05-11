@@ -83754,3 +83754,271 @@
   - 📍 Aririú — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1501113776
 
+
+## 🆕 53 novos anúncios — 11/05/2026 22:20
+
+- **Lotes em 36 vezes direto com a imobiliária**
+  - 💰 R$ 199.900 | 📐 375 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-em-36-vezes-direto-com-a-imobiliaria-1501197716
+
+- **OPORTUNIDADE ÚNICA E PARCELADO AINDA**
+  - 💰 R$ 60.000 | 📐 2500 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-e-parcelado-ainda-1501193595
+
+- **Lote em Loteamento Mares Garopaba - Gamboa - Garopaba/SC**
+  - 💰 R$ 889.550 | 📐 500 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-loteamento-mares-garopaba-gamboa-garopaba-sc-1501180572
+
+- **Sítio em Rodovia Governador Mário Covas - Cova Triste - Garopaba/SC**
+  - 💰 R$ 2.099.420 | 📐 400 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-rodovia-governador-mario-covas-cova-triste-garopaba-sc-1501178503
+
+- **Lote em IMB 407 - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 1.695.140 | 📐 5000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-imb-407-ibiraquera-imbituba-sc-1501178370
+
+- **Vendo ou troco por 1 casa e 1 apartamento.  Na praia da pinheira.**
+  - 💰 R$ 500.000 | 📐 35 m²
+  - 📍 Monte Verde — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-por-1-casa-e-1-apartamento-na-praia-da-pinheira-1501191336
+
+- **Lote em Estrada Geral do Rosa - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 3.000.000 | 📐 4500 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-estrada-geral-do-rosa-ibiraquera-imbituba-sc-1501176657
+
+- **Lote em Rua da pousada da vida sol e mar - Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 750.000 | 📐 514 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-da-pousada-da-vida-sol-e-mar-praia-do-rosa-imbituba-sc-1501177277
+
+- **Fazenda em Estrada Geral do Moura - Moura - Canelinha/SC**
+  - 💰 R$ 14.989.300 | 📐 300000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-em-estrada-geral-do-moura-moura-canelinha-sc-1501177132
+
+- **Sítio em Canto do Schuch - Canto do Schuch - Águas Mornas/SC**
+  - 💰 R$ 490.000 | 📐 120 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-canto-do-schuch-canto-do-schuch-aguas-mornas-sc-1501176931
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.449.740 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1501176639
+
+- **Lote em Cangueri Quadro - Cangueri Quadro - Imaruí/SC**
+  - 💰 R$ 589.130 | 📐 20000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-cangueri-quadro-cangueri-quadro-imarui-sc-1501176733
+
+- **Lote em Rua Ivoni Jacinta da Silva - Bela Vista - Palhoça/SC**
+  - 💰 R$ 374.190 | 📐 611 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-ivoni-jacinta-da-silva-bela-vista-palhoca-sc-1501176273
+
+- **Chalé 5 estrelas**
+  - 💰 R$ 570.000 | 📐 2500 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chale-5-estrelas-1501189301
+
+- **Lote em Avenida Santa Catarina - Centro - Imbituba/SC**
+  - 💰 R$ 799.590 | 📐 380 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-avenida-santa-catarina-centro-imbituba-sc-1501174501
+
+- **Lote em Rua Antônio Dal Farra - Vila São Jorge - Siderópolis/SC**
+  - 💰 R$ 319.130 | 📐 4008 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1501172602
+
+- **Sítio em Rua Jaime Rodrigues - Praia do Sol - Laguna/SC**
+  - 💰 R$ 600.000 | 📐 140 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-rua-jaime-rodrigues-praia-do-sol-laguna-sc-1501172272
+
+- **Lote em Rua Aristides Balsani Francalaci - Village - Imbituba/SC**
+  - 💰 R$ 759.090 | 📐 700 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-aristides-balsani-francalaci-village-imbituba-sc-1501172205
+
+- **Lote em Rodovia Baldicero Filomeno - Ribeirão da Ilha - Florianópolis/**
+  - 💰 R$ 448.500 | 📐 474 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rodovia-baldicero-filomeno-ribeirao-da-ilha-florianopolis-sc-1501171694
+
+- **Fazenda em Estrada Geral Rio Duna - Penha - Paulo Lopes/SC**
+  - 💰 R$ 7.999.200 | 📐 3000000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-em-estrada-geral-rio-duna-penha-paulo-lopes-sc-1501171597
+
+- **Terreno Xangrila Dos Mares**
+  - 💰 R$ 102.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-xangrila-dos-mares-1501171236
+
+- **Lote em Servidão Nossa Senhora do Desterro - Carianos - Florianópolis/**
+  - 💰 R$ 514.780 | 📐 530 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-servidao-nossa-senhora-do-desterro-carianos-florianopolis-sc-1501170617
+
+- **Lote em BR 101 - Alto Arroio - Imbituba/SC**
+  - 💰 R$ 5.959.150 | 📐 50000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-br-101-alto-arroio-imbituba-sc-1501169598
+
+- **Lote em condomínio em Rua Esperança - Araçatuba - Imbituba/SC**
+  - 💰 R$ 749.480 | 📐 831 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-em-rua-esperanca-aracatuba-imbituba-sc-1501169282
+
+- **Sítio em Estrada Geral Sertão Cangueri - Sertão Cangueri - Imaruí/SC**
+  - 💰 R$ 879.450 | 📐 100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-estrada-geral-sertao-cangueri-sertao-cangueri-imarui-sc-1501168768
+
+- **Lote em Loteamento Mares Garopaba - Gamboa - Garopaba/SC**
+  - 💰 R$ 679.730 | 📐 409 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-loteamento-mares-garopaba-gamboa-garopaba-sc-1501167427
+
+- **Lote em Estrada Geral Ibiraquera - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 10.000.000 | 📐 13050 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-estrada-geral-ibiraquera-ibiraquera-imbituba-sc-1501166844
+
+- **Lote em Estrada Geral da Ibiraquera - Ibiraquera - Imbituba/SC**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-estrada-geral-da-ibiraquera-ibiraquera-imbituba-sc-1501165915
+
+- **Lote em Rua Siderópolis - Vila Nova - Imbituba/SC**
+  - 💰 R$ 380.000 | 📐 356 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-sideropolis-vila-nova-imbituba-sc-1501165630
+
+- **Refúgio de luxo em Ratones**
+  - 💰 R$ 8.500.000 | 📐 102000 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/refugio-de-luxo-em-ratones-1501162615
+
+- **Chácara em Albardão - Palhoça**
+  - 💰 R$ 475.000 | 📐 85 m²
+  - 📍 Albardão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-albardao-palhoca-1429748091
+
+- **Terreno 350 m2 SERTÃO DO MARUIM**
+  - 💰 R$ 240.000 | 📐 350 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-350-m2-sertao-do-maruim-1429408843
+
+- **Oportunidade Exclusiva: Terreno no Alto Aririú - Condomínio Fechado**
+  - 💰 R$ 200.000 | 📐 460 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-exclusiva-terreno-no-alto-aririu-condominio-fechado-1501149782
+
+- **Lote 250m²  10 X 25**
+  - 💰 R$ 225.000 | 📐 250 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-250m-10-x-25-1501146759
+
+- **Sítio  para venda com 3662 metros quadrados em Vargem Grande - Águas M**
+  - 💰 R$ 225.000 | 📐 3662 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-com-3662-metros-quadrados-em-vargem-grande-aguas-mornas-sc-1477125231
+
+- **Oportunidade, barbada, torrando. Vendo lindo terreno.**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Praia João Rosa — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-barbada-torrando-vendo-lindo-terreno-1501132884
+
+- **Terreno no bairro Caité, em Alfredo Wagner - SC**
+  - 💰 R$ 136.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-caite-em-alfredo-wagner-sc-1469491615
+
+- **Terreno de 360m² no bairro Ressacada.**
+  - 💰 R$ 480.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360m-no-bairro-ressacada-1501128520
+
+- **Terreno Pinheira com 444,08m2, 800m do mar, escritura pública, Palhoça**
+  - 💰 R$ 400.000 | 📐 444 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pinheira-com-444-08m2-800m-do-mar-escritura-publica-palhoca-sc-1501128410
+
+- **Sítio com 12.100m2 com casa 3 quartos (ste), Vargem Pequena, Florianóp**
+  - 💰 R$ 1.150.000 | 📐 12800 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-12-100m2-com-casa-3-quartos-ste-vargem-pequena-florianopolis-sc-1501128507
+
+- **Bosque de Imbituba Direto com Proprietário Lote Quitado**
+  - 💰 R$ 139.000 | 📐 300 m²
+  - 📍 Madri — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/bosque-de-imbituba-direto-com-proprietario-lote-quitado-1501120598
+
+- **Terreno na Geral de Governador Celso Ramos no Jordao**
+  - 💰 R$ 180.000 | 📐 360 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-geral-de-governador-celso-ramos-no-jordao-1475287637
+
+- **Vendo ou troco sitio em Águas mornas**
+  - 💰 R$ 280.000 | 📐 5000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-sitio-em-aguas-mornas-1501119162
+
+- **Terreno no rosa**
+  - 💰 R$ 320.000 | 📐 300 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rosa-1501116837
+
+- **Sítio Em Alfredo Wagner**
+  - 💰 R$ 450.000 | 📐 47000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-1501116708
+
+- **Sitio proximo do Centro de Rancho Queimado.**
+  - 💰 R$ 650.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-do-centro-de-rancho-queimado-1500128903
+
+- **Sitio a poucos minutos de Anitápolis - SC**
+  - 💰 R$ 220.000 | 📐 20000 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-poucos-minutos-de-anitapolis-sc-1501194800
+
+- **Chácara em Caldas da Imperatriz!**
+  - 💰 R$ 390.000 | 📐 2963 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-caldas-da-imperatriz-1501193262
+
+- **Terreno na avenida B acesso principal da praia**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-avenida-b-acesso-principal-da-praia-1501172622
+
+- **Terreno financiável no bairro Carianos em - Florianópolis - SC**
+  - 💰 R$ 595.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-financiavel-no-bairro-carianos-em-florianopolis-sc-1501154432
+
+- **Loteamento Capão Bonito - Balneário Gaivota, Santa Catarina - Parcelam**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-capao-bonito-balneario-gaivota-santa-catarina-parcelamento-direto-com-a-lo-1501151396
+
+- **Terreno para venda possui 552 metros quadrados em Itacorubi - Florianó**
+  - 💰 R$ 800.000 | 📐 552 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-possui-552-metros-quadrados-em-itacorubi-florianopolis-sc-1501138911
+
+- **Imóvel para venda tem 320 metros quadrados em Monte Verde - Florianópo**
+  - 💰 R$ 620.000 | 📐 320 m²
+  - 📍 Monte Verde — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-320-metros-quadrados-em-monte-verde-florianopolis-sc-1501119462
+
