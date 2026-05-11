@@ -83666,3 +83666,91 @@
   - 📍 Pedra Branca — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-barra-de-ibiraquera-1501009241
 
+
+## 🆕 17 novos anúncios — 11/05/2026 17:37
+
+- **Terrenonde 1200m² no centro de Orleans**
+  - 💰 R$ 1.600.000 | 📐 1200 m²
+  - 📍  — Orleans
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenonde-1200m-no-centro-de-orleans-1501113619
+
+- **Terreno a venda em Pacheco/Palhoça, ótima localização.**
+  - 💰 R$ 2.000.000 | 📐 ? m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-pacheco-palhoca-otima-localizacao-1501102703
+
+- **Terreno em Major Gercino com Área total de 4.581,55 m²**
+  - 💰 R$ 165.000 | 📐 4582 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-major-gercino-com-area-total-de-4-581-55-m-1501101812
+
+- **Terreno jardins bela vista**
+  - 💰 R$ 175.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-jardins-bela-vista-1501097269
+
+- **Terreno para sitio em Imarui**
+  - 💰 R$ 170.000 | 📐 15000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-em-imarui-1501095817
+
+- **Terreno nova fazenda (Laguna)**
+  - 💰 R$ 75.000 | 📐 310 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nova-fazenda-laguna-1501091274
+
+- **Terreno para loteamento ou investimento**
+  - 💰 R$ 5.000.000 | 📐 40700 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-loteamento-ou-investimento-1501089638
+
+- **Sítio 3 cachoeiras em Alfredo Wagner - SC**
+  - 💰 R$ 550.000 | 📐 30000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-3-cachoeiras-em-alfredo-wagner-sc-1501086342
+
+- **Terreno em condomínio à venda no Saco Grande, em Florianópolis.**
+  - 💰 R$ 620.000 | 📐 360 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-no-saco-grande-em-florianopolis-1501083927
+
+- **Terreno 316m² a venda a 100mts da Praia da Ribanceira-Imbituba/SC.**
+  - 💰 R$ 337.075 | 📐 316 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-316m-a-venda-a-100mts-da-praia-da-ribanceira-imbituba-sc-1501079964
+
+- **Terreno Rural à Venda em Águas Mornas - 10 Hectares**
+  - 💰 R$ 700.000 | 📐 10000 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-a-venda-em-aguas-mornas-10-hectares-1471812096
+
+- **Vendo terreno**
+  - 💰 R$ 100.000 | 📐 ? m²
+  - 📍  — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1501050656
+
+- **terreno 119 metros quadrados no rio vermelho**
+  - 💰 R$ 99.000 | 📐 119 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-119-metros-quadrados-no-rio-vermelho-1501044827
+
+- **Terreno no Aririu com 490m² pronto para construir**
+  - 💰 R$ 390.000 | 📐 490 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-aririu-com-490m-pronto-para-construir-1501040714
+
+- **Sítio 47.000 metros**
+  - 💰 R$ 450.000 | 📐 47000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-47-000-metros-1501040697
+
+- **LOTE**
+  - 💰 R$ 14.000 | 📐 360 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-1501035834
+
+- **Imóvel para venda possui 150 metros quadrados com 3 quartos em Aririú **
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1501113776
+
