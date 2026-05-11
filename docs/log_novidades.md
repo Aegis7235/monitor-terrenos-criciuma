@@ -83520,3 +83520,81 @@
   - 📍 Jurerê — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-jurere-1500894702
 
+
+## 🆕 15 novos anúncios — 11/05/2026 06:51
+
+- **Terreno em Jaguaruna Garopaba do sul centro**
+  - 💰 R$ 850.000 | 📐 6400000 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jaguaruna-garopaba-do-sul-centro-1500985148
+
+- **Terreno ao lado do Kobrasol no Roçado**
+  - 💰 R$ 420.000 | 📐 415 m²
+  - 📍 Roçado — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ao-lado-do-kobrasol-no-rocado-1474607005
+
+- **Terreno na praia da pinheira 260 mil**
+  - 💰 R$ 260.000 | 📐 224 m²
+  - 📍 Bela Vista — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-da-pinheira-260-mil-1500978696
+
+- **Terreno Trindade codigo: 155441**
+  - 💰 R$ 1.700.000 | 📐 377 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-trindade-codigo-155441-1500975411
+
+- **TERRENO ESTAÇÃO COCAL - MORRO DA FUMAÇA**
+  - 💰 R$ 130.000 | 📐 552 m²
+  - 📍 Estação Cocal — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-estacao-cocal-morro-da-fumaca-1438496764
+
+- **Terreno Premium na Quinta dos Açores | Frente Área Verde | 339m²**
+  - 💰 R$ 185.000 | 📐 339 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-premium-na-quinta-dos-acores-frente-area-verde-339m-1500970420
+
+- **Troco ou vendo**
+  - 💰 R$ 100.000 | 📐 500 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/troco-ou-vendo-1500965873
+
+- **Terreno com 2,000,00 com água luz e fácil acesso com vista emcrivel ac**
+  - 💰 R$ 220.000 | 📐 2000 m²
+  - 📍 Praia João Rosa — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2-000-00-com-agua-luz-e-facil-acesso-com-vista-emcrivel-aceito-troca-por-em-1500956359
+
+- **Terreno próximo a serra corvo branco**
+  - 💰 R$ 599.000 | 📐 200000 m²
+  - 📍  — Rio Fortuna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-serra-corvo-branco-1500959394
+
+- **Terreno Loteamento Lúcia Giassi Cocal do Sul - SC**
+  - 💰 R$ 200.000 | 📐 404 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-lucia-giassi-cocal-do-sul-sc-1500957493
+
+- **Terreno no contorno viário**
+  - 💰 R$ 4.500.000 | 📐 123000 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-contorno-viario-1500955256
+
+- **Imóvel para venda tem 335 metros quadrados em Centro - Capivari de Bai**
+  - 💰 R$ 400.000 | 📐 335 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-335-metros-quadrados-em-centro-capivari-de-baixo-sc-1500952087
+
+- **Imóvel para venda possui 375 metros quadrados em Campo Bom - Jaguaruna**
+  - 💰 R$ 180.000 | 📐 375 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-375-metros-quadrados-em-campo-bom-jaguaruna-sc-1500951324
+
+- **Imóvel para venda possui 360 metros quadrados em Farol de Santa Marta **
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-360-metros-quadrados-em-farol-de-santa-marta-laguna-sc-1500950582
+
+- **Imóvel para venda com 700 metros quadrados em Cacupé - Florianópolis -**
+  - 💰 R$ 1.970.000 | 📐 700 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-700-metros-quadrados-em-cacupe-florianopolis-sc-1500944923
+
