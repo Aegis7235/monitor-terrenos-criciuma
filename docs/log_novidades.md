@@ -84125,3 +84125,136 @@
   - 📍 Hercílio Luz (Hercílio Luz) — Araranguá
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-ararangua-hercilio-luz-hercilio-luz-4m2-RS212000/id-42364037/
 
+
+## 🆕 26 novos anúncios — 12/05/2026 11:34
+
+- **Terreno em Condominio em Invernadinha - Rancho Queimado**
+  - 💰 R$ 430.000 | 📐 1014 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-em-invernadinha-rancho-queimado-1501323757
+
+- **Terreno em Praia do Sonho, Palhoça/SC**
+  - 💰 R$ 1.000.000 | 📐 651 m²
+  - 📍 Praia do Sonho — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-praia-do-sonho-palhoca-sc-1501322480
+
+- **Excelente Área Rural com 50.000 m² em Paulo Lopes/SC | Escritura Públi**
+  - 💰 R$ 650.000 | 📐 50000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-area-rural-com-50-000-m-em-paulo-lopes-sc-escritura-publica-e-otimo-acesso-1501322181
+
+- **Excelente Terreno com 345m² em Paulo Lopes | Próximo ao Centro**
+  - 💰 R$ 175.000 | 📐 345 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-com-345m-em-paulo-lopes-proximo-ao-centro-1501322118
+
+- **Lote à venda no Reserva do Lago com 375,02m²**
+  - 💰 R$ 450.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-reserva-do-lago-com-375-02m-1501319156
+
+- **Lote à venda no Reserva do Lago com 300m²**
+  - 💰 R$ 265.957 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-reserva-do-lago-com-300m-1501318602
+
+- **Lote à venda no Reserva do Lago com 300m²**
+  - 💰 R$ 265.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-reserva-do-lago-com-300m-1501318199
+
+- **Lote à venda no Reserva do Lago com 300,12m²**
+  - 💰 R$ 327.660 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-reserva-do-lago-com-300-12m-1501318135
+
+- **Lote à venda no Reserva do Lago com 441,99m²**
+  - 💰 R$ 425.532 | 📐 442 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-reserva-do-lago-com-441-99m-1501318116
+
+- **Lote à venda no Reserva do Lago com 300m²**
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-reserva-do-lago-com-300m-1501318070
+
+- **Lote à venda no Reserva do Lago com 300,06m²**
+  - 💰 R$ 327.660 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-reserva-do-lago-com-300-06m-1501317958
+
+- **Terreno em Praia Comprida, São José/SC**
+  - 💰 R$ 350.000 | 📐 600 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-praia-comprida-sao-jose-sc-1501304546
+
+- **Terreno à venda com 686,51m² de área total por R$ 2.800.000,00 no Bair**
+  - 💰 R$ 2.800.000 | 📐 686 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-686-51m-de-area-total-por-r-2-800-000-00-no-bairro-saco-dos-limoes-e-1501298447
+
+- **Casa com 2 quartos à venda no Pinheirinho, Criciúma**
+  - 💰 R$ 340.000 | 📐 52 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-criciuma-pinheirinho-316m2-RS340000/id-42355326/
+
+- **Casa com 3 quartos à venda no Jardim Silvana, Içara**
+  - 💰 R$ 650.000 | 📐 ? m²
+  - 📍 Jardim Silvana — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-icara-jardim-silvana-RS650000/id-32818607/
+
+- **Casa com 2 quartos à venda no Coloninha, Araranguá**
+  - 💰 R$ 265.000 | 📐 69 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-coloninha-RS265000/id-28645833/
+
+- **Casa à venda, 55 m² por R$ 365.000,00 - Jardim Das Avenidas - Ararangu**
+  - 💰 R$ 365.000 | 📐 55 m²
+  - 📍 Jardim das Avenidas — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-ararangua-jardim-das-avenidas-360m2-RS365000/id-37260613/
+
+- **Casa para Venda em Sombrio, Raizeira, 3 dormitórios, 1 suíte, 1 banhei**
+  - 💰 R$ 880.000 | 📐 350 m²
+  - 📍 Raizeira — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-raizeira-350m2-RS880000/id-34682413/
+
+- **Casa para Venda em Sombrio, Januária, 3 dormitórios, 1 banheiro, 1 vag**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Januária — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-januaria-360m2-RS350000/id-25603064/
+
+- **Casa para Venda em Sombrio, São Pedro, 2 dormitórios, 1 banheiro, 1 va**
+  - 💰 R$ 225.000 | 📐 260 m²
+  - 📍 São Pedro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-sao-pedro-260m2-RS225000/id-25515849/
+
+- **Casa em Condomínio 3 dormitórios à venda Loteamento Caravelle Passo de**
+  - 💰 R$ 2.667.288 | 📐 171 m²
+  - 📍 Praia Caravelle — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-passo-de-torres-praia-caravelle-171m2-RS2667288/id-36070798/
+
+- **Casa com 3 quartos à venda na Bela Torres, Passo de Torres**
+  - 💰 R$ 790.000 | 📐 ? m²
+  - 📍 Bela Torres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-passo-de-torres-bela-torres-RS790000/id-34192483/
+
+- **Casa em condomínio fechado com 4 quartos à venda na Rod. Pref. João Lu**
+  - 💰 R$ 2.300.000 | 📐 221 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-4-quartos-com-garagem-sc-passo-de-torres-centro-443m2-RS2300000/id-31101631/
+
+- **Casa com 2 quartos à venda na Martinho Bernardino Ferreira, 153, Centr**
+  - 💰 R$ 251.000 | 📐 70 m²
+  - 📍 Centro — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-centro-300m2-RS251000/id-41631328/
+
+- **Casa com 4 quartos à venda no Centro, Balneário Rincão**
+  - 💰 R$ 950.000 | 📐 ? m²
+  - 📍 Centro — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-balneario-rincao-centro-RS950000/id-29091536/
+
+- **Casa com 4 quartos à venda no Balneário Arroio Corrente, Jaguaruna , 1**
+  - 💰 R$ 1.590.000 | 📐 151 m²
+  - 📍 Balneário Arroio Corrente — Jaguaruna
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-jaguaruna-balneario-arroio-corrente-RS1590000/id-41193188/
+
