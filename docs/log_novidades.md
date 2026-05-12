@@ -84258,3 +84258,201 @@
   - 📍 Balneário Arroio Corrente — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-jaguaruna-balneario-arroio-corrente-RS1590000/id-41193188/
 
+
+## 🆕 39 novos anúncios — 12/05/2026 17:24
+
+- **Chácara em Caldas da Imperatriz - Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 340.000 | 📐 1000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-caldas-da-imperatriz-santo-amaro-da-imperatriz-sc-1501436832
+
+- **Linda Chácara em Rancho Queimado - SC**
+  - 💰 R$ 750.000 | 📐 2000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-chacara-em-rancho-queimado-sc-1501436459
+
+- **Terreno 300m² - Pedra Branca - imv**
+  - 💰 R$ 1.100.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-pedra-branca-imv-1501435683
+
+- **Vendo terreno em imarui**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-imarui-1501434298
+
+- **Chácara com escritura publica e linda vista em Santo Amaro da Imperatr**
+  - 💰 R$ 370.000 | 📐 2500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-escritura-publica-e-linda-vista-em-santo-amaro-da-imperatriz-sc-1501428884
+
+- **Terreno morro da cruz Florianópolis**
+  - 💰 R$ 1.050.000 | 📐 496 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-morro-da-cruz-florianopolis-1501425933
+
+- **Sitio em Águas Mornas - SC**
+  - 💰 R$ 1.400.000 | 📐 27000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-sc-1501417995
+
+- **Alugo sítio para temporada em santo amaro da imperatriz**
+  - 💰 R$ 980 | 📐 1500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alugo-sitio-para-temporada-em-santo-amaro-da-imperatriz-1451159499
+
+- **Terreno em condomínio Horse Club com 400m² à venda por R$530.000,00**
+  - 💰 R$ 530.000 | 📐 400 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-horse-club-com-400m-a-venda-por-r-530-000-00-981350392
+
+- **Terreno à venda em Siderópolis no bairro Rio Fiorita**
+  - 💰 R$ 150.000 | 📐 419 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sideropolis-no-bairro-rio-fiorita-1501400680
+
+- **Terreno rural em Anitápolis de 32.014,89m2**
+  - 💰 R$ 150.000 | 📐 3201489 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-em-anitapolis-de-32-014-89m2-1501397602
+
+- **Terreno Centro Crisciúma SC 185 m2**
+  - 💰 R$ 200.000 | 📐 185 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-centro-crisciuma-sc-185-m2-1500946781
+
+- **Terreno para Venda com 495m² - Ingleses - Florianópolis/SC**
+  - 💰 R$ 4.000.000 | 📐 495 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-com-495m-ingleses-florianopolis-sc-1501385520
+
+- **Terreno Minha casa minha vida 333m2 B: São Sebastiao Criciuma**
+  - 💰 R$ 840.000 | 📐 97 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-minha-casa-minha-vida-333m2-b-sao-sebastiao-criciuma-1501370400
+
+- **Terreno à Venda no Garden Condomínio Club - Deltaville | Biguaçu/SC**
+  - 💰 R$ 415.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-garden-condominio-club-deltaville-biguacu-sc-1501369735
+
+- **Terreno Comercial/Misto em Palhoça - Guarda do Cubatão 379m2 loteament**
+  - 💰 R$ 350.000 | 📐 379 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-misto-em-palhoca-guarda-do-cubatao-379m2-loteamento-guarda-do-tabuleir-1501367279
+
+- **Terreno em imbituba**
+  - 💰 R$ 170.000 | 📐 450 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-1501366740
+
+- **Chácara em Anitápolis - SC**
+  - 💰 R$ 460.000 | 📐 5800 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-anitapolis-sc-1501365682
+
+- **Belo sitio em Águas Mornas - SC**
+  - 💰 R$ 1.500.000 | 📐 210000 m²
+  - 📍 Centro — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-aguas-mornas-sc-1501364131
+
+- **Terreno com construção iniciada a venda bairro armação SC**
+  - 💰 R$ 400.000 | 📐 258 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-construcao-iniciada-a-venda-bairro-armacao-sc-1501363972
+
+- **Sitio com linda vista em Santo Amaro da Imperatriz!**
+  - 💰 R$ 2.800.000 | 📐 70000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-santo-amaro-da-imperatriz-1501361271
+
+- **Sitio proximo a praça de Rancho Queimado - SC**
+  - 💰 R$ 650.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-a-praca-de-rancho-queimado-sc-1501360529
+
+- **Terreno localizado no bairro Três Barras**
+  - 💰 R$ 280.000 | 📐 2000 m²
+  - 📍 Área Rural de Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-no-bairro-tres-barras-1501353766
+
+- **terreno 120 metros quadrados no bairro rio vermelho**
+  - 💰 R$ 100.000 | 📐 120 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-120-metros-quadrados-no-bairro-rio-vermelho-1501349789
+
+- **terreno 120 m² no bairro rio vermelho**
+  - 💰 R$ 99.000 | 📐 120 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-120-m-no-bairro-rio-vermelho-1501342012
+
+- **Belo sitio em Águas Mornas - SC**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-aguas-mornas-sc-1501334008
+
+- **Terreno para Venda em Florianópolis / SC no bairro Coqueiros**
+  - 💰 R$ 2.250.000 | 📐 600 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sc-no-bairro-coqueiros-1501325545
+
+- **Sitio com escritura em Águas Mornas - SC**
+  - 💰 R$ 220.000 | 📐 37000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-em-aguas-mornas-sc-1501428391
+
+- **Chácara na Vargem do Braço - Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 380.000 | 📐 6000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-na-vargem-do-braco-santo-amaro-da-imperatriz-sc-1501427809
+
+- **Terreno de frente para a geral do Áririu em Palhoça - SC**
+  - 💰 R$ 8.000.000 | 📐 3400 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-frente-para-a-geral-do-aririu-em-palhoca-sc-1501426172
+
+- **Casa com 2 quartos à venda em Tereza Cristina, Içara**
+  - 💰 R$ 260.000 | 📐 51 m²
+  - 📍 Tereza Cristina — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-icara-tereza-cristina-165m2-RS260000/id-42225255/
+
+- **Casa à venda na Rodovia Francisco João Luiz, Casa 16, Sanga Funda, Iça**
+  - 💰 R$ 134.100 | 📐 39 m²
+  - 📍 Sanga Funda — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-icara-sanga-funda-42m2-RS134100/id-42371143/
+
+- **Casa com 3 quartos à venda no Coloninha, Araranguá**
+  - 💰 R$ 1.400.000 | 📐 174 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-coloninha-450m2-RS1400000/id-41273465/
+
+- **Terreno à venda na Rua Bairro Vila Albina, 00, Centro, Santa Rosa do S**
+  - 💰 R$ 160.000 | 📐 330 m²
+  - 📍 Centro — Santa Rosa do Sul
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-santa-rosa-do-sul-centro-330m2-RS160000/id-36829638/
+
+- **Casa na Praia para Venda em Passo de Torres, Bella Torres, 3 dormitóri**
+  - 💰 R$ 1.079.000 | 📐 164 m²
+  - 📍 Bela Torres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-bela-torres-RS1079000/id-30502785/
+
+- **Casa à venda, 220 m² por R$ 940.000,00 - Bellatorres - Passo de Torres**
+  - 💰 R$ 940.000 | 📐 220 m²
+  - 📍 Bela Torres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-bela-torres-375m2-RS940000/id-17915038/
+
+- **Casa com 3 quartos à venda na ., 1, Village Dunas Norte, Balneário Gai**
+  - 💰 R$ 430.000 | 📐 98 m²
+  - 📍 Village Dunas Norte — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-village-dunas-norte-150m2-RS430000/id-36389733/
+
+- **Casa com 3 dormitórios à venda, 181 m² por R$ 1.590.000,00 - Turimar -**
+  - 💰 R$ 1.590.000 | 📐 181 m²
+  - 📍 Praia Turimar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-praia-turimar-425m2-RS1590000/id-31871636/
+
+- **Casa à venda – loteamento novo jardim | balneário gaivota/sc**
+  - 💰 R$ 395.000 | 📐 74 m²
+  - 📍 Jardim Ultramar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-jardim-ultramar-RS395000/id-33288786/
+
