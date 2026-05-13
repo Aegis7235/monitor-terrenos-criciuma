@@ -85005,3 +85005,116 @@
   - 📍 Sertão do Maruim — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-sao-jose-sc-sertao-do-maruim-1501621229
 
+
+## 🆕 22 novos anúncios — 13/05/2026 17:35
+
+- **Sítio rural no bairro Santa Bárbara, em Antônio Carlos - SC**
+  - 💰 R$ 2.550.000 | 📐 13412 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-rural-no-bairro-santa-barbara-em-antonio-carlos-sc-1501741719
+
+- **Terreno para Venda em Florianópolis, Agronômica**
+  - 💰 R$ 650.000 | 📐 267 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-agronomica-1501730035
+
+- **Sítio a venda em Florianópolis Vargem Grande**
+  - 💰 R$ 1.900.000 | 📐 3500 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-florianopolis-vargem-grande-1501727297
+
+- **Terreno com casa iniciada - Bosque da Mata - Tijucas/SC**
+  - 💰 R$ 530.000 | 📐 360 m²
+  - 📍 Areias — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-iniciada-bosque-da-mata-tijucas-sc-1501709234
+
+- ***Terrenos de 1000 mts2  em Tijucas**
+  - 💰 R$ 120.000 | 📐 1000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-de-1000-mts2-em-tijucas-1501708188
+
+- **Terreno a venda em Alfredo Wagner**
+  - 💰 R$ 150.000 | 📐 3000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-alfredo-wagner-1501706370
+
+- **terreno no Aririu loteamento Schutz**
+  - 💰 R$ 400.000 | 📐 395 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-aririu-loteamento-schutz-1501696229
+
+- **Terreno Praia Litoral SC- 500m Mar- Balneário Gaivota- Escriturado**
+  - 💰 R$ 79.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-litoral-sc-500m-mar-balneario-gaivota-escriturado-1501692930
+
+- **Área terreno 2.500m² Misto Comercial e Residencial**
+  - 💰 R$ 2.200.000 | 📐 2500 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-terreno-2-500m-misto-comercial-e-residencial-1501692256
+
+- **Terreno a venda**
+  - 💰 R$ 40.000 | 📐 150 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1501685471
+
+- **Ótimo terreno comercial ao lado da unimed bairro ceara Criciuma SC**
+  - 💰 R$ 4.000 | 📐 442 m²
+  - 📍 Ceará — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-comercial-ao-lado-da-unimed-bairro-ceara-criciuma-sc-1501684733
+
+- **TERRENO 699M - FORQUILHAS - LOT. MANOEL DE MELO - SÃO JOSÉ**
+  - 💰 R$ 600.000 | 📐 699 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-699m-forquilhas-lot-manoel-de-melo-sao-jose-1501678106
+
+- **TERRENO 378M - SERTÃO DO MARUIM - LOT. NOVA SÃO JOSÉ - SÃO JOSÉ**
+  - 💰 R$ 370.000 | 📐 378 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-378m-sertao-do-maruim-lot-nova-sao-jose-sao-jose-1501676598
+
+- **Lote no Praia de Fora Residence!**
+  - 💰 R$ 399.000 | 📐 300 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-praia-de-fora-residence-1501663655
+
+- **Vendo terreno**
+  - 💰 R$ 350 | 📐 600 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1501653019
+
+- **Terreno pronto para construir em Boa Vista - Biguaçu - SC**
+  - 💰 R$ 490.000 | 📐 425 m²
+  - 📍 Boa Vista — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-em-boa-vista-biguacu-sc-1501685934
+
+- **TERRENO PARA INVESTIMENTO NA PRAIA TROPICAL**
+  - 💰 R$ 52.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-na-praia-tropical-1501672509
+
+- **Terreno espetacular à venda, Centro, Major Gercino, SC**
+  - 💰 R$ 3.000.000 | 📐 10 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-espetacular-a-venda-centro-major-gercino-sc-1501670205
+
+- **Terreno à venda, Areias, Tijucas, SC**
+  - 💰 R$ 315.000 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-areias-tijucas-sc-1501669118
+
+- **Terreno à venda, Areias, Tijucas, SC**
+  - 💰 R$ 378.000 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-areias-tijucas-sc-1501668561
+
+- **Terreno à venda, Loteamento Galápagos, Areias, Tijucas, SC**
+  - 💰 R$ 347.000 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-galapagos-areias-tijucas-sc-1501667768
+
+- **Terreno à venda, Loteamento Altos Santa Helena Tijucas, SC**
+  - 💰 R$ 449.000 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-altos-santa-helena-tijucas-sc-1501667692
+
