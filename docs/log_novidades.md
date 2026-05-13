@@ -84957,3 +84957,51 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-village-dunas-norte-em-balneario-gaivota-proximo-ao-mar-1501618374
 
+
+## 🆕 9 novos anúncios — 13/05/2026 11:44
+
+- **Seu terreno no Bairro Ratones com 1.060m² na ilha por R$ 695 mil**
+  - 💰 R$ 695.000 | 📐 1060000 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-terreno-no-bairro-ratones-com-1-060m-na-ilha-por-r-695-mil-1501649354
+
+- **Lote em condomínio Planejado de Biguaçu/SC - Pronto para Construir e F**
+  - 💰 R$ 250.000 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-planejado-de-biguacu-sc-pronto-para-construir-e-financiar-1501641649
+
+- **Terreno no Rio Tavares com 229m²**
+  - 💰 R$ 1.000.000 | 📐 229 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-tavares-com-229m-1501640684
+
+- **Terreno Residencial em Agronômica**
+  - 💰 R$ 650.000 | 📐 267 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-agronomica-1501640436
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1501633010
+
+- **Terreno Comercial em Paulo Lopes/SC a 500m do Centro  360m²**
+  - 💰 R$ 199.900 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-paulo-lopes-sc-a-500m-do-centro-360m-1501632530
+
+- **Lote plano à venda no Condomínio Saulo Ramos**
+  - 💰 R$ 4.300.000 | 📐 634 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-plano-a-venda-no-condominio-saulo-ramos-1501630162
+
+- **Terreno Amplo na Barra do Aririu em Palhoça (VENDA)**
+  - 💰 R$ 289.000 | 📐 410 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-na-barra-do-aririu-em-palhoca-venda-1501625610
+
+- **TERRENO COMERCIAL em São José - SC, Sertão do Maruim**
+  - 💰 R$ 495.000 | 📐 817 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-sao-jose-sc-sertao-do-maruim-1501621229
+
