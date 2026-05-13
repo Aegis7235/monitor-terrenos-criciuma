@@ -85118,3 +85118,221 @@
   - 📍  — Tijucas
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-altos-santa-helena-tijucas-sc-1501667692
 
+
+## 🆕 43 novos anúncios — 13/05/2026 22:29
+
+- **Vendo lindo terreno pronto para construir 470mt**
+  - 💰 R$ 150.000 | 📐 470 m²
+  - 📍 Colônia Santana — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lindo-terreno-pronto-para-construir-470mt-1501830667
+
+- **Sítio de 10 hectares com RIO na Pedra Branca  Alfredo Wagner, SC**
+  - 💰 R$ 690.000 | 📐 100000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-10-hectares-com-rio-na-pedra-branca-alfredo-wagner-sc-1501829593
+
+- **Seu Refúgio Ideal: Chácara em Rancho Queimado!**
+  - 💰 R$ 950.000 | 📐 147 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-refugio-ideal-chacara-em-rancho-queimado-1501811103
+
+- **Linda chácara no pagará grande santo amaro**
+  - 💰 R$ 195.000 | 📐 2300 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-chacara-no-pagara-grande-santo-amaro-1501808795
+
+- **Terreno de 357,30m2, Pacheco, Palhoça-SC**
+  - 💰 R$ 350.000 | 📐 12 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-357-30m2-pacheco-palhoca-sc-1501809439
+
+- **Terreno Rosa Sul para venda possui 6500 m² em Praia do Rosa - Imbituba**
+  - 💰 R$ 5.500.000 | 📐 6500 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rosa-sul-para-venda-possui-6500-m-em-praia-do-rosa-imbituba-sc-1501808811
+
+- **Imóvel para venda com 20000 metros quadrados em Boa Vista - Rancho Que**
+  - 💰 R$ 355.000 | 📐 20000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-20000-metros-quadrados-em-boa-vista-rancho-queimado-sc-1475945885
+
+- **Imóvel para venda com 49000 metros quadrados em Santa Barbara - Alfred**
+  - 💰 R$ 525.000 | 📐 49000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-49000-metros-quadrados-em-santa-barbara-alfredo-wagner-sc-1459846276
+
+- **Fazenda/Sítio/Chácara para venda com 150000 metros quadrados com 2 qua**
+  - 💰 R$ 745.000 | 📐 157000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-sitio-chacara-para-venda-com-150000-metros-quadrados-com-2-quartos-1232718758
+
+- **Imóvel para venda tem 30000 metros quadrados em Bairro Rural - Rancho **
+  - 💰 R$ 220.000 | 📐 30000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-30000-metros-quadrados-em-bairro-rural-rancho-queimado-sc-1354155016
+
+- **Fazenda/Sítio/Chácara para venda com 7500 metros quadrados com 3 quart**
+  - 💰 R$ 525.000 | 📐 7500 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-sitio-chacara-para-venda-com-7500-metros-quadrados-com-3-quartos-1124045424
+
+- **Imóvel para venda tem 223000 metros quadrados com 2 quartos em Centro **
+  - 💰 R$ 1.950.000 | 📐 223000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-223000-metros-quadrados-com-2-quartos-em-centro-alfredo-wagner-s-1328414176
+
+- **Imóvel para venda possui 80.000metros quadrados em Centro - Alfredo Wa**
+  - 💰 R$ 1.100.000 | 📐 80000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-80-000metros-quadrados-em-centro-alfredo-wagner-sc-1337485471
+
+- **Imóvel para venda com 55000 metros quadrados em Centro - Alfredo Wagne**
+  - 💰 R$ 490.000 | 📐 55000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-55000-metros-quadrados-em-centro-alfredo-wagner-sc-1322027566
+
+- **Fazenda/Sítio/Chácara para venda tem 50000 metros quadrados em Centro **
+  - 💰 R$ 550.000 | 📐 50000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-sitio-chacara-para-venda-tem-50000-metros-quadrados-em-centro-alfredo-wagner-s-1122189501
+
+- **Imóvel para venda possui 20000 metros quadrados em Pedra Branca - Alfr**
+  - 💰 R$ 175.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-20000-metros-quadrados-em-pedra-branca-alfredo-wagner-sc-1462974177
+
+- **Terreno á 50 metros do Mar**
+  - 💰 R$ 110.000 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-50-metros-do-mar-1501807635
+
+- **Terreno em Lagoinhas Frente Para o Norte**
+  - 💰 R$ 65.000 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-lagoinhas-frente-para-o-norte-1501807561
+
+- **Realize o sonho de morar perto do mar!**
+  - 💰 R$ 159.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/realize-o-sonho-de-morar-perto-do-mar-1501807574
+
+- **Terreno à Venda  Localização Privilegiada Próximo ao Mar e Centro**
+  - 💰 R$ 117.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-localizacao-privilegiada-proximo-ao-mar-e-centro-1501807542
+
+- **Terrenos à Venda em Balneário Arroio do Silva: 2 Lotes Juntos, 324m² C**
+  - 💰 R$ 98.000 | 📐 648 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-em-balneario-arroio-do-silva-2-lotes-juntos-324m-cada-a-800m-do-mar-1501807510
+
+- **Terreno a 400mt do mar, frente para Avenida, lote amplo pronto para Co**
+  - 💰 R$ 330.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-400mt-do-mar-frente-para-avenida-lote-amplo-pronto-para-construir-1501807573
+
+- **Sítio para Venda em Angelina, RIO VEADO, 2 dormitórios, 1 banheiro**
+  - 💰 R$ 570.000 | 📐 140084 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-angelina-rio-veado-2-dormitorios-1-banheiro-1501805029
+
+- **TERRENO - Campeche - DP-311299**
+  - 💰 R$ 990.000 | 📐 396 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-dp-311299-1501804450
+
+- **TERRENO - Campeche - DP-311301**
+  - 💰 R$ 990.000 | 📐 397 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-dp-311301-1501804440
+
+- **Terreno Urbano 351m² - São Defende/Criciúma - Aceita Financiamento**
+  - 💰 R$ 100.000 | 📐 351 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-351m-sao-defende-criciuma-aceita-financiamento-1501797992
+
+- **Paulo Lopes areias**
+  - 💰 R$ 235.000 | 📐 371 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/paulo-lopes-areias-1501796036
+
+- **Terreno para fazer um sitio**
+  - 💰 R$ 220.000 | 📐 1800 m²
+  - 📍 Universitário — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-fazer-um-sitio-1501794679
+
+- **Terreno, 463m², Comerciário, Criciúma/SC**
+  - 💰 R$ 262.500 | 📐 463 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-463m-comerciario-criciuma-sc-1501784318
+
+- **Terreno, 463m², Comerciário, Criciúma/SC**
+  - 💰 R$ 262.500 | 📐 463 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-463m-comerciario-criciuma-sc-1501784045
+
+- **Terreno Garopaba com acesso particular a cachoeira**
+  - 💰 R$ 690.000 | 📐 2627 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-garopaba-com-acesso-particular-a-cachoeira-1501780233
+
+- **Galpão Alfredo Wagner**
+  - 💰 R$ 4.900 | 📐 525 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/galpao-alfredo-wagner-1501779772
+
+- **Terreno em condomínio na Vargem Grande**
+  - 💰 R$ 480.000 | 📐 371 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-na-vargem-grande-1501778978
+
+- **Terreno em condomínio em Cachoeira do Bom Jesus**
+  - 💰 R$ 595.000 | 📐 448 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-em-cachoeira-do-bom-jesus-1501778494
+
+- **Lote em ótima localização em Jurerê Internacional**
+  - 💰 R$ 2.438.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-otima-localizacao-em-jurere-internacional-1501778203
+
+- **Terreno plano em condomínio fechado, com 400 m². Sensação de sitio. Vi**
+  - 💰 R$ 300.000 | 📐 400 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-em-condominio-fechado-com-400-m-sensacao-de-sitio-virado-para-o-norte-1501777197
+
+- **Terreno rural à 100m da BR 282, com lindo visual panorâmico**
+  - 💰 R$ 550.000 | 📐 82118 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-a-100m-da-br-282-com-lindo-visual-panoramico-1501775982
+
+- **Lindo terreno Praia do Sol Laguna Sc, 100 metros do mar**
+  - 💰 R$ 199.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-praia-do-sol-laguna-sc-100-metros-do-mar-1501767992
+
+- **Vendo Terreno 360,39 m² no bairro Pedra Branca em Palhoça**
+  - 💰 R$ 690.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-360-39-m-no-bairro-pedra-branca-em-palhoca-1425232815
+
+- **Terreno rural para construção de chalé**
+  - 💰 R$ 180.000 | 📐 5000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-para-construcao-de-chale-1501609951
+
+- **Terreno em Rancho Queimado. Seu refugio no paraíso que você sonhou!**
+  - 💰 R$ 245.000 | 📐 712 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-rancho-queimado-seu-refugio-no-paraiso-que-voce-sonhou-1501757848
+
+- **Terreno a venda com 456m2 no Centro - Antônio Carlos - SC**
+  - 💰 R$ 320.000 | 📐 456 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-456m2-no-centro-antonio-carlos-sc-1501756681
+
+- **Sítio 5 Hectares na Madre - Rio, Pasto e Estrutura Completa para gado **
+  - 💰 R$ 850.000 | 📐 50000 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-5-hectares-na-madre-rio-pasto-e-estrutura-completa-para-gado-e-escriturada-1501736812
+
