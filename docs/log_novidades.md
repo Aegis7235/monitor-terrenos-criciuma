@@ -85910,3 +85910,121 @@
   - 📍 Morro dos Conventos — Araranguá
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-ararangua-morro-dos-conventos-2200m2-RS420000/id-42590805/
 
+
+## 🆕 23 novos anúncios — 14/05/2026 22:25
+
+- **Lote exclusivo de 514m² + projeto pronto | Villa dos Araçás - Tubarão**
+  - 💰 R$ 299.000 | 📐 514 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-exclusivo-de-514m-projeto-pronto-villa-dos-aracas-tubarao-1502139539
+
+- **TERRENO DE ESQUINA NO BAIRRO AREIAS CLARAS**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-bairro-areias-claras-1502136807
+
+- **Terreno no morro**
+  - 💰 R$ 600.000 | 📐 5041 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-morro-1502125162
+
+- **Vendo Sítio no condomínio Vilage Imperatriz em Sto Amaro da imperatriz**
+  - 💰 R$ 279.000 | 📐 1630 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-no-condominio-vilage-imperatriz-em-sto-amaro-da-imperatriz-sc-1502085432
+
+- **Área 3.5ha em Águas Claras - Rancho Queimado SC**
+  - 💰 R$ 550.000 | 📐 35000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-3-5ha-em-aguas-claras-rancho-queimado-sc-1502113043
+
+- **Terreno condomínio fechado na Trindade**
+  - 💰 R$ 970.000 | 📐 750 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-fechado-na-trindade-1502112090
+
+- **Terreno bairro Rosa do Mar a 200m do mar**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-rosa-do-mar-a-200m-do-mar-1502111831
+
+- **TERRENO DE ESQUINA NO BAIRRO AREIAS CLARAS**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-bairro-areias-claras-1502111485
+
+- **Vendo terreno na varginha $ 280 mil**
+  - 💰 R$ 280.000 | 📐 ? m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-varginha-280-mil-1502108478
+
+- **TERRENO À VENDA | Araçatuba - Imbituba/SC**
+  - 💰 R$ 155.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-aracatuba-imbituba-sc-1502100395
+
+- **Terreno urbano 1.650m2**
+  - 💰 R$ 150.000 | 📐 1550 m²
+  - 📍  — Orleans
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-1-650m2-1502098229
+
+- **TERRENO COM MATÍCULA CAMPECHE 450M2**
+  - 💰 R$ 1.080.000 | 📐 450 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-maticula-campeche-450m2-1502094944
+
+- **Terreno Aririu da formiga**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍 Aririú da Formiga — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-aririu-da-formiga-1502090527
+
+- **Sítio com lagoa ,picina ,area lazer com total segurança .**
+  - 💰 R$ 2.500.000 | 📐 6500 m²
+  - 📍 Centro — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-lagoa-picina-area-lazer-com-total-seguranca--1502086462
+
+- **Terrenão 900m2 - Imbituba, bairro Sambaqui.**
+  - 💰 R$ 300.000 | 📐 900 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenao-900m2-imbituba-bairro-sambaqui-1502080999
+
+- **Lote à venda 300m2 em Imbituba SC**
+  - 💰 R$ 97.500 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-300m2-em-imbituba-sc-1502077807
+
+- **Terreno 1.343,33 m²**
+  - 💰 R$ 400.000 | 📐 1343330 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-343-33-m-1502075952
+
+- **LOTEAMENTO JARDIM DOS JERIVÁS**
+  - 💰 R$ 180.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-jardim-dos-jerivas-1502071911
+
+- **Terreno 750m² - Sertão do Maruim - imv**
+  - 💰 R$ 740.000 | 📐 750 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-750m-sertao-do-maruim-imv-1502056111
+
+- **Terreno à Venda - Condomínio Dovas do Rosa Home Resort - Praia do Rosa**
+  - 💰 R$ 320.000 | 📐 355 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-condominio-dovas-do-rosa-home-resort-praia-do-rosa-sc-1502051670
+
+- **Terreno Urbano com mata e Riacho**
+  - 💰 R$ 330.000 | 📐 804 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-com-mata-e-riacho-1500738891
+
+- **Chalé romântico na Mata - 2 hectares**
+  - 💰 R$ 850.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chale-romantico-na-mata-2-hectares-1500737225
+
+- **Terreno no Campeche  Loteamento Planejado Bosque Residence**
+  - 💰 R$ 1.390.000 | 📐 378 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-campeche-loteamento-planejado-bosque-residence-1500469550
+
