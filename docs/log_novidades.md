@@ -85336,3 +85336,251 @@
   - 📍  — Laguna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-5-hectares-na-madre-rio-pasto-e-estrutura-completa-para-gado-e-escriturada-1501736812
 
+
+## 🆕 49 novos anúncios — 14/05/2026 06:39
+
+- **CASA DE SÍTIO NO BAIRRO STA CATARINA**
+  - 💰 R$ 265.000 | 📐 60 m²
+  - 📍 Santa Catarina — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-sitio-no-bairro-sta-catarina-1501912110
+
+- **Terreno Amplo com 2.204m² no Golden Park  Araranguá/ Balneário Arroio **
+  - 💰 R$ 300.000 | 📐 2204 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-com-2-204m-no-golden-park-ararangua-balneario-arroio-do-silva-sc-1501912002
+
+- **TERRENO 2.000m² FAZENDINHA BIGUAÇU**
+  - 💰 R$ 230.000 | 📐 2000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-000m-fazendinha-biguacu-1501908166
+
+- **Sitio 2.500m² FAZENDINHA / BIGUAÇU**
+  - 💰 R$ 585.000 | 📐 300 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-2-500m-fazendinha-biguacu-1501907988
+
+- **Terreno em loteamento em Gov. Celso Ramos**
+  - 💰 R$ 242.065 | 📐 390 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-em-gov-celso-ramos-1501907972
+
+- **Terreno à venda em Tapera da Base, Florianópolis**
+  - 💰 R$ 3.000.000 | 📐 2001 m²
+  - 📍 Tapera da Base — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-tapera-da-base-florianopolis-1501908000
+
+- **Terreno à Venda em Imbituba-Excelente Oportunidade**
+  - 💰 R$ 2.130.000 | 📐 593 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-excelente-oportunidade-1501907859
+
+- **Terreno à Venda em Imbituba Excelente Oportunidade**
+  - 💰 R$ 2.130.000 | 📐 600 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-excelente-oportunidade-1501907861
+
+- **Terreno loteamento Nova Governador Celso Ramos**
+  - 💰 R$ 242.019 | 📐 390 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-nova-governador-celso-ramos-1501907792
+
+- **Terreno Loteamento Nova Governador Celso Ramos**
+  - 💰 R$ 288.355 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-nova-governador-celso-ramos-1501907777
+
+- **Terreno loteamento Nova Governador Celso Ramos**
+  - 💰 R$ 311.221 | 📐 375 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-nova-governador-celso-ramos-1501907714
+
+- **Terreno 40.000 m² Alfredo Wagner**
+  - 💰 R$ 298.000 | 📐 40000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-40-000-m-alfredo-wagner-1501906899
+
+- **Terreno Loteamento Firenze - 1.016,66m2 - terreno de esquina**
+  - 💰 R$ 1.800.000 | 📐 1016 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-firenze-1-016-66m2-terreno-de-esquina-1501903057
+
+- **Terreno à venda em Ratones, Florianópolis/SC.**
+  - 💰 R$ 695.000 | 📐 1062 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-ratones-florianopolis-sc-1501899591
+
+- **Terreno com casa ponte de Imaruim 397 m2**
+  - 💰 R$ 497 | 📐 397 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-ponte-de-imaruim-397-m2-1501898044
+
+- **Terreno a venda bairro barreiros São José SC**
+  - 💰 R$ 600.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-barreiros-sao-jose-sc-1501897307
+
+- **Terreno a venda bairro Barreiros São José SC**
+  - 💰 R$ 600.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-barreiros-sao-jose-sc-1501897193
+
+- **Terreno com Container para Alugar em Florianópolis.**
+  - 💰 R$ 7.500 | 📐 420 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-container-para-alugar-em-florianopolis-1501889447
+
+- **Terreno à venda, 450 m² por R$ 850.000,00 - Campeche - Florianópolis/S**
+  - 💰 R$ 850.000 | 📐 450 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-850-000-00-campeche-florianopolis-sc-1501880136
+
+- **TERRENO COM 360 M2 PLANO PRONTO PARA CONSTRUIR - LOCALIZADO EM CAPOEIR**
+  - 💰 R$ 750.000 | 📐 360 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360-m2-plano-pronto-para-construir-localizado-em-capoeiras-1501879817
+
+- **Terreno em localização privilegiada**
+  - 💰 R$ 1.610.000 | 📐 1255 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-localizacao-privilegiada-1501879167
+
+- **Terreno em Praia do Sonho, Palhoça/SC**
+  - 💰 R$ 950.000 | 📐 660 m²
+  - 📍 Praia do Sonho — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-praia-do-sonho-palhoca-sc-1501877781
+
+- **TERRENO NO BAIRRO BARREIROS, EM SÃO JOSÉ, SC, COM 678m² DE ÁREA TOTAL **
+  - 💰 R$ 1.500.000 | 📐 678 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-barreiros-em-sao-jose-sc-com-678m-de-area-total-e-viabilidade-para-a-1501876564
+
+- **TERRENO NO BAIRRO NOSSA SENHORA DO ROSÁRIO, EM SÃO JOSÉ, SC, MEDINDO 2**
+  - 💰 R$ 900.000 | 📐 290 m²
+  - 📍 Nossa Senhora do Rosário — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-nossa-senhora-do-rosario-em-sao-jose-sc-medindo-290m-de-area-total-1501876567
+
+- **Terreno no Bairro Forquilhinha em São José/SC medindo 340m² de área to**
+  - 💰 R$ 680.000 | 📐 340 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-forquilhinha-em-sao-jose-sc-medindo-340m-de-area-total-1501876250
+
+- **Terreno com 360m² no Condomínio Vista da Pedra em São José/SC**
+  - 💰 R$ 399.500 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360m-no-condominio-vista-da-pedra-em-sao-jose-sc-1501875980
+
+- **TERRENO NO BAIRRO ESTREITO EM FLORIANÓPOLIS-SC COM 355,19M² DE ÁREA TO**
+  - 💰 R$ 1.200.000 | 📐 355 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-estreito-em-florianopolis-sc-com-355-19m-de-area-total-1501875890
+
+- **Lotes Empresariais no Aeropark Pedra Branca a partir de 999m²**
+  - 💰 R$ 698.241 | 📐 698 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-empresariais-no-aeropark-pedra-branca-a-partir-de-999m-1501875454
+
+- **SÍTIO PARA VENDA EM - SAO BONIFACIO -SC**
+  - 💰 R$ 681.000 | 📐 1500 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-sao-bonifacio-sc-1501875528
+
+- **TERRENO NO LOTEAMENTO PORTAL DA COLINA, BAIRRO SERTÃO DO MARUIM, EM SÃ**
+  - 💰 R$ 270.000 | 📐 442 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-portal-da-colina-bairro-sertao-do-maruim-em-sao-jose-sc-medindo-1501875514
+
+- **TERRENO NO BAIRRO BARREIROS, EM SÃO JOSÉ, SC, VISTA PARA O MAR, MEDIND**
+  - 💰 R$ 1.015.000 | 📐 388 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-barreiros-em-sao-jose-sc-vista-para-o-mar-medindo-388-80m-de-area-t-1501875466
+
+- **TERRENO COM IMÓVEL RESIDENCIAL E COMERCIAL À VENDA NO BAIRRO CANTO EM **
+  - 💰 R$ 2.900.000 | 📐 198 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-imovel-residencial-e-comercial-venda-no-bairro-canto-em-florianopolis-sc-1501875448
+
+- **Terreno em Antonio Carlos/SC**
+  - 💰 R$ 349.000 | 📐 481 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-antonio-carlos-sc-1501875458
+
+- **Terreno no Bairro Estreito, em Florianópolis,/SC com 646,50m² de área **
+  - 💰 R$ 1.550.000 | 📐 646 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-estreito-em-florianopolis-sc-com-646-50m-de-area-total-1501875402
+
+- **Oportunidade investimento!**
+  - 💰 R$ 3.600.000 | 📐 521 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-investimento-1501874494
+
+- **Chácara a venda  em Area Rural - Águas Mornas - SC**
+  - 💰 R$ 680.000 | 📐 200 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-em-area-rural-aguas-mornas-sc-1501866708
+
+- **Terreno em Condominio fechado em Rancho Queimado com otima infraestrut**
+  - 💰 R$ 460.000 | 📐 1000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-em-rancho-queimado-com-otima-infraestrutura-1501866173
+
+- **Terreno com casa mista bairro Santa Bárbara**
+  - 💰 R$ 450.000 | 📐 511 m²
+  - 📍 Santa Bárbara — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-mista-bairro-santa-barbara-1501860545
+
+- **Terreno à venda em Ratones, Florianópolis/SC.**
+  - 💰 R$ 695.000 | 📐 1062 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-ratones-florianopolis-sc-1501854687
+
+- **Terreno à venda em Potecas, São José pronto para construir**
+  - 💰 R$ 262.176 | 📐 274 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-potecas-sao-jose-pronto-para-construir-1501852589
+
+- **Terreno no Reserva da Pedra à venda | 300 m² | Condomínio Fechado**
+  - 💰 R$ 970.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-reserva-da-pedra-a-venda-300-m-condominio-fechado-1501852501
+
+- **Terreno à venda em Potecas, São José pronto para construir**
+  - 💰 R$ 265.697 | 📐 278 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-potecas-sao-jose-pronto-para-construir-1501852230
+
+- **Terreno à venda em Potecas, São José pronto para construir**
+  - 💰 R$ 267.812 | 📐 280 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-potecas-sao-jose-pronto-para-construir-1501852224
+
+- **Imóvel para venda tem 500000 metros quadrados em Pedra Branca - Alfred**
+  - 💰 R$ 1.650.000 | 📐 500000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-500000-metros-quadrados-em-pedra-branca-alfredo-wagner-sc-1467195710
+
+- **Imóvel para venda com 20000 metros quadrados em Santa Barbara - Alfred**
+  - 💰 R$ 185.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-20000-metros-quadrados-em-santa-barbara-alfredo-wagner-sc-1473912799
+
+- **Terreno* 10x10 100.000**
+  - 💰 R$ 100.000 | 📐 100 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-10x10-100-000-1501847859
+
+- **Vendo lote no bairro Metropol -Criciúma**
+  - 💰 R$ 122.000 | 📐 502 m²
+  - 📍 Metropol — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-no-bairro-metropol-criciuma-1501839739
+
+- **Seu lote com Escritura Pública a metros do Mar caieira , Ribeirão da I**
+  - 💰 R$ 299.900 | 📐 360 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-lote-com-escritura-publica-a-metros-do-mar-caieira-ribeirao-da-ilha-1501838866
+
+- **Terreno no Bosque Residence Galerie - Campeche - Florianópolis**
+  - 💰 R$ 1.298.000 | 📐 394 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bosque-residence-galerie-campeche-florianopolis-1501834199
+
