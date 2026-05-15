@@ -86028,3 +86028,381 @@
   - 📍 Campeche — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-campeche-loteamento-planejado-bosque-residence-1500469550
 
+
+## 🆕 75 novos anúncios — 15/05/2026 06:48
+
+- **Terreno para Venda - Ponta das Canas - Florianópolis**
+  - 💰 R$ 12.766.000 | 📐 2538 m²
+  - 📍 Ponta das Canas — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-ponta-das-canas-florianopolis-1502214338
+
+- **TERRENO PARA CONSTRUÇÃO**
+  - 💰 R$ 160.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-construcao-1502213549
+
+- **Terreno a venda Ratones**
+  - 💰 R$ 1.200.000 | 📐 530 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-ratones-1502208591
+
+- **Ecelente terreno à venda na Pedra Branca, Palhoça/SC.**
+  - 💰 R$ 700.000 | 📐 387 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ecelente-terreno-a-venda-na-pedra-branca-palhoca-sc-1502208449
+
+- **Tereno com 855m² no Pantanall Florianópolis**
+  - 💰 R$ 800.000 | 📐 855 m²
+  - 📍 Pantanal — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tereno-com-855m-no-pantanall-florianopolis-1502207386
+
+- **Terreno à Venda Vista Lagoa**
+  - 💰 R$ 369.000 | 📐 495 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-vista-lagoa-1502205938
+
+- **Terreno à venda no bairro Trindade com 377 m², ideal para seu projeto **
+  - 💰 R$ 1.700.000 | 📐 377 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-trindade-com-377-m-ideal-para-seu-projeto-dos-sonhos-1502205465
+
+- **Terreno à venda no bairro Trindade com 377 m², ideal para seu projeto **
+  - 💰 R$ 1.700.000 | 📐 377 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-trindade-com-377-m-ideal-para-seu-projeto-dos-sonhos-1502201818
+
+- **Terreno à Venda 450 metros da Praia da Daniela Florianópolis**
+  - 💰 R$ 620.000 | 📐 580 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-metros-da-praia-da-daniela-florianopolis-1502201464
+
+- **Terreno Comercial para Locação de 360 m², Praia Comprida, São José - S**
+  - 💰 R$ 3.000 | 📐 360 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-para-locacao-de-360-m-praia-comprida-sao-jose-sc-1502194877
+
+- **Terreno Comercial para Locação de 360 m², Praia Comprida, São José - S**
+  - 💰 R$ 3.500 | 📐 360 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-para-locacao-de-360-m-praia-comprida-sao-jose-sc-1502194390
+
+- **Terreno Comercial para Locação de 720 m², Praia Comprida, São José - S**
+  - 💰 R$ 6.500 | 📐 720 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-para-locacao-de-720-m-praia-comprida-sao-jose-sc-1502194410
+
+- **Terreno a Venda no Pantanal com 1650m² e Viabilidade de ARM -5.5**
+  - 💰 R$ 10.650.000 | 📐 1650 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-pantanal-com-1650m-e-viabilidade-de-arm-5-5-1502186814
+
+- **Terreno à venda, 920 m² por R$ 1.500.000 - Capoeiras - Florianópolis/S**
+  - 💰 R$ 1.500.000 | 📐 920 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-920-m-por-r-1-500-000-capoeiras-florianopolis-sc-1502183420
+
+- **Vende -se Sítio**
+  - 💰 R$ 985.000 | 📐 2200 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-sitio-1502177138
+
+- **Terreno a venda no Morretes**
+  - 💰 R$ 320.000 | 📐 600 m²
+  - 📍 Morretes — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-morretes-1502182308
+
+- **Amplo terreno a venda no Morretes**
+  - 💰 R$ 320.000 | 📐 600 m²
+  - 📍 Morretes — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-a-venda-no-morretes-1502182273
+
+- **Terreno denominado Chácara no condominio "O Costa da Serra" em Racho Q**
+  - 💰 R$ 450.000 | 📐 1000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-denominado-chacara-no-condominio-o-costa-da-serra-em-racho-queimado-1502173279
+
+- **Vendo Terreno de 1.858,45m2 em Paulo Lopes/SC, próximo a Praia da Gamb**
+  - 💰 R$ 390.000 | 📐 1858 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-de-1-858-45m2-em-paulo-lopes-sc-proximo-a-praia-da-gamboa-1465145906
+
+- **TERRENO 350m², 2 Pavimentos, Escritura - Sertão do Maruim**
+  - 💰 R$ 280.000 | 📐 350 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-350m-2-pavimentos-escritura-sertao-do-maruim-1502170511
+
+- **Terreno à venda no Centro de Florianópolis**
+  - 💰 R$ 650.000 | 📐 280 m²
+  - 📍 José Mendes — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-florianopolis-1502170496
+
+- **Vendo terreno em tubarão (imperdível)**
+  - 💰 R$ 275.000 | 📐 408 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-tubarao-imperdivel-1502170366
+
+- **Terreno à venda na Praia da Pinheira, em Santa Catarina**
+  - 💰 R$ 550.000 | 📐 392 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-da-pinheira-em-santa-catarina-1502163716
+
+- **Ecelente terreno à venda na Pedra Branca, Palhoça/SC.**
+  - 💰 R$ 700.000 | 📐 387 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ecelente-terreno-a-venda-na-pedra-branca-palhoca-sc-1502160837
+
+- **Venda de Três Terrenos Juntos na Praia da Pinheira - SC, com 1.177,12 **
+  - 💰 R$ 1.650.000 | 📐 1177 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-tres-terrenos-juntos-na-praia-da-pinheira-sc-com-1-177-12-m-e-250-metros-do-m-1502158605
+
+- **Terreno de esquina à venda na Praia da Pinheira, em Santa Catarina**
+  - 💰 R$ 550.000 | 📐 396 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-na-praia-da-pinheira-em-santa-catarina-1502158418
+
+- **Terreno à venda na Praia da Pinheira, em Santa Catarina**
+  - 💰 R$ 550.000 | 📐 389 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-praia-da-pinheira-em-santa-catarina-1502158175
+
+- **Terreno à Venda em Areias do Meio, Gov. Celso Ramos  R$500mil**
+  - 💰 R$ 500.000 | 📐 575 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-areias-do-meio-gov-celso-ramos-r-500mil-1502157635
+
+- **Sitio em major gercino**
+  - 💰 R$ 80.000 | 📐 10000 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-major-gercino-1502157224
+
+- **Terreno à venda no Centro de Florianópolis**
+  - 💰 R$ 650.000 | 📐 280 m²
+  - 📍 José Mendes — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-florianopolis-1502154853
+
+- **Vendo terreno em Santo Amaro da Imperatriz**
+  - 💰 R$ 6.372.000 | 📐 17700 m²
+  - 📍 Sul do Rio — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-santo-amaro-da-imperatriz-1502153656
+
+- **Vendo ou troco chácara .**
+  - 💰 R$ 410.000 | 📐 1850 m²
+  - 📍 Tapera da Base — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-chacara-1502147545
+
+- **Terreno 479 m² (Condomínio Jardim Ingleses III) - Ingleses - Florianóp**
+  - 💰 R$ 480.000 | 📐 479 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-479-m-condominio-jardim-ingleses-iii-ingleses-florianopolis-sc-1502145327
+
+- **Terrenos 530 m² (Condomínio Jardim Ingleses III) - Ingleses - Florianó**
+  - 💰 R$ 480.000 | 📐 530 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-530-m-condominio-jardim-ingleses-iii-ingleses-florianopolis-sc-1502143423
+
+- **Terreno para aluguel, no Bairro Pedra Branca, Palhoça-SC, com , sendo **
+  - 💰 R$ 3.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-aluguel-no-bairro-pedra-branca-palhoca-sc-com-sendo-com-1502214007
+
+- **Imóvel para venda tem 330 metros quadrados em Pedra Branca - Palhoça -**
+  - 💰 R$ 825.000 | 📐 330 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-330-metros-quadrados-em-pedra-branca-palhoca-sc-1502208758
+
+- **Terreno à venda, 227 m² por R$ 110.000,00 - Jardim America - Passo de **
+  - 💰 R$ 110.000 | 📐 227 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-227-m-por-r-110-000-00-jardim-america-passo-de-torres-sc-1438089654
+
+- **Terreno à venda, 375 m² por R$ 270.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 270.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-270-000-bellatorres-passo-de-torres-sc-1438077736
+
+- **Terreno à venda, 600 m² por R$ 230.000,00 - Rosa do Mar - Passo de Tor**
+  - 💰 R$ 230.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-230-000-00-rosa-do-mar-passo-de-torres-sc-1438075717
+
+- **Terreno à venda, 525 m² por R$ 330.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 330.000 | 📐 525 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-525-m-por-r-330-000-00-bellatorres-passo-de-torres-sc-1438064920
+
+- **Terreno à venda, 525 m² por R$ 350.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 350.000 | 📐 525 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-525-m-por-r-350-000-00-bellatorres-passo-de-torres-sc-1438050897
+
+- **Terreno à venda, 435 m² por R$ 198.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 198.000 | 📐 435 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-435-m-por-r-198-000-00-bellatorres-passo-de-torres-sc-1438047751
+
+- **Terreno à venda, 348 m² por R$ 155.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 155.000 | 📐 348 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-348-m-por-r-155-000-bellatorres-passo-de-torres-sc-1438047703
+
+- **Terreno à venda, 300 m² por R$ 150.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-150-000-00-bellatorres-passo-de-torres-sc-1438045610
+
+- **Terreno à venda, 297 m² por R$ 110.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 110.000 | 📐 297 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-297-m-por-r-110-000-00-bellatorres-passo-de-torres-sc-1430364079
+
+- **Terreno à venda, 840 m² por R$ 430.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 430.000 | 📐 840 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-840-m-por-r-430-000-00-bellatorres-passo-de-torres-sc-1422770826
+
+- **Terreno à venda, 211 m² por R$ 150.000,00 - Jardim América - Passo de **
+  - 💰 R$ 150.000 | 📐 211 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-211-m-por-r-150-000-00-jardim-america-passo-de-torres-sc-1422770796
+
+- **Terreno à venda, 300 m² por R$ 200.000 - Bosque das Figueiras - Passo **
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-200-000-bosque-das-figueiras-passo-de-torres-sc-1416835157
+
+- **Terreno à venda, 300 m² por R$ 105.000 - Xangrilá dos Mares - Passo de**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-105-000-xangrila-dos-mares-passo-de-torres-sc-1416214356
+
+- **Terreno à venda, 300 m² por R$ 135.000,00 - Capão Do Cravo - Passo de **
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-135-000-00-capao-do-cravo-passo-de-torres-sc-1411257297
+
+- **Terreno à venda, 360 m² por R$ 165.000,00 - Miratorres - Passo de Torr**
+  - 💰 R$ 165.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-165-000-00-miratorres-passo-de-torres-sc-1409437754
+
+- **Terreno à venda, 462 m² por R$ 175.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 175.000 | 📐 463 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-462-m-por-r-175-000-00-bellatorres-passo-de-torres-sc-1407669255
+
+- **Terreno à venda, 750 m² por R$ 380.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 380.000 | 📐 750 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-750-m-por-r-380-000-bellatorres-passo-de-torres-sc-1407666358
+
+- **Terreno à venda, 300 m² por R$ 125.000 - Sumaré II - Passo de Torres/S**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-125-000-sumare-ii-passo-de-torres-sc-1405879791
+
+- **Terreno à venda, 360 m² por R$ 169.000,00 - Miratorres - Passo de Torr**
+  - 💰 R$ 169.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-169-000-00-miratorres-passo-de-torres-sc-1391513989
+
+- **Terreno à venda, 255 m² por R$ 190.000,00 - Jardim America - Passo de **
+  - 💰 R$ 190.000 | 📐 255 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-255-m-por-r-190-000-00-jardim-america-passo-de-torres-sc-1385810165
+
+- **Terreno à venda, 300 m² por R$ 227.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 227.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-227-000-00-bellatorres-passo-de-torres-sc-1385810129
+
+- **Terreno à venda, 345 m² por R$ 198.000,00 - Praia Azul - Passo de Torr**
+  - 💰 R$ 198.000 | 📐 345 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-345-m-por-r-198-000-00-praia-azul-passo-de-torres-sc-1385810130
+
+- **Terreno de 300m² na praia Rota do Sol**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300m-na-praia-rota-do-sol-1385810134
+
+- **Terreno à venda, 300 m² por R$ 80.000,00 - Sumaré II - Passo de Torres**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-80-000-00-sumare-ii-passo-de-torres-sc-1385810128
+
+- **Terreno à venda, 600 m² por R$ 200.000,00 - Porto do Sol - Passo de To**
+  - 💰 R$ 200.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-200-000-00-porto-do-sol-passo-de-torres-sc-1385810082
+
+- **Terreno à venda, 600 m² por R$ 220.000,00 - Rota do Sol - Passo de Tor**
+  - 💰 R$ 220.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-220-000-00-rota-do-sol-passo-de-torres-sc-1385810035
+
+- **Terreno à venda, 360 m² por R$ 200.000,00 - Caravelle - Passo de Torre**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-200-000-00-caravelle-passo-de-torres-sc-1385810037
+
+- **Terreno à venda, 600 m² por R$ 220.000,00 - Tapera - Passo de Torres/S**
+  - 💰 R$ 220.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-220-000-00-tapera-passo-de-torres-sc-1385810025
+
+- **Terreno à venda, 375 m² por R$ 260.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 260.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-260-000-00-bellatorres-passo-de-torres-sc-1385809995
+
+- **4 Terrenos à venda, 1200 m² por R$ 280.000 - Sumaré II - Passo de Torr**
+  - 💰 R$ 280.000 | 📐 1200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/4-terrenos-a-venda-1200-m-por-r-280-000-sumare-ii-passo-de-torres-sc-1385809929
+
+- **Terreno à venda, 450 m² por R$ 275.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 275.000 | 📐 450 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-m-por-r-275-000-bellatorres-passo-de-torres-sc-1385809918
+
+- **Terreno à venda, 325 m² por R$ 225.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 225.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-325-m-por-r-225-000-00-bellatorres-passo-de-torres-sc-1385809879
+
+- **Terreno à venda, 300 m² por R$ 90.000 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-90-000-tapera-passo-de-torres-sc-1385809847
+
+- **Terreno à venda, 360 m² por R$ 220.000,00 - Caravelle - Passo de Torre**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-220-000-00-caravelle-passo-de-torres-sc-1385809845
+
+- **Terreno à venda, 330 m² por R$ 160.000,00 - Miratorres - Passo de Torr**
+  - 💰 R$ 160.000 | 📐 330 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-330-m-por-r-160-000-00-miratorres-passo-de-torres-sc-1385809837
+
+- **Terreno à venda, 274 m² por R$ 125.000,00 - Jardim America - Passo de **
+  - 💰 R$ 125.000 | 📐 274 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-274-m-por-r-125-000-00-jardim-america-passo-de-torres-sc-1385809810
+
+- **Terreno à venda, 375 m² por R$ 260.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 260.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-375-m-por-r-260-000-00-bellatorres-passo-de-torres-sc-1385809579
+
+- **Terreno à venda, 383 m² por R$ 155.000,00 - Praia Azul - Passo de Torr**
+  - 💰 R$ 155.000 | 📐 383 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-383-m-por-r-155-000-00-praia-azul-passo-de-torres-sc-1385809563
+
+- **Área disponível para compensação ambiental  Santa Catarina**
+  - 💰 R$ 695.000 | 📐 135000 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-disponivel-para-compensacao-ambiental-santa-catarina-1411194411
+
