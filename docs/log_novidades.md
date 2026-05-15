@@ -86732,3 +86732,106 @@
   - 📍 Ratones — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-norte-da-ilha-454m-e-frente-norte-1500433603
 
+
+## 🆕 20 novos anúncios — 15/05/2026 22:12
+
+- **INVESTIMENTO CERTO EM PAULO LOPES | TERRENO COMERCIAL DE ESQUINA**
+  - 💰 R$ 265.000 | 📐 390 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/investimento-certo-em-paulo-lopes-terreno-comercial-de-esquina-1502419431
+
+- **Terreno para Venda em Florianópolis, Coqueiros**
+  - 💰 R$ 950.000 | 📐 326 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-coqueiros-1470179221
+
+- **Terreno Localizado no Recanto da Natureza - São José/SC**
+  - 💰 R$ 290.000 | 📐 312 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-no-recanto-da-natureza-sao-jose-sc-1502402190
+
+- **Lote à Venda no Acqua Condomínio Clube - Deltaville | Biguaçu/SC**
+  - 💰 R$ 210.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-acqua-condominio-clube-deltaville-biguacu-sc-1502401345
+
+- **Terreno de 150m², DeltaVille - Biguaçu - São José/ SC**
+  - 💰 R$ 190.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-150m-deltaville-biguacu-sao-jose-sc-1502400811
+
+- **Terreno escriturado e pronto para financiamento em Sangão**
+  - 💰 R$ 70.000 | 📐 356 m²
+  - 📍  — Sangão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-e-pronto-para-financiamento-em-sangao-1502391036
+
+- **Terreno fundos de Biguaçu**
+  - 💰 R$ 150.000 | 📐 750 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-fundos-de-biguacu-1502353320
+
+- **Terreno Exclusivo no Puerto Madero com 700 m² e Vista Permanente Deslu**
+  - 💰 R$ 1.970.000 | 📐 700 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-no-puerto-madero-com-700-m-e-vista-permanente-deslumbrante-1502379553
+
+- **Vendo terreno em Antônio Carlos**
+  - 💰 R$ 75.000 | 📐 3500 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-antonio-carlos-1502377819
+
+- **Terreno Sitio Praia Grande SC**
+  - 💰 R$ 350 | 📐 2750 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sitio-praia-grande-sc-1502375426
+
+- **Pego Troca - Terreno Medindo 14x25 no Contrato**
+  - 💰 R$ 120.000 | 📐 350 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/pego-troca-terreno-medindo-14x25-no-contrato-1502374201
+
+- **Imóvel para venda possui 360 metros quadrados em São Martinho - Tubarã**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 São Martinho — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-360-metros-quadrados-em-sao-martinho-tubarao-sc-1502358768
+
+- **Imóvel para venda com 300 metros quadrados em Praia Redonda - Tubarão **
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍 Praia Redonda — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-300-metros-quadrados-em-praia-redonda-tubarao-sc-1502358737
+
+- **Terrenos na Palhoça**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-na-palhoca-1502351630
+
+- **Terreno com escritura pública, em loteamento planejado no Rio Vermelho**
+  - 💰 R$ 450.000 | 📐 398250 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-em-loteamento-planejado-no-rio-vermelho-1502349628
+
+- **Imóvel para venda tem 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1502348795
+
+- **TERRENO NO ESTREITO**
+  - 💰 R$ 200.000 | 📐 2000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-estreito-1502344356
+
+- **Chacara em São Perdro de Alcântara SC**
+  - 💰 R$ 850.000 | 📐 40416 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-sao-perdro-de-alcantara-sc-1502347457
+
+- **TERRENO 41x22**
+  - 💰 R$ 160.000 | 📐 902 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-41x22-1502342211
+
+- **Terreno 250M² no Bairro Amazônia Parauapebas, próximo shopping**
+  - 💰 R$ 60.000 | 📐 250 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-250m-no-bairro-amazonia-parauapebas-proximo-shopping-1501979985
+
