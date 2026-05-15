@@ -86599,3 +86599,136 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-da-gaivota-1424935821
 
+
+## 🆕 26 novos anúncios — 15/05/2026 17:04
+
+- **Chácaras a venda na colônia Santana**
+  - 💰 R$ 230.000 | 📐 2000 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacaras-a-venda-na-colonia-santana-1502339412
+
+- **Terreno à venda Ribeirão do Cangueri Imaruí/SC**
+  - 💰 R$ 360.000 | 📐 40000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-ribeirao-do-cangueri-imarui-sc-1502336465
+
+- **Terreno no bairro Vendaval - Biguaçu**
+  - 💰 R$ 375.000 | 📐 385 m²
+  - 📍 Vendaval — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-vendaval-biguacu-1502331088
+
+- **Terreno em Sertão do Maruim - São José**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sertao-do-maruim-sao-jose-1502330806
+
+- **Terreno com 390m² - Centro - Antônio Carlos - SC**
+  - 💰 R$ 275.000 | 📐 390 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-390m-centro-antonio-carlos-sc-1502329163
+
+- **Chácara**
+  - 💰 R$ 150.000 | 📐 1000 m²
+  - 📍 Centro — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-1502325231
+
+- **OPORTUNIDADE PARA VENDER RÁPIDO DE 169 MIL POR 135 MIL!!**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-vender-rapido-de-169-mil-por-135-mil-1502324855
+
+- **Terreno pronto para construir no bairro Lagoinhas norte**
+  - 💰 R$ 47.000 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-no-bairro-lagoinhas-norte-1502316786
+
+- **Casa 2 quartos p venda a vista**
+  - 💰 R$ 290.000 | 📐 155 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-2-quartos-p-venda-a-vista-1502305535
+
+- **Vendo lotes bem localizados no bairro Río Vermelho**
+  - 💰 R$ 100.000 | 📐 77 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lotes-bem-localizados-no-bairro-rio-vermelho-1502303329
+
+- **Terreno à venda com 6400 m² na Praia do Rosa - Imbituba - SC**
+  - 💰 R$ 3.200.000 | 📐 6400 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-6400-m-na-praia-do-rosa-imbituba-sc-1502299411
+
+- **Terreno à venda em Governador Celso Ramos**
+  - 💰 R$ 490 | 📐 2570 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-governador-celso-ramos-1502295606
+
+- **Terreno Condominio em Bairro Deltaville - Biguaçu, SC**
+  - 💰 R$ 286.895 | 📐 152 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-em-bairro-deltaville-biguacu-sc-1502284640
+
+- **Imóvel para venda tem 600 metros quadrados em Córrego Grande - Florian**
+  - 💰 R$ 1.000.000 | 📐 600 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-600-metros-quadrados-em-corrego-grande-florianopolis-sc-1502282322
+
+- **Terreno Loteamento Santa Catarina - Biguaçu**
+  - 💰 R$ 195.000 | 📐 360 m²
+  - 📍  — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-santa-catarina-biguacu-1502282016
+
+- **Terreno para venda com 1800 metros quadrados em Centro - Santo Amaro d**
+  - 💰 R$ 3.000.000 | 📐 1800 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-com-1800-metros-quadrados-em-centro-santo-amaro-da-imperatriz-sc-997784991
+
+- **Lote/Terreno para venda possui 150 metros quadrados em Beira Rio - Big**
+  - 💰 R$ 270.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-venda-possui-150-metros-quadrados-em-beira-rio-biguacu-sc-1039028769
+
+- **Lote/Terreno para venda tem 1200 metros de frente para o rodoanel! Opo**
+  - 💰 R$ 900.000 | 📐 1200 m²
+  - 📍 Colônia Santana — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-venda-tem-1200-metros-de-frente-para-o-rodoanel-oportunidade-para-galpa-1203440425
+
+- **Terreno 500M - Cachoeira do Bom Jesus - Florianopolis/SC**
+  - 💰 R$ 730.000 | 📐 500 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-500m-cachoeira-do-bom-jesus-florianopolis-sc-1502277946
+
+- **Terreno à venda no Condomínio Reserva da Pedra**
+  - 💰 R$ 1.099.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-reserva-da-pedra-1473890679
+
+- **Serraria Terreno 1998m2 200m da Br101**
+  - 💰 R$ 500.000 | 📐 1998 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/serraria-terreno-1998m2-200m-da-br101-1502274331
+
+- **Lindo terreno na região do Rio Maina - Criciúma - SC**
+  - 💰 R$ 165.000 | 📐 320 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-na-regiao-do-rio-maina-criciuma-sc-1502270796
+
+- **Terreno à venda em Santo Antônio de Lisboa, Florianopolis/SC**
+  - 💰 R$ 1.300.000 | 📐 510 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-santo-antonio-de-lisboa-florianopolis-sc-1502259430
+
+- **Lote / Terreno em Areias - São José, SC**
+  - 💰 R$ 969.000 | 📐 665 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-areias-sao-jose-sc-1502178259
+
+- **Imóvel para venda com 360 metros quadrados em Alto Aririú - Palhoça - **
+  - 💰 R$ 320.000 | 📐 360 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-360-metros-quadrados-em-alto-aririu-palhoca-sc-1501801493
+
+- **Terreno em Condomínio Fechado no Norte da Ilha  454m² e Frente Norte**
+  - 💰 R$ 980.000 | 📐 454 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-norte-da-ilha-454m-e-frente-norte-1500433603
+
