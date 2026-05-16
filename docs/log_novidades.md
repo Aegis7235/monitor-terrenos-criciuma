@@ -87476,3 +87476,81 @@
   - 📍  — Maracajá
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-6900-m-por-r-950-000-00-vila-beatriz-maracaja-sc-1026278655
 
+
+## 🆕 15 novos anúncios — 16/05/2026 16:13
+
+- **Terreno 720m2 para venda no bairro Jardim Cidade de De Florianópolis e**
+  - 💰 R$ 1.200.000 | 📐 720 m²
+  - 📍 Jardim Cidade de Florianópolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-720m2-para-venda-no-bairro-jardim-cidade-de-de-florianopolis-em-sao-jose-sc-1502582265
+
+- **Terreno avenda**
+  - 💰 R$ 99.900 | 📐 ? m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-avenda-1502566421
+
+- **Lote/ Terreno com 395 m² plano de esquina a venda  Vivenda Praianos Fo**
+  - 💰 R$ 145.000 | 📐 395 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-com-395-m-plano-de-esquina-a-venda-vivenda-praianos-forquilhas-sao-jose-1502562678
+
+- **Terreno 652,5 m2 Escritura pública**
+  - 💰 R$ 800.000 | 📐 652 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-652-5-m2-escritura-publica-1337084441
+
+- **Jóia rara super arborizada no meio do Campeche**
+  - 💰 R$ 780.000 | 📐 658 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/joia-rara-super-arborizada-no-meio-do-campeche-1502550752
+
+- **Área 3506m2 grande Florianópolis  viaduto enseada do Brito em palhoça **
+  - 💰 R$ 3.200.000 | 📐 3506 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-3506m2-grande-florianopolis-viaduto-enseada-do-brito-em-palhoca-proximo-a-volvo-1502547411
+
+- **Vendo terreno no Bela Vista**
+  - 💰 R$ 215.000 | 📐 200 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-bela-vista-1502535358
+
+- **Lote / Terreno em Jurerê - Florianópolis, SC**
+  - 💰 R$ 3.650.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-jurere-florianopolis-sc-1502534143
+
+- **Lote / Terreno em Jurerê - Florianópolis**
+  - 💰 R$ 2.450.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-jurere-florianopolis-1502534104
+
+- **Vendo lote pequeno 12x9**
+  - 💰 R$ 120.000 | 📐 110 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-pequeno-12x9-1502534159
+
+- **TERRENO AMPLO À VENDA EM AREIAS  PAULO LOPES/SC | 925 m² EM REGIÃO DE **
+  - 💰 R$ 370.000 | 📐 925 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-venda-em-areias-paulo-lopes-sc-925-m-em-regiao-de-grande-valorizacao-1502531000
+
+- **Terreno à Venda em Deltaville Biguaçu por R$202.000**
+  - 💰 R$ 202.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-deltaville-biguacu-por-r-202-000-1502527186
+
+- **REFÚGIO EM MEIO À NATUREZA | SÍTIO COM ESCRITURA E ÓTIMA LOCALIZAÇÃO E**
+  - 💰 R$ 785.000 | 📐 11720 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/refugio-em-meio-natureza-sitio-com-escritura-e-otima-localizacao-em-paulo-lopes-1502527072
+
+- **Terreno de 360m2 , escritura pública , loteamento planejado a 300 metr**
+  - 💰 R$ 1.590.000 | 📐 360 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360m2-escritura-publica-loteamento-planejado-a-300-metros-da-praia-do-campe-1502524571
+
+- **Terreno à venda de 1000m², Sambaqui, Imbituba - SC**
+  - 💰 R$ 430.000 | 📐 1000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-de-1000m-sambaqui-imbituba-sc-1502519886
+
