@@ -87428,3 +87428,51 @@
   - 📍 São Martinho — Tubarão
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-com-06-hectares-em-tubarao-sc-1502492228
 
+
+## 🆕 9 novos anúncios — 16/05/2026 10:31
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1502506518
+
+- **Terreno à venda em Canasvieiras**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-canasvieiras-1502504976
+
+- **Terreno em ótima localização na Costeira do Pirajubaé.**
+  - 💰 R$ 690.000 | 📐 464 m²
+  - 📍 Costeira do Pirajubaé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-otima-localizacao-na-costeira-do-pirajubae-1502502197
+
+- **Terreno amplo no condomínio Green Park em Termas do Gravatal**
+  - 💰 R$ 700.000 | 📐 669 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-no-condominio-green-park-em-termas-do-gravatal-1502501335
+
+- **Terreno de esquina no condomínio Green Park em Termas do Gravatal**
+  - 💰 R$ 805.000 | 📐 770 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-condominio-green-park-em-termas-do-gravatal-1502501072
+
+- **Terreno em Condomínio com 450 m2 no Campeche em Florianopolis**
+  - 💰 R$ 2.150.000 | 📐 450 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-com-450-m2-no-campeche-em-florianopolis-1502492295
+
+- **Terreno Santa Rosa do Sul SC**
+  - 💰 R$ 480.000 | 📐 6400 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-santa-rosa-do-sul-sc-1398245166
+
+- **Terreno à venda, 110000 m² por R$ 1.590.000,00 - Anita Garibaldi - Bal**
+  - 💰 R$ 1.590.000 | 📐 110000 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-110000-m-por-r-1-590-000-00-anita-garibaldi-balneario-gaivota-sc-1320604102
+
+- **Terreno à venda, 6900 m² por R$ 950.000,00 - Vila Beatriz - Maracajá/S**
+  - 💰 R$ 950.000 | 📐 6900 m²
+  - 📍  — Maracajá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-6900-m-por-r-950-000-00-vila-beatriz-maracaja-sc-1026278655
+
