@@ -87554,3 +87554,66 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-de-1000m-sambaqui-imbituba-sc-1502519886
 
+
+## 🆕 12 novos anúncios — 16/05/2026 22:06
+
+- **Sítio em Alfredo Wagner**
+  - 💰 R$ 270.000 | 📐 3000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-1502647277
+
+- **Cabanas condomínio rancho queimado sitio**
+  - 💰 R$ 390.000 | 📐 120000 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/cabanas-condominio-rancho-queimado-sitio-1456133306
+
+- **? Chácara à Venda - Cachoeira do Amâncio | Biguaçu/SC**
+  - 💰 R$ 250.000 | 📐 600 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-cachoeira-do-amancio-biguacu-sc-1502646337
+
+- **OPORTUNIDADE EM PAULO LOPES: TERRENO PLANO COM VISTA E ACESSO ASFALTAD**
+  - 💰 R$ 275.000 | 📐 1525 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-paulo-lopes-terreno-plano-com-vista-e-acesso-asfaltado-1502641485
+
+- **Terreno à venda na Guarda do Cubatão Palhoça**
+  - 💰 R$ 350.000 | 📐 12 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-guarda-do-cubatao-palhoca-1502638060
+
+- **Linda Chácara Rancho Queimado SC**
+  - 💰 R$ 370.000 | 📐 3000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-chacara-rancho-queimado-sc-1502636737
+
+- **Terreno na Pedra Branca 600 M² - imv**
+  - 💰 R$ 715.000 | 📐 600 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-pedra-branca-600-m-imv-1502597413
+
+- **Terreno industrial, comercial, 1.222,75 m², Ao lado da Komeco, Furadin**
+  - 💰 R$ 1.473.000 | 📐 1222 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-comercial-1-222-75-m-ao-lado-da-komeco-furadinho-palhoca-sc-1502594297
+
+- **Terreno no bairro Rio Caveiras - Biguaçu**
+  - 💰 R$ 450.000 | 📐 450 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-rio-caveiras-biguacu-1502590189
+
+- **Terreno no bairro Rio Caveiras - Biguaçu**
+  - 💰 R$ 360.000 | 📐 360 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-rio-caveiras-biguacu-1502589982
+
+- **Terreno no Lot Vila Nova, Barra do aririu - Palhoça**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-lot-vila-nova-barra-do-aririu-palhoca-1502586614
+
+- **Terreno para Venda em Florianópolis, Ribeirão da Ilha**
+  - 💰 R$ 10.000.000 | 📐 37500 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1502585515
+
