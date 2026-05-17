@@ -87771,3 +87771,121 @@
   - 📍 Laranjinha — Criciúma
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-criciuma-laranjinha-50m2-RS250000/id-39875418/
 
+
+## 🆕 23 novos anúncios — 17/05/2026 22:09
+
+- **Oportunidade imperdível!! Chácara com casa e árvores frutíferas.**
+  - 💰 R$ 165.000 | 📐 600 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-imperdivel-chacara-com-casa-e-arvores-frutiferas-1502830621
+
+- **VENDE-SE UM TERRENO**
+  - 💰 R$ 95.000 | 📐 15 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-um-terreno-1502821540
+
+- **Vendo sítio Águas Mornas**
+  - 💰 R$ 250.000 | 📐 700 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-aguas-mornas-1502797792
+
+- **Terreno em condomínio industrial Fechado**
+  - 💰 R$ 8.000 | 📐 1050 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-industrial-fechado-1502819051
+
+- **Terreno a venda**
+  - 💰 R$ 120.000 | 📐 700 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1502818102
+
+- **Terreno Biguaçu bairro vendaval**
+  - 💰 R$ 215.000 | 📐 491 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-biguacu-bairro-vendaval-1502812519
+
+- **Vendo um lote cercado murado**
+  - 💰 R$ 220.000 | 📐 365 m²
+  - 📍 Santa Cruz da Figueira — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-um-lote-cercado-murado-1502809101
+
+- **TERRENO - Ingleses do Rio Vermelho - FM-267710**
+  - 💰 R$ 2.700.000 | 📐 430 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ingleses-do-rio-vermelho-fm-267710-1502805496
+
+- **TERRENO - Morro da Bina - FM-76543**
+  - 💰 R$ 50.000.000 | 📐 10 m²
+  - 📍 Morro da Bina — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-morro-da-bina-fm-76543-1502804635
+
+- **Vendo casa rural**
+  - 💰 R$ 280.000 | 📐 700 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-casa-rural-1502804466
+
+- **Sítio do Pinguim**
+  - 💰 R$ 1.000.000 | 📐 40000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-do-pinguim-1502803219
+
+- **TERRENO - Campeche - FM-311302**
+  - 💰 R$ 990.000 | 📐 401 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-fm-311302-1502802520
+
+- **TERRENO - Capoeiras - FM-115378**
+  - 💰 R$ 3.000.000 | 📐 675 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-capoeiras-fm-115378-1502802497
+
+- **TERRENO - Campeche - FM-311301**
+  - 💰 R$ 990.000 | 📐 397 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-fm-311301-1502802505
+
+- **TERRENO - Campeche - FM-311299**
+  - 💰 R$ 990.000 | 📐 396 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-fm-311299-1502802499
+
+- **TERRENO - Pantanal - FM-143199**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍 Pantanal — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pantanal-fm-143199-1502798373
+
+- **Imóvel para venda com 5200 metros quadrados com 1 quarto em Ferrugem -**
+  - 💰 R$ 1.200.000 | 📐 5200 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-5200-metros-quadrados-com-1-quarto-em-ferrugem-garopaba-sc-1502795452
+
+- **Vendo ou troco Terreno em Paulo Lopes - com escritura Pública**
+  - 💰 R$ 1.200.000 | 📐 54527 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-terreno-em-paulo-lopes-com-escritura-publica-1473423402
+
+- **Terreno em Garopaba e Imbituba**
+  - 💰 R$ 100.000 | 📐 800 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-e-imbituba-1502791290
+
+- **Terreno fundos Lago no Reserva da Pedra - Pedra Branca - imv**
+  - 💰 R$ 1.277.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-fundos-lago-no-reserva-da-pedra-pedra-branca-imv-1502783722
+
+- **Terreno Fundos Lago no Reserva da Pedra - Pedra Branca - imv**
+  - 💰 R$ 1.277.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-fundos-lago-no-reserva-da-pedra-pedra-branca-imv-1502783605
+
+- **Terreno na Barra da Ibiraquera**
+  - 💰 R$ 500.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-barra-da-ibiraquera-1502777984
+
+- **Terreno para Venda em Florianópolis, Rio Tavares**
+  - 💰 R$ 1.700.000 | 📐 376 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-rio-tavares-1502773512
+
