@@ -87670,3 +87670,41 @@
   - 📍 Pedra Branca — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-pedra-branca-600-m-imv-1502658020
 
+
+## 🆕 7 novos anúncios — 17/05/2026 10:35
+
+- **Terreno 444,08 m² com escritura pública na Pinheira**
+  - 💰 R$ 400.000 | 📐 444 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-444-08-m-com-escritura-publica-na-pinheira-1351691782
+
+- **Terreno na Praia, 397,66 m²- Pinheira**
+  - 💰 R$ 425.000 | 📐 398 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-397-66-m-pinheira-1475104823
+
+- **SÍTIO - SÃO JOÃO DO RIO VERMELHO - SC**
+  - 💰 R$ 6.500.000 | 📐 1215090 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-sao-joao-do-rio-vermelho-sc-1464950412
+
+- **Terreno em Condomínio Fechado Jurerê Internacional**
+  - 💰 R$ 8.681.000 | 📐 868 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-jurere-internacional-1502709135
+
+- **Terreno na Praia, 397,66 m²- Pinheira**
+  - 💰 R$ 450.000 | 📐 398 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-397-66-m-pinheira-1475104820
+
+- **Terreno 224m² - Pinheira**
+  - 💰 R$ 260.000 | 📐 224 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-224m-pinheira-1481464646
+
+- **Sítio com 45.000m², 2 cachoeiras, parcelamento direto em Alfredo Wagne**
+  - 💰 R$ 550.000 | 📐 45000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-45-000m-2-cachoeiras-parcelamento-direto-em-alfredo-wagner-1431992765
+
