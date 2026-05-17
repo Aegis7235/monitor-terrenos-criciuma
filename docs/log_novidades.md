@@ -87617,3 +87617,56 @@
   - 📍 Ribeirão da Ilha — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1502585515
 
+
+## 🆕 10 novos anúncios — 17/05/2026 06:37
+
+- **Terreno para Venda em Florianópolis, Ribeirão Da Ilha, 1 dormitório, 1**
+  - 💰 R$ 450.000 | 📐 500 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ribeirao-da-ilha-1-dormitorio-1-banheiro-4-vagas-1431593274
+
+- **Venda-Fazenda-Palhoça-Guarda do Cubatão**
+  - 💰 R$ 6.000.000 | 📐 270000 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-fazenda-palhoca-guarda-do-cubatao-1502703582
+
+- **Venda-Sítio-Imaruí-Figueira Grande**
+  - 💰 R$ 1.100.000 | 📐 67000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-sitio-imarui-figueira-grande-1502703573
+
+- **Terreno na Pedra Branca 600 M² - mrt**
+  - 💰 R$ 715.000 | 📐 600 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-pedra-branca-600-m-mrt-1502698080
+
+- **Terreno no Reserva da Pedra - Pedra Branca - Palhoça**
+  - 💰 R$ 1.150.000 | 📐 323 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-reserva-da-pedra-pedra-branca-palhoca-1502689664
+
+- **Terreno - Condomínio Reserva da Pedra**
+  - 💰 R$ 1.090.000 | 📐 303 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-reserva-da-pedra-1502689463
+
+- **Vendo Sitio em Águas Mornas**
+  - 💰 R$ 270.000 | 📐 1000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-aguas-mornas-1502675346
+
+- **Terreno de esquina com 1.078m² no Condomínio Villa da Imperatriz - Par**
+  - 💰 R$ 580.000 | 📐 1078 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-com-1-078m-no-condominio-villa-da-imperatriz-parte-alta-1502665668
+
+- **Terreno Biguaçu**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-biguacu-1502665380
+
+- **Terreno na Pedra Branca 600 M² - imv**
+  - 💰 R$ 715.000 | 📐 600 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-pedra-branca-600-m-imv-1502658020
+
