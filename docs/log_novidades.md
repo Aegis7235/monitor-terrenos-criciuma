@@ -87708,3 +87708,66 @@
   - 📍  — Alfredo Wagner
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-45-000m-2-cachoeiras-parcelamento-direto-em-alfredo-wagner-1431992765
 
+
+## 🆕 12 novos anúncios — 17/05/2026 16:11
+
+- **Terreno super localizado a venda no Ribeirão da Ilha.**
+  - 💰 R$ 450.000 | 📐 200 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-super-localizado-a-venda-no-ribeirao-da-ilha-1502770568
+
+- **Terreno Residencial em Jurerê**
+  - 💰 R$ 2.600.000 | 📐 450 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-jurere-1502769855
+
+- **Terreno 900m2**
+  - 💰 R$ 80.000 | 📐 900 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-900m2-1502769136
+
+- **TERRENO - Morro da Bina - JP-76543**
+  - 💰 R$ 50.000.000 | 📐 10 m²
+  - 📍 Morro da Bina — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-morro-da-bina-jp-76543-1502766522
+
+- **TERRENO - Campeche - JP-311302**
+  - 💰 R$ 990.000 | 📐 401 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-campeche-jp-311302-1502766521
+
+- **Sítio Alfredo Wagner**
+  - 💰 R$ 400.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-alfredo-wagner-1502755512
+
+- **Palhoça Área 10,600m2 Viabilidade 4 pisos Estuda Permuta**
+  - 💰 R$ 4.700.000 | 📐 106002 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/palhoca-area-10-600m2-viabilidade-4-pisos-estuda-permuta-1502753124
+
+- **Terreno para sítio**
+  - 💰 R$ 200.000 | 📐 12000 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-1502738173
+
+- **Oportunidade em São José (817,00 m²)**
+  - 💰 R$ 429.000 | 📐 817 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-sao-jose-817-00-m-1502732762
+
+- **AREA - PRAIA COMPRIDA - SC**
+  - 💰 R$ 1.200.000 | 📐 513 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-praia-comprida-sc-1502722756
+
+- **AREA - PRAIA COMPRIDA - SC**
+  - 💰 R$ 1.200.000 | 📐 513 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-praia-comprida-sc-1502722429
+
+- **Oportunidade Única em CRICIUMA - SC | Tipo: Casa | Negociação: Leilão **
+  - 💰 R$ 250.000 | 📐 443 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-criciuma-laranjinha-50m2-RS250000/id-39875418/
+
