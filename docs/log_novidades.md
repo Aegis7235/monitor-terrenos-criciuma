@@ -88130,3 +88130,131 @@
   - 📍  — Águas Mornas
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-de-rancho-queimado-sc-1502968927
 
+
+## 🆕 25 novos anúncios — 18/05/2026 17:43
+
+- **Terreno 494m² em Condomínio - Centro - EST**
+  - 💰 R$ 1.000.000 | 📐 494 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-494m-em-condominio-centro-est-1503060148
+
+- **Terreno com Cachoeira à Venda no Bairro Ressacada  Garopaba/SC**
+  - 💰 R$ 859.000 | 📐 7157 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-cachoeira-a-venda-no-bairro-ressacada-garopaba-sc-1503059813
+
+- **Sítio com 20 mil metros**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-20-mil-metros-1503059354
+
+- **Chácara com escritura e linda vista em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 370.000 | 📐 2500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-escritura-e-linda-vista-em-santo-amaro-da-imperatriz-sc-1503058585
+
+- **Terreno comercial no Centro de Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 1.300.000 | 📐 1600 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-no-centro-de-santo-amaro-da-imperatriz-sc-1503057201
+
+- **Sitio proximo do Centro de Anitápolis - SC**
+  - 💰 R$ 220.000 | 📐 20000 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-do-centro-de-anitapolis-sc-1503055809
+
+- **Belo sitio em Águas Mornas - SC**
+  - 💰 R$ 1.500.000 | 📐 210000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-aguas-mornas-sc-1503053850
+
+- **Chácara pronta para uso em Rancho Queimado - SC**
+  - 💰 R$ 750.000 | 📐 2000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-pronta-para-uso-em-rancho-queimado-sc-1503052374
+
+- **Vende terreno na Armação Florianópolis**
+  - 💰 R$ 390.000 | 📐 258 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-terreno-na-armacao-florianopolis-1503051533
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1503050045
+
+- **Aceito carro ou caminhão 3/4 no negócio**
+  - 💰 R$ 148.000 | 📐 328 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aceito-carro-ou-caminhao-3-4-no-negocio-1503049290
+
+- **Terreno para venda em MONTE VERDE com 12.804 M²**
+  - 💰 R$ 22.000.000 | 📐 162 m²
+  - 📍 Monte Verde — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-monte-verde-com-12-804-m-1503049602
+
+- **Vendo excelente terreno de 425m2 totalmente regularizado na palhoça**
+  - 💰 R$ 430.000 | 📐 425 m²
+  - 📍 Rio Grande — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-excelente-terreno-de-425m2-totalmente-regularizado-na-palhoca-1469261307
+
+- **Terreno plano a 50 metros da praia - Ribeirão da Ilha, Florianópolis.**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-a-50-metros-da-praia-ribeirao-da-ilha-florianopolis-1503043197
+
+- **Melhor localização em Imaruí. Terreno com escritura, finaciável!**
+  - 💰 R$ 499.000 | 📐 35779 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/melhor-localizacao-em-imarui-terreno-com-escritura-finaciavel-1503042962
+
+- **Terreno em condomínio fechado  na Cachoeira do Bom Jesus - 392m2**
+  - 💰 R$ 580.000 | 📐 392 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-na-cachoeira-do-bom-jesus-392m2-1503022283
+
+- **Ótimo terreno condomínio Villaggio  Verde 800 m2 Criciúma**
+  - 💰 R$ 550.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-condominio-villaggio-verde-800-m2-criciuma-1503015468
+
+- **WE - LOTE PLANO COM 320M² LOCALIZAÇÃO PRIVILEGIADA NO LISBOA 3**
+  - 💰 R$ 290.000 | 📐 320 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/we-lote-plano-com-320m-localizacao-privilegiada-no-lisboa-3-1503015210
+
+- **Terreno 494m² em Condomínio - Centro - JMS**
+  - 💰 R$ 1.000.000 | 📐 494 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-494m-em-condominio-centro-jms-1503005637
+
+- **WE - EXCELENTE OPORTUNIDADE, TERRENO PLANO DE ESQUINA COM 504M² NA AV **
+  - 💰 R$ 720.000 | 📐 504 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/we-excelente-oportunidade-terreno-plano-de-esquina-com-504m-na-av-das-torres-1503002230
+
+- **Áreá de 3 Hectares para loteamento as margens da lagoa do Rio Novo**
+  - 💰 R$ 1.200.000 | 📐 30000 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-de-3-hectares-para-loteamento-as-margens-da-lagoa-do-rio-novo-1502997023
+
+- **Vendou outro troco por caminhão**
+  - 💰 R$ 100.000 | 📐 200 m²
+  - 📍 Aririú da Formiga — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendou-outro-troco-por-caminhao-1502989747
+
+- **Terreno 494m² em Condomínio - Centro**
+  - 💰 R$ 1.000.000 | 📐 494 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-494m-em-condominio-centro-1502987451
+
+- **Terreno com 360m² em São José**
+  - 💰 R$ 399.000 | 📐 405 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360m-em-sao-jose-1460772764
+
+- **Sitio com riacho, lago e uma bela**
+  - 💰 R$ 1.400.000 | 📐 27000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-riacho-lago-e-uma-bela-1503038448
+
