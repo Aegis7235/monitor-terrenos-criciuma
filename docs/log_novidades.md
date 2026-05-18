@@ -87889,3 +87889,121 @@
   - 📍 Rio Tavares — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-rio-tavares-1502773512
 
+
+## 🆕 23 novos anúncios — 18/05/2026 07:11
+
+- **Sítio á venda com 39.000 m² em Nova Trento - Santa Catarina**
+  - 💰 R$ 1.500.000 | 📐 30000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-com-39-000-m-em-nova-trento-santa-catarina-1502902315
+
+- **Terreno com 252 m² com parcelamento direto em até 120x, Tijucas SC**
+  - 💰 R$ 265.000 | 📐 250 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-252-m-com-parcelamento-direto-em-ate-120x-tijucas-sc-1422293058
+
+- **Terreno de 12000 m² localizado em Cacupe Florianópolis Santa Catarina**
+  - 💰 R$ 12.000.000 | 📐 12000 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-12000-m-localizado-em-cacupe-florianopolis-santa-catarina-1502902294
+
+- **Terreno - Venda - Santo Amaro da Imperatriz , Santa Catarina**
+  - 💰 R$ 23.000.000 | 📐 173004 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-santo-amaro-da-imperatriz-santa-catarina-1502902296
+
+- **Área Residencial á venda em Laguna Santa Catarina**
+  - 💰 R$ 2.000.000 | 📐 54520 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-residencial-a-venda-em-laguna-santa-catarina-1502902247
+
+- **Sítio á venda com 03 dormitórios sendo 01 suíte localizado em Canelinh**
+  - 💰 R$ 2.500.000 | 📐 6500 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-com-03-dormitorios-sendo-01-suite-localizado-em-canelinha-tijucas-sc-1502901946
+
+- **TERRENO VARGEM GRANDE**
+  - 💰 R$ 900.000 | 📐 5929 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vargem-grande-1502900258
+
+- **ÁREA EM FLORIANÓPOLIS**
+  - 💰 R$ 15.000.000 | 📐 55906 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-em-florianopolis-1502900100
+
+- **Terreno em Ratones - Florianópolis**
+  - 💰 R$ 695.000 | 📐 1061 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ratones-florianopolis-1502896020
+
+- **Terreno Fundos Lago no Reserva da Pedra - Pedra Branca - mrt**
+  - 💰 R$ 1.277.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-fundos-lago-no-reserva-da-pedra-pedra-branca-mrt-1502894694
+
+- **Aluguel de chácara por diária 24h valor 950reais, em Santo amaro da im**
+  - 💰 R$ 950 | 📐 3300 m²
+  - 📍 Braço São João — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aluguel-de-chacara-por-diaria-24h-valor-950reais-em-santo-amaro-da-imperatriz-1502894146
+
+- **Vendo terreno**
+  - 💰 R$ 560.000 | 📐 ? m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1502893762
+
+- **Terreno fundos Lago no Reserva da Pedra - Pedra Branca - mrt**
+  - 💰 R$ 1.277.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-fundos-lago-no-reserva-da-pedra-pedra-branca-mrt-1502893335
+
+- **Terreno comercial permuta P sítio ou casa d praia**
+  - 💰 R$ 890.000 | 📐 1200 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-permuta-p-sitio-ou-casa-d-praia-1502889794
+
+- **Terreno espetacular de 8.500 m2 no Bairro Ferraz em Garopaba para proj**
+  - 💰 R$ 4.900.000 | 📐 8500 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-espetacular-de-8-500-m2-no-bairro-ferraz-em-garopaba-para-projetos-incriveis-1502883085
+
+- **ÁREA COMERCIAL À VENDA NA MARGINAL DA BR-101  PALHOÇA/SC**
+  - 💰 R$ 1.500.000 | 📐 6951 m²
+  - 📍 Área Rural de Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-comercial-venda-na-marginal-da-br-101-palhoca-sc-1502873171
+
+- **Terreno Residencial em Jurerê**
+  - 💰 R$ 2.600.000 | 📐 450 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-jurere-1502868199
+
+- **Terreno a venda**
+  - 💰 R$ 270.000 | 📐 550000 m²
+  - 📍 Centro — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1502865560
+
+- **Terreno todo Murado**
+  - 💰 R$ 150.000 | 📐 388 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-todo-murado-1502864117
+
+- **Sítio**
+  - 💰 R$ 1.500.000 | 📐 7000000 m²
+  - 📍 Barra da Lagoa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1502856757
+
+- **Terreno Residencial em Jurerê**
+  - 💰 R$ 2.600.000 | 📐 450 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-jurere-1502856283
+
+- **Terreno no Deltaville Montenegro Marine com 180m²**
+  - 💰 R$ 270.000 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-montenegro-marine-com-180m-1502846341
+
+- **Vendo terreno no Recanto da Natureza**
+  - 💰 R$ 230.000 | 📐 268 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-recanto-da-natureza-1502845726
+
