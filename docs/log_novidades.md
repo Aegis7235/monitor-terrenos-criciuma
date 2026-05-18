@@ -88007,3 +88007,126 @@
   - 📍 Potecas — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-recanto-da-natureza-1502845726
 
+
+## 🆕 24 novos anúncios — 18/05/2026 12:48
+
+- **Terreno bela vista/ Palhoça**
+  - 💰 R$ 330.000 | 📐 360 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bela-vista-palhoca-1502955398
+
+- **ANITÁPOLIS/SC - Sítio incrível pronto para morar com 3 hectares**
+  - 💰 R$ 650.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-sitio-incrivel-pronto-para-morar-com-3-hectares-1502955023
+
+- **ANITÁPOLIS/SC- RANCHO QUEIMADO - Belíssima Oportunidade sitio pronto c**
+  - 💰 R$ 1.750.000 | 📐 140000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-rancho-queimado-belissima-oportunidade-sitio-pronto-com-14hrctares-1502952320
+
+- **Vendo Lote no Condomínio Fechado TERRÁ WAVE RESORT**
+  - 💰 R$ 150.000 | 📐 157 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-no-condominio-fechado-terra-wave-resort-1435427588
+
+- **Vendo terreno no trevo de governador Celso ramos, com escritura públic**
+  - 💰 R$ 170.000 | 📐 360 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-trevo-de-governador-celso-ramos-com-escritura-publica-1502947877
+
+- **AREA - PRAIA COMPRIDA - SC**
+  - 💰 R$ 1.200.000 | 📐 513 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-praia-comprida-sc-1502946027
+
+- **SÍTIO COMPLETO COM CACHOEIRA - 6,3 HECTARES NA PEDRA BRANCA, ALFREDO W**
+  - 💰 R$ 750.000 | 📐 63000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-completo-com-cachoeira-6-3-hectares-na-pedra-branca-alfredo-wagner-sc-1428628236
+
+- **Alfredo Wagner -Sítio pronto para morar- Serra Catarinense**
+  - 💰 R$ 400.000 | 📐 29500 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alfredo-wagner-sitio-pronto-para-morar-serra-catarinense-1345643856
+
+- **Sítio em Alfredo Wagner - Serra Catarinense- 15000 m² com Chalé**
+  - 💰 R$ 380.000 | 📐 15000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-serra-catarinense-15000-m-com-chale-1453760626
+
+- **Alfredo Wagner/SC- Sítio 3400m² com casa e galpão**
+  - 💰 R$ 1.200.000 | 📐 34000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alfredo-wagner-sc-sitio-3400m-com-casa-e-galpao-1470118088
+
+- **Sítio à venda no bairro Centro - Anitápolis/SC**
+  - 💰 R$ 480.000 | 📐 21000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-centro-anitapolis-sc-1472258039
+
+- **Morro da Pedra Branca  Um Patrimônio Natural à Venda na Grande Florian**
+  - 💰 R$ 11.000.000 | 📐 690000 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/morro-da-pedra-branca-um-patrimonio-natural-a-venda-na-grande-florianopolis-1475479576
+
+- **Terreno à venda Águas Mornas.**
+  - 💰 R$ 430.000 | 📐 100 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-aguas-mornas-1343164209
+
+- **Sítio para Venda em Águas Mornas, SANTA CRUZ DA FIGUEIRA, 1 banheiro, **
+  - 💰 R$ 4.900.000 | 📐 550 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-aguas-mornas-santa-cruz-da-figueira-1-banheiro-1-vaga-1338532282
+
+- **Terreno à Venda  Bairro Arpoador (Zona Nova) | Balneário Arroio do Sil**
+  - 💰 R$ 35.000 | 📐 275 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-arpoador-zona-nova-balneario-arroio-do-silva-1464439882
+
+- **Oportunidade na Agronômica em Florianópolis**
+  - 💰 R$ 1.400.000 | 📐 335 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-na-agronomica-em-florianopolis-1474999961
+
+- **Terreno à venda, 429 m² por R$ 320.000,00 - Jardim Janaína - Biguaçu/S**
+  - 💰 R$ 320.000 | 📐 429 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-429-m-por-r-320-000-00-jardim-janaina-biguacu-sc-1340599404
+
+- **Terreno em Santa Isabeel - Águas Mornas**
+  - 💰 R$ 530.000 | 📐 2315 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-santa-isabeel-aguas-mornas-1383303837
+
+- **Sítio para venda possui 6000 metros quadrados em Santa Izabel - Águas **
+  - 💰 R$ 270.000 | 📐 6000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-possui-6000-metros-quadrados-em-santa-izabel-aguas-mornas-sc-1360381651
+
+- **Sítio para venda possui 7000 metros quadrados em Vargem Grande - Águas**
+  - 💰 R$ 420.000 | 📐 7000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-possui-7000-metros-quadrados-em-vargem-grande-aguas-mornas-sc-1363437194
+
+- **Locação | Terreno de 400 m² - João Paulo, em Florianópolis.**
+  - 💰 R$ 2.400 | 📐 400 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/locacao-terreno-de-400-m-joao-paulo-em-florianopolis-1479949352
+
+- **Área com viabilidade para condomínio multifamiliar - Cachoeira do Bom **
+  - 💰 R$ 15.958.000 | 📐 250 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-com-viabilidade-para-condominio-multifamiliar-cachoeira-do-bom-jesus-florianopolis-1442226952
+
+- **Chácara proximo do Centro de  Anitápolis - SC**
+  - 💰 R$ 460.000 | 📐 5800 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-proximo-do-centro-de-anitapolis-sc-1502972053
+
+- **Sitio proximo de Rancho Queimado - SC**
+  - 💰 R$ 650.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-de-rancho-queimado-sc-1502968927
+
