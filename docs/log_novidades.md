@@ -89165,3 +89165,166 @@
   - 📍  — Tijucas
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-terra-nova-tijucas-sc-1503292641
 
+
+## 🆕 32 novos anúncios — 19/05/2026 22:33
+
+- **Lotes Disponíveis em Bal. Gaivota**
+  - 💰 R$ 115.000 | 📐 288 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-disponiveis-em-bal-gaivota-1503446082
+
+- **Terreno Barato!**
+  - 💰 R$ 55.000 | 📐 192 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-barato-1503443016
+
+- **Condominio Floreville!**
+  - 💰 R$ 450.000 | 📐 500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-floreville-1503444675
+
+- **Chácara com casa**
+  - 💰 R$ 188.998 | 📐 1000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-casa-1503439051
+
+- **TERRENO DE 1.083,69M2, BELA VISTA, PALHOÇA-SC**
+  - 💰 R$ 1.350.000 | 📐 12 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1-083-69m2-bela-vista-palhoca-sc-1503436996
+
+- **TERRENO 20.000M2, ALTO ARIRIÚ, PALHOÇA-SC**
+  - 💰 R$ 5.000.000 | 📐 12 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-20-000m2-alto-aririu-palhoca-sc-1503436692
+
+- **terreno de frente para Beira Mar Sul**
+  - 💰 R$ 6.600.000 | 📐 826 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-frente-para-beira-mar-sul-1503436665
+
+- **Vendo terreno 1k do Centro**
+  - 💰 R$ 450.000 | 📐 480 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1k-do-centro-1503435106
+
+- **Terrenos em Condomínio fechado**
+  - 💰 R$ 1.494.000 | 📐 450 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-1503434302
+
+- **Terreno à venda no Centro de Florianópolis**
+  - 💰 R$ 1.250.000 | 📐 653 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-florianopolis-1503434041
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi**
+  - 💰 R$ 1.866.000 | 📐 465 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1503433791
+
+- **Terrenos em Condomínio Fechado**
+  - 💰 R$ 1.424.000 | 📐 614 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-1503433293
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi**
+  - 💰 R$ 1.419.000 | 📐 450 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1503432897
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi**
+  - 💰 R$ 1.493.000 | 📐 525 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1503432901
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi**
+  - 💰 R$ 1.525.000 | 📐 525 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1503432809
+
+- **Terreno no Itacurubi em Condomínio fechado.**
+  - 💰 R$ 1.573.000 | 📐 457 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-itacurubi-em-condominio-fechado-1503432812
+
+- **Terreno na agrônomica ao lado da Beira Mar Financiavel**
+  - 💰 R$ 1.500.000 | 📐 137 m²
+  - 📍 Agronômica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-agronomica-ao-lado-da-beira-mar-financiavel-1503432571
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi**
+  - 💰 R$ 1.399.000 | 📐 519 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1503432548
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi**
+  - 💰 R$ 1.431.000 | 📐 534 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-1503432394
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi em Florianópolis-SC**
+  - 💰 R$ 1.235.000 | 📐 540 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-em-florianopolis-sc-1503432016
+
+- **Terrenos em Condomínio Fechado no Bairro Itacurubi em Florianópolis-SC**
+  - 💰 R$ 1.340.000 | 📐 639 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-condominio-fechado-no-bairro-itacurubi-em-florianopolis-sc-1503431998
+
+- **TERRENO 375M - MORRO DOS VENTURA - SANTO AMARO DA IMPERATRIZ**
+  - 💰 R$ 295.000 | 📐 375 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-375m-morro-dos-ventura-santo-amaro-da-imperatriz-1503430081
+
+- **Vendo terreno em Águas mornas**
+  - 💰 R$ 800.000 | 📐 109098 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-aguas-mornas-1503427919
+
+- **Terreno no Rio tavares próximo ao FORT**
+  - 💰 R$ 1.100.000 | 📐 456 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-tavares-proximo-ao-fort-1503412760
+
+- **Terreno de Esquina - Sanga Funda / Içara**
+  - 💰 R$ 111.111 | 📐 384 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-sanga-funda-icara-1503423531
+
+- **Troco/Vendo , Lote, Terreno,Dois Galpões**
+  - 💰 R$ 640.000 | 📐 3700 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/troco-vendo-lote-terreno-dois-galpoes-1503406778
+
+- **Área à Venda em Nova Veneza - 5,5 Hectares no Centro da Cidade**
+  - 💰 R$ 1.500.000 | 📐 55000 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-a-venda-em-nova-veneza-5-5-hectares-no-centro-da-cidade-1503415801
+
+- **TERRENO 1.666M² - PONTA DE BAIXO - SÃO JOSÉ**
+  - 💰 R$ 1.000.000 | 📐 1666 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-666m-ponta-de-baixo-sao-jose-1503413813
+
+- **Chácara**
+  - 💰 R$ 550.000 | 📐 21400 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-1503362800
+
+- **Sitio em Ratones a venda florianopolis SC**
+  - 💰 R$ 2.500.000 | 📐 5280 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-ratones-a-venda-florianopolis-sc-1503398098
+
+- **Terreno à venda no Cacupé em Condomínio fechado de alto padrão.**
+  - 💰 R$ 1.690.000 | 📐 513 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-cacupe-em-condominio-fechado-de-alto-padrao-1503398099
+
+- **Terreno residencial a venda no Itacorubi**
+  - 💰 R$ 1.237.000 | 📐 534 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-a-venda-no-itacorubi-1503397915
+
