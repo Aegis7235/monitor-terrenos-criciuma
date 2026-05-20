@@ -89564,3 +89564,26 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-imbituba-com-330-00m-1503557144
 
+
+## 🆕 4 novos anúncios — 20/05/2026 18:06
+
+- **Chácara com 1,3 Hectares à Venda  Penha | Paulo Lopes/SC**
+  - 💰 R$ 870.000 | 📐 13000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-1-3-hectares-a-venda-penha-paulo-lopes-sc-1503675534
+
+- **Lote de 360 m² à Venda em Paulo Lopes/SC | Caminhos da Praia da Gamboa**
+  - 💰 R$ 179.900 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-360-m-a-venda-em-paulo-lopes-sc-caminhos-da-praia-da-gamboa-siriu-garopaba-1503668572
+
+- **Sítio em Nova Trento**
+  - 💰 R$ 1.600.000 | 📐 19000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-nova-trento-1503624199
+
+- **Ótima oportunidade**
+  - 💰 R$ 130.000 | 📐 ? m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-1503603145
+
