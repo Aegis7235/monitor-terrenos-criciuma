@@ -89328,3 +89328,211 @@
   - 📍 Itacorubi — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-a-venda-no-itacorubi-1503397915
 
+
+## 🆕 41 novos anúncios — 20/05/2026 07:03
+
+- **Terreno em Condomínio Docas Do Rosa com localização privilegiada**
+  - 💰 R$ 300.000 | 📐 220 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-docas-do-rosa-com-localizacao-privilegiada-1503554963
+
+- **Terreno à venda no bairro Encantada em Garopaba**
+  - 💰 R$ 320.000 | 📐 363 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-encantada-em-garopaba-1503554926
+
+- **Terreno em condomínio fechado no Itacorubi - Florianópolis/SC**
+  - 💰 R$ 1.268.000 | 📐 450 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-itacorubi-florianopolis-sc-1503553966
+
+- **Terreno de 492,10 m2 em bairro residencial perto de serviços e superme**
+  - 💰 R$ 1.100.000 | 📐 492 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-492-10-m2-em-bairro-residencial-perto-de-servicos-e-supermercado-no-corrego-gra-1503553892
+
+- **Terreno em condominio fechado no Itacorubi - florianopolis/SC**
+  - 💰 R$ 1.697.000 | 📐 1024 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-itacorubi-florianopolis-sc-1503553833
+
+- **Vendo Terreno Rural no Moura em Canelinha**
+  - 💰 R$ 250.000 | 📐 833 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-rural-no-moura-em-canelinha-1503548674
+
+- **Terreno amplo à venda no bairro Pantanal, em Florianópolis. Localizaçã**
+  - 💰 R$ 2.600.000 | 📐 3967 m²
+  - 📍 Pantanal — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-a-venda-no-bairro-pantanal-em-florianopolis-localizacao-estrategica-com-e-1503543956
+
+- **IMPERDÍVEL- terreno no loteamento Jardim América**
+  - 💰 R$ 152.000 | 📐 252 m²
+  - 📍 Passagem — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imperdivel-terreno-no-loteamento-jardim-america-1503541048
+
+- **Terreno à venda com ótima localização no Itaguaçu**
+  - 💰 R$ 900.000 | 📐 431 m²
+  - 📍 Itaguaçu — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-otima-localizacao-no-itaguacu-1503536063
+
+- **Terreno a venda**
+  - 💰 R$ 270.000 | 📐 16000 m²
+  - 📍  — Santa Rosa de Lima
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1470120278
+
+- **Terreno em Leilão - Fundos - Biguaçu - SC**
+  - 💰 R$ 4.900.000 | 📐 21293 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-leilao-fundos-biguacu-sc-1503519045
+
+- **Terreno 44257m² - São Sebastião**
+  - 💰 R$ 502.571 | 📐 44257 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-44257m-sao-sebastiao-1503517481
+
+- **Terreno 397m² - Green Village - São Sebastião**
+  - 💰 R$ 451.243 | 📐 39737 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-397m-green-village-sao-sebastiao-1503517152
+
+- **Terreno 397m²- Green Village - Sá Sebastião**
+  - 💰 R$ 451.243 | 📐 39737 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-397m-green-village-sa-sebastiao-1503517144
+
+- **Terreno com mais de 1.300m² na Vargem Pequena, região em expansão entr**
+  - 💰 R$ 1.350.000 | 📐 77 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-mais-de-1-300m-na-vargem-pequena-regiao-em-expansao-entre-canasvieiras-e-cac-1503515066
+
+- **Terreno 569m² - São Sebastião**
+  - 💰 R$ 647.153 | 📐 56989 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-569m-sao-sebastiao-1503511223
+
+- **Terreno 459m² - Green Village - São Sebastião**
+  - 💰 R$ 521.267 | 📐 45903 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-459m-green-village-sao-sebastiao-1503510246
+
+- **Terreno 475m² - Green Village - São Sebastião**
+  - 💰 R$ 539.955 | 📐 47549 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-475m-green-village-sao-sebastiao-1503509633
+
+- **Terreno 300m² - São Sebastião - Cópia #3410 - Cópia #3411**
+  - 💰 R$ 352.249 | 📐 30000 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-sao-sebastiao-copia-3410-copia-3411-1503509731
+
+- **Sítio em Três Riachos/ Biguaçu**
+  - 💰 R$ 500.000 | 📐 52800 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-tres-riachos-biguacu-1503494730
+
+- **Terreno 344m² - São Sebastião**
+  - 💰 R$ 391.365 | 📐 34464 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-344m-sao-sebastiao-1503509152
+
+- **Terreno 300m² - São Sebastião - Cópia #3410 - Cópia #3411 - Cópia #341**
+  - 💰 R$ 352.249 | 📐 30000 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-sao-sebastiao-copia-3410-copia-3411-copia-3412-1503509170
+
+- **Terreno 300m² - São Sebastião**
+  - 💰 R$ 352.249 | 📐 30000 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-sao-sebastiao-1503509157
+
+- **Terreno 300m² - São Sebastião - Cópia #3410**
+  - 💰 R$ 352.249 | 📐 30000 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-sao-sebastiao-copia-3410-1503509153
+
+- **Terreno 426m² - São Sebastião**
+  - 💰 R$ 483.880 | 📐 42611 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-426m-sao-sebastiao-1503509158
+
+- **Terreno à venda em Jurerê Internacional**
+  - 💰 R$ 2.800.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-jurere-internacional-1503508389
+
+- **terreno 1.600m2 palmas gov celso ramos**
+  - 💰 R$ 2.000.000 | 📐 1600 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-600m2-palmas-gov-celso-ramos-1503508442
+
+- **Terreno à venda próximo ao Open Shopping**
+  - 💰 R$ 2.790.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-proximo-ao-open-shopping-1503508262
+
+- **TERRENO EM CONDOMÍNIO FECHADO codigo: 79374**
+  - 💰 R$ 980.000 | 📐 509 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-codigo-79374-1503506408
+
+- **Terreno em ótima localização no Sul da Ilha codigo: 74063**
+  - 💰 R$ 7.100.000 | 📐 30779 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-otima-localizacao-no-sul-da-ilha-codigo-74063-1503506193
+
+- **Terreno Parque Residencial Maria do Mar no bairro João Paulo codigo: 1**
+  - 💰 R$ 3.500.000 | 📐 855 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parque-residencial-maria-do-mar-no-bairro-joao-paulo-codigo-145916-1503505934
+
+- **OPORTUNIDADE NO RIO VERMELHO | TERRENO 5x12 PRONTO PARA CONSTRUIR codi**
+  - 💰 R$ 120.000 | 📐 60 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-no-rio-vermelho-terreno-5x12-pronto-para-construir-codigo-331357-1503505824
+
+- **Área ampla em Antônio Carlos, ideal para pousada, chalés ou investimen**
+  - 💰 R$ 6.500.000 | 📐 52300 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-ampla-em-antonio-carlos-ideal-para-pousada-chales-ou-investimento-turistico-codigo-1503505515
+
+- **Terreno a venda no coração de Florianópolis codigo: 57578**
+  - 💰 R$ 2.000.000 | 📐 359 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-coracao-de-florianopolis-codigo-57578-1503505483
+
+- **Terreno à venda no Parque Novo Rincão**
+  - 💰 R$ 120.000 | 📐 384 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-parque-novo-rincao-1503498309
+
+- **OPORTUNIDADE!! sitio com linda vista, 3 km do centro**
+  - 💰 R$ 220.000 | 📐 7000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-sitio-com-linda-vista-3-km-do-centro-1503486485
+
+- **Vende-se terreno escriturado com vista para o mar**
+  - 💰 R$ 600.000 | 📐 1064 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-escriturado-com-vista-para-o-mar-1503485993
+
+- **Terreno plano, medindo 360 m2**
+  - 💰 R$ 155.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-medindo-360-m2-1503482198
+
+- **Vendo inteiro ou em partes**
+  - 💰 R$ 160.000 | 📐 11301 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-inteiro-ou-em-partes-1503478079
+
+- **TERRENO À VENDA - ÓTIMA OPORTUNIDADE PARA INVESTIMENTO**
+  - 💰 R$ 239.990 | 📐 398 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-otima-oportunidade-para-investimento-1503479541
+
+- **Terreno residencial/ comercial**
+  - 💰 R$ 1.800.000 | 📐 10100 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-comercial-1503474364
+
