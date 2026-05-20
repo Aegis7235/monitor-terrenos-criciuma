@@ -89587,3 +89587,56 @@
   - 📍 Centro — Tubarão
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-1503603145
 
+
+## 🆕 10 novos anúncios — 20/05/2026 22:36
+
+- **Um Pedaço do Paraíso | 10.000 m² | Terreno com Vista Panorâmica e Cach**
+  - 💰 R$ 1.600.000 | 📐 10000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/um-pedaco-do-paraiso-10-000-m-terreno-com-vista-panoramica-e-cachoeira-exclusiva-ma-1503735659
+
+- **Paraíso de terreno pé na areia**
+  - 💰 R$ 500.000 | 📐 625 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/paraiso-de-terreno-pe-na-areia-1503734029
+
+- **Lotes com Preço Imperdível em Garopaba | Rua Pavimentada |  | 332,69m²**
+  - 💰 R$ 320.000 | 📐 330 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-com-preco-imperdivel-em-garopaba-rua-pavimentada-332-69m-330-73m-garopa-1503734085
+
+- **Terreno Cercado e Aterrado à Venda | 458,86 m² | Praia do Rosa  Imbitu**
+  - 💰 R$ 300.000 | 📐 458 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-cercado-e-aterrado-a-venda-458-86-m-praia-do-rosa-imbituba-sc-1503732928
+
+- **Terreno Exclusivo à Venda na Praia do Siriú | 562,70 m² |  Praia do Si**
+  - 💰 R$ 350.000 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-a-venda-na-praia-do-siriu-562-70-m--praia-do-siriu-garopaba-sc-1503730927
+
+- **Terreno Financiável em Região Central de Garopaba | 363,46 m² | Areias**
+  - 💰 R$ 470.000 | 📐 363 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-financiavel-em-regiao-central-de-garopaba-363-46-m-areias-de-palhocinha-gar-1503730768
+
+- **Terreno de 300 m² à Venda  Vista para as Dunas da Gamboa | Gamboinha  **
+  - 💰 R$ 185.000 | 📐 300 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300-m-a-venda-vista-para-as-dunas-da-gamboa-gamboinha-paulo-lopes-sc-1503730396
+
+- **Terreno de 880m² com Vista Panorâmica para o Mar e Lagoa à Venda  Maca**
+  - 💰 R$ 325.000 | 📐 800 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-880m-com-vista-panoramica-para-o-mar-e-lagoa-a-venda-macacu-garopaba-sc-1503727201
+
+- **Terreno com Vista Panorâmica à Venda  903 m² | Siriú  Garopaba  SC**
+  - 💰 R$ 1.495.000 | 📐 903 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-panoramica-a-venda-903-m-siriu-garopaba-sc-1503724343
+
+- **Terreno de 360 m² Regularizado e Financiável  Bairro Areias | Paulo Lo**
+  - 💰 R$ 220.000 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360-m-regularizado-e-financiavel-bairro-areias-paulo-lopes-sc-1503722829
+
