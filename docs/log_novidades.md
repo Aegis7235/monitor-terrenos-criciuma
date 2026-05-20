@@ -89536,3 +89536,31 @@
   - 📍 Centro — Antônio Carlos
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-comercial-1503474364
 
+
+## 🆕 5 novos anúncios — 20/05/2026 12:02
+
+- **Vende terreno Moura canelinha**
+  - 💰 R$ 50.000 | 📐 1085 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-terreno-moura-canelinha-1503575680
+
+- **Terreno para Venda em Imbituba, Ibiraquera**
+  - 💰 R$ 600.000 | 📐 45 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-ibiraquera-1503558925
+
+- **Terreno para Venda em Imbituba, Paes Leme**
+  - 💰 R$ 425.000 | 📐 345 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-paes-leme-1503558842
+
+- **Terreno para Venda em Imbituba, Guaiúba**
+  - 💰 R$ 180.000 | 📐 620 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-guaiuba-1503558784
+
+- **Terreno à venda no Centro de Imbituba com 330,00m²**
+  - 💰 R$ 900.000 | 📐 330 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-imbituba-com-330-00m-1503557144
+
