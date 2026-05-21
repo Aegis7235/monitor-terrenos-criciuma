@@ -90564,3 +90564,61 @@
   - 📍 Ribeirão da Ilha — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-360m-de-area-total-por-r-750-000-no-ribeirao-da-ilha-em-florianopoli-1503558410
 
+
+## 🆕 11 novos anúncios — 21/05/2026 22:28
+
+- **Estância dos Montes - OPORTUNIDADE ÚNICA! DOIS TERRENOS LADO A LADO**
+  - 💰 R$ 750.000 | 📐 700 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/estancia-dos-montes-oportunidade-unica-dois-terrenos-lado-a-lado-1504032734
+
+- **Terreno de esquina 1422m² próximo à Lagoa da Ibiraquera  Imbituba-SC  **
+  - 💰 R$ 1.376.000 | 📐 1422 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-1422m-proximo-a-lagoa-da-ibiraquera-imbituba-sc-aceita-permuta-1504029614
+
+- **Vendo terreno - Forquilha do Rio D?una, Imaruí**
+  - 💰 R$ 80.000 | 📐 450 m²
+  - 📍 Rio D'Una — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-forquilha-do-rio-d-una-imarui-1504022006
+
+- **Lote a 150 metros do mar**
+  - 💰 R$ 159.000 | 📐 300 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-150-metros-do-mar-1504018879
+
+- **Terreno bem localizado no Jardim Ultramar**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bem-localizado-no-jardim-ultramar-1504008548
+
+- **LOTE PARA VENDA NO LOTEAMENTO RICARDO BRESSAN NO MONTE CASTELO EM TUBA**
+  - 💰 R$ 125.000 | 📐 252 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-para-venda-no-loteamento-ricardo-bressan-no-monte-castelo-em-tubarao-sc-1504007131
+
+- **Terreno escriturado e pronto para financiamento no Lot. Retiro em Jagu**
+  - 💰 R$ 80.000 | 📐 324 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-e-pronto-para-financiamento-no-lot-retiro-em-jaguaruna-1504005428
+
+- **Terreno com 12,7 hectares ideal para loteamento ou empresa**
+  - 💰 R$ 4.721.000 | 📐 127600 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-12-7-hectares-ideal-para-loteamento-ou-empresa-1504005150
+
+- **Sitio em Forquilhinha com Casa de Alvenaria e Açude**
+  - 💰 R$ 650.000 | 📐 12000 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-forquilhinha-com-casa-de-alvenaria-e-acude-1504001278
+
+- **Terreno em promoção em balneário arroio do silva loteamento Belmar**
+  - 💰 R$ 76.000 | 📐 360 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-promocao-em-balneario-arroio-do-silva-loteamento-belmar-1503981973
+
+- **TERRENO DE ESQUINA COM PEQUENA CASA EM BALNEARIO ARROIO DO SILVA SC**
+  - 💰 R$ 60.000 | 📐 30 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-com-pequena-casa-em-balneario-arroio-do-silva-sc-1503962763
+
