@@ -89640,3 +89640,81 @@
   - 📍  — Paulo Lopes
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360-m-regularizado-e-financiavel-bairro-areias-paulo-lopes-sc-1503722829
 
+
+## 🆕 15 novos anúncios — 21/05/2026 07:07
+
+- **Terreno à venda em Imbituba-SC, no bairro Araçatuba, com 640,00 m² de **
+  - 💰 R$ 450.000 | 📐 640 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-sc-no-bairro-aracatuba-com-640-00-m-de-area-1503831348
+
+- **Terreno de 3000m² no Araçatuba-SC: 1 Quarto, 2 Suítes, 1 Sala, 2 Banhe**
+  - 💰 R$ 3.000.000 | 📐 3000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-3000m-no-aracatuba-sc-1-quarto-2-suites-1-sala-2-banheiros-proximo-ao-nov-1503830706
+
+- **Terreno à venda no bairro Ressacada - Garopaba/SC**
+  - 💰 R$ 320.000 | 📐 418 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ressacada-garopaba-sc-1503822685
+
+- **Terreno à venda no bairro Ressacada - Garopaba/SC**
+  - 💰 R$ 750.000 | 📐 569 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ressacada-garopaba-sc-1503822244
+
+- **Terreno em Condomínio (Praia do Silveira)**
+  - 💰 R$ 2.400.000 | 📐 1860 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-praia-do-silveira-1503809613
+
+- **Chácara com 12 Hectares à venda- Gravata/SC**
+  - 💰 R$ 3.000.000 | 📐 500 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-12-hectares-a-venda-gravata-sc-1380281148
+
+- **Terreno / Loteamento Novo**
+  - 💰 R$ 150.000 | 📐 324 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-novo-1503776883
+
+- **2 HECTARES E 1 METROS QUADRADOS. PAULO LOPES SC " BARATISSIMO E PAGAMA**
+  - 💰 R$ 95.000 | 📐 1000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-hectares-e-1-metros-quadrados-paulo-lopes-sc-baratissimo-e-pagamanto-facilitado-1503773282
+
+- **Terreno comercial à venda no Centro de Criciúma com 944,30 m²**
+  - 💰 R$ 1.200.000 | 📐 944 m²
+  - 📍 Santa Bárbara — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-a-venda-no-centro-de-criciuma-com-944-30-m-1503768770
+
+- **Terreno em Areias Claras: 300m² Pronto para Você**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-areias-claras-300m-pronto-para-voce-1503757143
+
+- **Incrível Terreno 300m² em Araranguá, SC!**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/incrivel-terreno-300m-em-ararangua-sc-1503757101
+
+- **Terreno Ideal em Village Dunas Norte, SC!**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ideal-em-village-dunas-norte-sc-1503756971
+
+- **Terreno em Balneário Gaivota próximo a sétima avenida ,no Jardim Ultra**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-gaivota-proximo-a-setima-avenida-no-jardim-ultramar-1503756990
+
+- **Terreno a 300 m do mar no Village Dunas, Ótimo Preço!**
+  - 💰 R$ 185.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-300-m-do-mar-no-village-dunas-otimo-preco-1503756970
+
+- **Terreno de 300m² em Balneário Gaivota, SC**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300m-em-balneario-gaivota-sc-1503756995
+
