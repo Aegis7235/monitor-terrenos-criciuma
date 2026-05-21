@@ -89718,3 +89718,166 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300m-em-balneario-gaivota-sc-1503756995
 
+
+## 🆕 32 novos anúncios — 21/05/2026 12:27
+
+- **Terreno na praia.**
+  - 💰 R$ 220.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-1503868179
+
+- **Terreno em Garopaba no Bairro Macacu**
+  - 💰 R$ 2.700.000 | 📐 47000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-no-bairro-macacu-1503850915
+
+- **Terreno a venda de Alto Padrão de Frente para a Represa - Condomínio E**
+  - 💰 R$ 749.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-de-alto-padrao-de-frente-para-a-represa-condominio-exclusivo-em-campo-du-1503850763
+
+- **Últimos Terrenos à venda no Loteamento Bela Vista em Imbituba.**
+  - 💰 R$ 304.953 | 📐 302 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ultimos-terrenos-a-venda-no-loteamento-bela-vista-em-imbituba-1503850738
+
+- **Terreno com 2.000 m² na Praia da Silveira com Piscina e Vista Eterna p**
+  - 💰 R$ 2.450.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2-000-m-na-praia-da-silveira-com-piscina-e-vista-eterna-para-o-mar-1503850749
+
+- **TERRENO ULTRA EXCLUSIVO NA PRAIA DA SILVEIRA ,GAROPABA | VISTA MAR PER**
+  - 💰 R$ 5.000.000 | 📐 1100 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ultra-exclusivo-na-praia-da-silveira-garopaba-vista-mar-perene-1503850741
+
+- **Terreno de 1.500 m² à Venda no Costão do Macacu - Garopaba/SC**
+  - 💰 R$ 470.000 | 📐 1503 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1-500-m-a-venda-no-costao-do-macacu-garopaba-sc-1503850723
+
+- **Terrenos à venda em Imaruí com 20.000 m² (2 hectares) - Villa Nature**
+  - 💰 R$ 479.900 | 📐 20000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-em-imarui-com-20-000-m-2-hectares-villa-nature-1503850735
+
+- **Terreno com 504 m² no Costão do Macacú em Garopaba SC**
+  - 💰 R$ 449.000 | 📐 504 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-504-m-no-costao-do-macacu-em-garopaba-sc-1503850733
+
+- **Lote à venda no Reserva do Lago com 300m²**
+  - 💰 R$ 340.425 | 📐 300 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-reserva-do-lago-com-300m-1503850694
+
+- **Terreno à venda na Ibiraquera, em Imbituba SC com 1.493m2 por R$ 950.0**
+  - 💰 R$ 950.000 | 📐 1493 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-ibiraquera-em-imbituba-sc-com-1-493m2-por-r-950-000-1503850564
+
+- **Terreno à Venda em Ibiraquera - Praia do Rosa, SC**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-ibiraquera-praia-do-rosa-sc-1503850565
+
+- **Terreno com 71.799 m² em Nova Brasília - Imbituba SC**
+  - 💰 R$ 4.400.000 | 📐 71799 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-71-799-m-em-nova-brasilia-imbituba-sc-1503850567
+
+- **Terreno em Loteamento Exclusivo - Beira da Lagoa | Areias da Palhocinh**
+  - 💰 R$ 439.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-exclusivo-beira-da-lagoa-areias-da-palhocinha-garopaba-sc-1503850544
+
+- **Terreno com vista eterna ao mar, com 1.000 m², no Morro das Antenas ba**
+  - 💰 R$ 2.100.000 | 📐 1000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-eterna-ao-mar-com-1-000-m-no-morro-das-antenas-bairro-ferraz-garopab-1503850552
+
+- **Terreno de esquina no alto do Jardim Panorâmico em Garopaba SC, com 1.**
+  - 💰 R$ 5.100.000 | 📐 1360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-alto-do-jardim-panoramico-em-garopaba-sc-com-1-360-m-com-vista-pa-1503850556
+
+- **Terreno á venda em Garopaba com vista para o mar, serra e lagoa no Mor**
+  - 💰 R$ 550.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-com-vista-para-o-mar-serra-e-lagoa-no-morro-da-ferrugem-1503850560
+
+- **Terreno a venda em condomínio na Praia do rosa**
+  - 💰 R$ 400.000 | 📐 489 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-na-praia-do-rosa-1503850559
+
+- **Terrenos a venda em Imbituba a 100m do Mar**
+  - 💰 R$ 327.768 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-em-imbituba-a-100m-do-mar-1503850542
+
+- **FAZENDA COM MAR, LAGOA, DUNAS E MONTANHAS.**
+  - 💰 R$ 49.000.000 | 📐 4859890 m²
+  - 📍 Camacho — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-com-mar-lagoa-dunas-e-montanhas-1503850478
+
+- **Terreno Exclusivo em Garopaba com Vista Panorâmica da montanha**
+  - 💰 R$ 550.000 | 📐 3242 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-em-garopaba-com-vista-panoramica-da-montanha-1503850440
+
+- **Crédito Real vende casa em Garopaba no alto do morro da Encantada com **
+  - 💰 R$ 1.580.000 | 📐 160 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/credito-real-vende-casa-em-garopaba-no-alto-do-morro-da-encantada-com-vista-permanente-1503850424
+
+- **Terreno è venda na Areias da Palhocinha em Garopaba**
+  - 💰 R$ 426.000 | 📐 361 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-na-areias-da-palhocinha-em-garopaba-1503850414
+
+- **Terreno à Venda com vista pro mar no Saco da Cobra - Morro da Ferrugem**
+  - 💰 R$ 1.500.000 | 📐 1160 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-vista-pro-mar-no-saco-da-cobra-morro-da-ferrugem-com-1-160-m-1503850444
+
+- **Invista no Paraíso do Surf em Santa Catarina - Praia da Ferrugem**
+  - 💰 R$ 1.275.000 | 📐 374 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/invista-no-paraiso-do-surf-em-santa-catarina-praia-da-ferrugem-1503850417
+
+- **Terreno á venda em Garopaba com 4.871 m2 no bairro Encantada**
+  - 💰 R$ 3.000.000 | 📐 4871 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-com-4-871-m2-no-bairro-encantada-1503850438
+
+- **Terreno á venda em Garopaba com 1.800 m2, na Encantada.**
+  - 💰 R$ 536.000 | 📐 1200 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-com-1-800-m2-na-encantada-1503850415
+
+- **Terreno á venda em Garopaba com 1.800 m2, na Encantada.**
+  - 💰 R$ 800.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-com-1-800-m2-na-encantada-1503850403
+
+- **Terreno à venda em Garopaba com 360,10 m²**
+  - 💰 R$ 494.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-com-360-10-m-1503850396
+
+- **Terreno à venda com vista panorâmica para o mar na Praia do Silveira e**
+  - 💰 R$ 9.400.000 | 📐 7524 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-vista-panoramica-para-o-mar-na-praia-do-silveira-em-garopaba-1503850407
+
+- **Terreno no Ambrósio em Garopaba SC**
+  - 💰 R$ 430.000 | 📐 557 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-ambrosio-em-garopaba-sc-1503850411
+
+- **Terreno no Ambrósio em Garopaba SC**
+  - 💰 R$ 420.000 | 📐 566 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-ambrosio-em-garopaba-sc-1503850389
+
