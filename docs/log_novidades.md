@@ -91215,3 +91215,26 @@
   - 📍 Vargem do Bom Jesus — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-vargem-grande-com-450m-ideal-para-construcao-1503761743
 
+
+## 🆕 4 novos anúncios — 22/05/2026 11:57
+
+- **Terreno Comercial de 6.010,00m² à venda no Morretes em Tijucas**
+  - 💰 R$ 2.705.500 | 📐 6010 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-de-6-010-00m-a-venda-no-morretes-em-tijucas-1504118873
+
+- **Terreno / Lote Comercial 1.000m² - Criciúma/SC**
+  - 💰 R$ 410.000 | 📐 1000 m²
+  - 📍 Universitário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-comercial-1-000m-criciuma-sc-1504117891
+
+- **Loteamento Varsóvia, Criciúma/SC**
+  - 💰 R$ 95.400 | 📐 360 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-varsovia-criciuma-sc-1504117442
+
+- **Loteamento Torre di Campana Residenziale, em Nova Veneza/SC**
+  - 💰 R$ 168.500 | 📐 565 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-torre-di-campana-residenziale-em-nova-veneza-sc-1504117392
+
