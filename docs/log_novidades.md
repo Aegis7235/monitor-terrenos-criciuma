@@ -91500,3 +91500,31 @@
 
 ## ✅ Sem novidades — 23/05/2026 10:33
 
+
+## 🆕 5 novos anúncios — 23/05/2026 22:09
+
+- **Terreno 2 hectares NASCENTE em Paulo Lopes - 2km da BR 101**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-hectares-nascente-em-paulo-lopes-2km-da-br-101-1504504806
+
+- **OPORTUNIDADE ÚNICA EM PAULO LOPES  TERRENO PLANO DE 532m² NO BAIRRO FR**
+  - 💰 R$ 185.000 | 📐 532 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-paulo-lopes-terreno-plano-de-532m-no-bairro-freitas-1504469339
+
+- **Terreno no Condomínio Náutico Hookipa com vista para Lagoa de Ibiraque**
+  - 💰 R$ 690.000 | 📐 600 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-nautico-hookipa-com-vista-para-lagoa-de-ibiraquera-1504466899
+
+- **Lotes à Venda no Novo Loteamento de Tijucas**
+  - 💰 R$ 337.717 | 📐 250 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-a-venda-no-novo-loteamento-de-tijucas-1504396697
+
+- **Sítio em Alfredo Wagner**
+  - 💰 R$ 600.000 | 📐 40000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-1504367463
+
