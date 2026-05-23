@@ -91429,3 +91429,71 @@
 
 ## ✅ Sem novidades — 22/05/2026 22:14
 
+
+## 🆕 13 novos anúncios — 23/05/2026 06:20
+
+- **Terreno Loteamento Parque das Figueiras**
+  - 💰 R$ 190.000 | 📐 415 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-parque-das-figueiras-1504222473
+
+- **TERRENO 5.000m² EM PAULO LOPES  PLANO, ASFALTO, NASCENTE E ÓTIMA LOCAL**
+  - 💰 R$ 399.999 | 📐 5000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-5-000m-em-paulo-lopes-plano-asfalto-nascente-e-otima-localizacao-1504324580
+
+- **OPORTUNIDADE! Lote em Paulo Lopes com Energia Ligada  Apenas R$ 115 Mi**
+  - 💰 R$ 115.000 | 📐 375 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-lote-em-paulo-lopes-com-energia-ligada-apenas-r-115-mil-1504324443
+
+- **Terreno à venda em Vila São Jorge, Siderópolis**
+  - 💰 R$ 130.000 | 📐 433 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-vila-sao-jorge-sideropolis-1504316635
+
+- **Terreno para Venda em Paulo Lopes, Freitas**
+  - 💰 R$ 189.900 | 📐 532 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-paulo-lopes-freitas-1504311017
+
+- **Terreno de 360m² à Venda em Imbituba- Região Tranquila e Valorizada**
+  - 💰 R$ 145.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360m-a-venda-em-imbituba-regiao-tranquila-e-valorizada-1504295440
+
+- **Terreno de Esquina Amplo em Passo de Torres  Bairro Bella Torres**
+  - 💰 R$ 200.000 | 📐 12 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-amplo-em-passo-de-torres-bairro-bella-torres-1504282033
+
+- **vendo sitio...**
+  - 💰 R$ 200.000 | 📐 10000 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-1504269704
+
+- **Terreno frente norte bairro Nova Torres**
+  - 💰 R$ 60.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-norte-bairro-nova-torres-1504278110
+
+- **Terreno na praia do rosa**
+  - 💰 R$ 380.000 | 📐 513 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-do-rosa-1504273134
+
+- **Terreno de 345 m² à Venda  Bom Retiro | Paulo Lopes/SC | Apenas R$160.**
+  - 💰 R$ 160.000 | 📐 345 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-345-m-a-venda-bom-retiro-paulo-lopes-sc-apenas-r-160-000-00-1504263501
+
+- **Vendo Terreno, no Balneário Camacho, medindo 12X30, A 300 metros da Pr**
+  - 💰 R$ 55.000 | 📐 360 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-balneario-camacho-medindo-12x30-a-300-metros-da-praia-1504228219
+
+- **Terreno localizado no bairro Nova Torres, Balneário Gaivota/SC**
+  - 💰 R$ 79.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-no-bairro-nova-torres-balneario-gaivota-sc-1504278240
+
