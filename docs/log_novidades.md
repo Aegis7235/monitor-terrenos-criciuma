@@ -91528,3 +91528,46 @@
   - 📍  — Alfredo Wagner
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-1504367463
 
+
+## 🆕 8 novos anúncios — 24/05/2026 06:47
+
+- **Terreno comercial - loteamento Reserva do Lago**
+  - 💰 R$ 374.000 | 📐 404 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-loteamento-reserva-do-lago-1504555349
+
+- **Terreno à venda no bairro Praia do Rosa - Imbituba/SC**
+  - 💰 R$ 310.000 | 📐 318 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-praia-do-rosa-imbituba-sc-1504550333
+
+- **Terreno à Venda Praia do Rosa**
+  - 💰 R$ 350.000 | 📐 415 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-praia-do-rosa-1504550213
+
+- **"Invista em Terreno na Tranquila Village Dunas"**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/invista-em-terreno-na-tranquila-village-dunas-1504517404
+
+- **Casa com 3 quartos à venda no Comerciário, Criciúma**
+  - 💰 R$ 1.150.000 | 📐 270 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-criciuma-comerciario-420m2-RS1150000/id-26166482/
+
+- **Oportunidade Única em CRICIUMA - SC | Tipo: Casa | Negociação: Leilão **
+  - 💰 R$ 180.000 | 📐 137 m²
+  - 📍 São Sebastião — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-criciuma-sao-sebastiao-61m2-RS180000/id-42196823/
+
+- **3 dormitórios perto do Centro, no bairro Operária Nova em Criciuma**
+  - 💰 R$ 340.000 | 📐 131 m²
+  - 📍 Operária Nova — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-criciuma-operaria-nova-312m2-RS340000/id-40308742/
+
+- **Aceita apartamento na negociação - Casa no bairro Cristo Rei**
+  - 💰 R$ 790.000 | 📐 240 m²
+  - 📍 Cristo Rei — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-icara-cristo-rei-RS790000/id-32434430/
+
