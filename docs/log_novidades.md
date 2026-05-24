@@ -91574,3 +91574,26 @@
 
 ## ✅ Sem novidades — 24/05/2026 10:47
 
+
+## 🆕 4 novos anúncios — 24/05/2026 16:14
+
+- **Terreno aterrado praia do sol.**
+  - 💰 R$ 248.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-aterrado-praia-do-sol-1504610955
+
+- **Sítio de Alto Padrão em atividade (pousada) - 5 hectares com vista pan**
+  - 💰 R$ 789.000 | 📐 50000 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-alto-padrao-em-atividade-pousada-5-hectares-com-vista-panoramica-1504571726
+
+- **Vendo sítio em Orleas na brusque**
+  - 💰 R$ 650.000 | 📐 ? m²
+  - 📍  — Orleans
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-orleas-na-brusque-1504547081
+
+- **Terreno para Venda em Imbituba, Campo D´AVIAÇÃO**
+  - 💰 R$ 350.000 | 📐 361 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-campo-d-aviacao-1504561311
+
