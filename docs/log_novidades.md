@@ -92303,3 +92303,121 @@
 
 ## ✅ Sem novidades — 25/05/2026 07:22
 
+
+## 🆕 23 novos anúncios — 25/05/2026 12:47
+
+- **Terreno 19x1148**
+  - 💰 R$ 600.000 | 📐 21800 m²
+  - 📍 Passagem — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-19x1148-1504777558
+
+- **Terreno 6x30 - Montenegro Marine (Biguaçu/SC) - R$260 mil ou entrada +**
+  - 💰 R$ 260.000 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-6x30-montenegro-marine-biguacu-sc-r-260-mil-ou-entrada-1900-mes-1504764893
+
+- **Terreno de leilão em AREIAS DO MEIO / GOVERNADOR CELSO RAMOS / SC | Le**
+  - 💰 R$ 187.000 | 📐 359 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-areias-do-meio-governador-celso-ramos-sc-leilao-sfi-edital-un-1504744557
+
+- **Vendo terreno**
+  - 💰 R$ 850.000 | 📐 8003 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1504743104
+
+- **Terreno para Venda em Florianópolis, Campeche**
+  - 💰 R$ 5.250.000 | 📐 1105 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-campeche-1504742376
+
+- **SITIO EM SANTO AMARO**
+  - 💰 R$ 2.800.000 | 📐 18862 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-santo-amaro-1504738647
+
+- **Lindo Hotel fazenda**
+  - 💰 R$ 6.000.000 | 📐 30000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-hotel-fazenda-1504738610
+
+- **Sítio à venda em Ratones - Florianópolis/SC**
+  - 💰 R$ 2.500.000 | 📐 100 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-ratones-florianopolis-sc-1504738518
+
+- **Terreno 360 metros**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360-metros-1504724826
+
+- **Terreno em Imbituba em loteamento pronto para construir**
+  - 💰 R$ 154.000 | 📐 428 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-em-loteamento-pronto-para-construir-1504719259
+
+- **Vendo sítio**
+  - 💰 R$ 300.000 | 📐 ? m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-1504684947
+
+- **Vendo terreno em Ararangua ou troco por casa ou terreno na palhoça**
+  - 💰 R$ 130.000 | 📐 1 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-ararangua-ou-troco-por-casa-ou-terreno-na-palhoca-1504699039
+
+- **Terreno loteamento três caminhos tubarão  sc**
+  - 💰 R$ 130.000 | 📐 252 m²
+  - 📍 Santa Luzia — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-tres-caminhos-tubarao-sc-1504698066
+
+- **Vende-se lote Pedras Grandes-SC**
+  - 💰 R$ 160.000 | 📐 432 m²
+  - 📍  — Pedras Grandes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-lote-pedras-grandes-sc-1504694253
+
+- **LINDO SÍTIO COM PISCINA E AÇUDE**
+  - 💰 R$ 1.300.000 | 📐 3000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-com-piscina-e-acude-1504691803
+
+- **Jazigo**
+  - 💰 R$ 12.500 | 📐 1 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jazigo-1504692241
+
+- **Terreno de 720m² na Praia Brava, Florianópolis.**
+  - 💰 R$ 1.600.000 | 📐 720 m²
+  - 📍 Praia Brava — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-720m-na-praia-brava-florianopolis-1504689667
+
+- **Vendo terreno escriturado a 600 mts da praia!**
+  - 💰 R$ 62.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-escriturado-a-600-mts-da-praia-1504685411
+
+- **TERRENO COM 360,00 METROS, 12,00 X 30,00 EM AREIAS**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360-00-metros-12-00-x-30-00-em-areias-1503569561
+
+- **TERRENO PLANO COM 300,00 M² EM SÃO JOSÉ**
+  - 💰 R$ 585.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-com-300-00-m-em-sao-jose-1503568514
+
+- **Sítio para Venda em Alfredo Wagner, Limeira, 3 dormitórios, 1 banheiro**
+  - 💰 R$ 849.000 | 📐 61235 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-alfredo-wagner-limeira-3-dormitorios-1-banheiro-5-vagas-1504774972
+
+- **Oportunidade Única em URUSSANGA - SC | Tipo: Terreno | Negociação: Lei**
+  - 💰 R$ 210.414 | 📐 507 m²
+  - 📍 De Villa — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-urussanga-de-villa-50m2-RS210414/id-42960224/
+
+- **Oportunidade Única em MORRO DA FUMACA - SC | Tipo: Terreno | Negociaçã**
+  - 💰 R$ 187.000 | 📐 390 m²
+  - 📍 Maccari — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-morro-da-fumaca-maccari-50m2-RS187000/id-42960194/
+
