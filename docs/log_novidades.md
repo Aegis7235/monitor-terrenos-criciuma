@@ -92421,3 +92421,56 @@
   - 📍 Maccari — Morro da Fumaça
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-morro-da-fumaca-maccari-50m2-RS187000/id-42960194/
 
+
+## 🆕 10 novos anúncios — 25/05/2026 17:15
+
+- **BOSQUE TUBARÃO - SÃO CLEMENTE - TUBARÃO/SC**
+  - 💰 R$ 125.000 | 📐 310 m²
+  - 📍 São Clemente — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/bosque-tubarao-sao-clemente-tubarao-sc-1504866169
+
+- **Sitio 2 alqueires**
+  - 💰 R$ 360.000 | 📐 48400 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-2-alqueires-1504865378
+
+- **Venda-Terreno-Imbituba-Sambaqui**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-sambaqui-1504864830
+
+- **Venda-Terreno-Imbituba-Village**
+  - 💰 R$ 477.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-village-1504864640
+
+- **Venda-Terreno-Imaruí-Forquilha do Rio Duna**
+  - 💰 R$ 150.000 | 📐 20000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imarui-forquilha-do-rio-duna-1504864659
+
+- **Terreno com matrícula próximo ao centrinho da Praia do Rosa**
+  - 💰 R$ 690.000 | 📐 715 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-matricula-proximo-ao-centrinho-da-praia-do-rosa-1504860329
+
+- **Terreno de esquina - Escriturado**
+  - 💰 R$ 140.000 | 📐 424 m²
+  - 📍 Primeira Linha Pontilhão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-escriturado-1504848275
+
+- **Casa de chácara em condomínio**
+  - 💰 R$ 290.000 | 📐 384 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-chacara-em-condominio-1504830801
+
+- **LOTE À VENDA  360,00m² - ALTOS DE SANTA HELENA | TIJUCAS/SC**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-venda-360-00m-altos-de-santa-helena-tijucas-sc-1504790366
+
+- **Terreno para Venda em Tijucas, Centro**
+  - 💰 R$ 873.855 | 📐 450 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-tijucas-centro-1504778504
+
