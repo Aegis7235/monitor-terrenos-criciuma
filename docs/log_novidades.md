@@ -92887,3 +92887,471 @@
   - 📍 Guarda do Cubatão — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-palhoca-guarda-do-cubatao-1504774523
 
+
+## 🆕 93 novos anúncios — 26/05/2026 07:02
+
+- **Terreno à venda, 15000 m² por R$ 390.000 - Taquaraçutuba - Imaruí/SC**
+  - 💰 R$ 390.000 | 📐 15000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-15000-m-por-r-390-000-taquaracutuba-imarui-sc-1505033653
+
+- **Terreno em Garopaba do sul jaguaruna**
+  - 💰 R$ 32.000 | 📐 350 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-do-sul-jaguaruna-1505024210
+
+- **Terreno em Garopaba, nos morrinhos**
+  - 💰 R$ 2.350.000 | 📐 560 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-nos-morrinhos-1505017672
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 567.116 | 📐 466 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504999254
+
+- **Vendo lote**
+  - 💰 R$ 48.000 | 📐 220 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-1504997500
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 488.670 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504997632
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 518.086 | 📐 461 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504996659
+
+- **Terreno à venda em Vila Nova, Imbituba**
+  - 💰 R$ 490.000 | 📐 700 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-vila-nova-imbituba-1504996701
+
+- **Terreno à venda Nova Brasília**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-nova-brasilia-1504996939
+
+- **Chácara com 2 chalés!**
+  - 💰 R$ 499.000 | 📐 110 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-2-chales-1504996471
+
+- **Terreno no Reserva do Lago - Imbituba/SC**
+  - 💰 R$ 275.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-reserva-do-lago-imbituba-sc-1504995891
+
+- **Terreno vista mar**
+  - 💰 R$ 400.000 | 📐 628 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vista-mar-1504996100
+
+- **Terreno à Venda no Bairro Encantada - Garopaba/SC**
+  - 💰 R$ 450.000 | 📐 880 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-encantada-garopaba-sc-1504995913
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 439.641 | 📐 323 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995893
+
+- **Terreno à venda na Gamboa em Garopaba**
+  - 💰 R$ 2.900.000 | 📐 6667 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-gamboa-em-garopaba-1504995894
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 414.739 | 📐 354 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995906
+
+- **Terreno amplo à venda em Garopaba!!!**
+  - 💰 R$ 480.000 | 📐 375 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-a-venda-em-garopaba-1504995915
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 507.410 | 📐 394 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995812
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 459.251 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995418
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 459.251 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995710
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 461.600 | 📐 303 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995532
+
+- **Terreno à venda Itapiruba Norte**
+  - 💰 R$ 540.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-itapiruba-norte-1504995405
+
+- **Terreno à Venda em Garopaba- Praia da Ferrugem**
+  - 💰 R$ 4.800.000 | 📐 9830 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-praia-da-ferrugem-1504995240
+
+- **Terreno Areias de Palhocinha- Garopaba/SC**
+  - 💰 R$ 429.000 | 📐 368 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-areias-de-palhocinha-garopaba-sc-1504995521
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 694.591 | 📐 602 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995522
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 459.251 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995275
+
+- **Terreno amplo as margens do Rio Araçatuba**
+  - 💰 R$ 2.800.000 | 📐 73138 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-as-margens-do-rio-aracatuba-1504995128
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 382.347 | 📐 373 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995203
+
+- **Terreno no Bosque Imbituba, Sambaqui!**
+  - 💰 R$ 130.000 | 📐 387 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bosque-imbituba-sambaqui-1504995401
+
+- **Terreno em Itapiruba, Imbituba**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-itapiruba-imbituba-1504995296
+
+- **Área à venda no Village em Imbituba**
+  - 💰 R$ 650.000 | 📐 643 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-a-venda-no-village-em-imbituba-1504995307
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 557.311 | 📐 437 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995211
+
+- **Sítio à venda em Garopaba - Ressacada**
+  - 💰 R$ 800.000 | 📐 100 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-garopaba-ressacada-1504995244
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 478.865 | 📐 323 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995267
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 478.865 | 📐 323 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995314
+
+- **Chácara à venda em Paulo Lopes - SC**
+  - 💰 R$ 650.000 | 📐 170 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-em-paulo-lopes-sc-1504995207
+
+- **Terrenos em Vila Nova, Imbituba!**
+  - 💰 R$ 1.500.000 | 📐 1200 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-vila-nova-imbituba-1504995208
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 488.670 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995266
+
+- **Terreno Rural em Imaruí - Oportunidade Única**
+  - 💰 R$ 450.000 | 📐 136 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-em-imarui-oportunidade-unica-1504995241
+
+- **Terreno no Reserva do Lago - Imbituba/SC**
+  - 💰 R$ 275.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-reserva-do-lago-imbituba-sc-1504995242
+
+- **Terreno à venda em Garopaba - Ressacada**
+  - 💰 R$ 1.000.000 | 📐 27094 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-ressacada-1504995006
+
+- **TERRENO NO BAIRRO MIRIM À VENDA**
+  - 💰 R$ 330.000 | 📐 25 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-mirim-venda-1504995215
+
+- **Terreno à venda em Guaiuba, Imbituba!**
+  - 💰 R$ 1.600.000 | 📐 14000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-guaiuba-imbituba-1504995202
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 567.116 | 📐 468 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995222
+
+- **Terreno marginal da BR 101**
+  - 💰 R$ 570.000 | 📐 2162 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-marginal-da-br-101-1504995036
+
+- **Sítio à Venda no bairro Tamborete-Imaruí/SC**
+  - 💰 R$ 295.000 | 📐 60 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-tamborete-imarui-sc-1504994928
+
+- **Terreno à venda no Arroio, Imbituba!!**
+  - 💰 R$ 290.000 | 📐 982 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-arroio-imbituba-1504994934
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 459.251 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504995035
+
+- **Sítio à venda em Imaruí - Figueira Grande**
+  - 💰 R$ 250.000 | 📐 100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-imarui-figueira-grande-1504995020
+
+- **Terreno no Condomínio Ho'okipa no Arroio**
+  - 💰 R$ 420.000 | 📐 580 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-ho-okipa-no-arroio-1504995005
+
+- **Terreno com vista privilegiada em Garopaba**
+  - 💰 R$ 1.590.000 | 📐 2640 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-privilegiada-em-garopaba-1504995007
+
+- **Terreno esquina**
+  - 💰 R$ 1.376.000 | 📐 1422 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-1504995014
+
+- **Terreno às margens da BR 101 Imbituba**
+  - 💰 R$ 5.000.000 | 📐 5200 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-as-margens-da-br-101-imbituba-1504994925
+
+- **Terreno à venda em Imbituba - Penha!**
+  - 💰 R$ 4.700.000 | 📐 73144 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-penha-1504994915
+
+- **Terreno à venda no Bairro Ribanceira, Imbituba**
+  - 💰 R$ 360.000 | 📐 327 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-ribanceira-imbituba-1504994942
+
+- **Terreno na Reserva do Lago em Imbituba!**
+  - 💰 R$ 300.000 | 📐 303 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-reserva-do-lago-em-imbituba-1504994932
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 410.607 | 📐 322 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504994810
+
+- **Sítio à venda em Nova Brasília, Imbituba**
+  - 💰 R$ 6.000.000 | 📐 120 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-nova-brasilia-imbituba-1504994818
+
+- **Chácara beira da lagoa em Imaruí**
+  - 💰 R$ 380.000 | 📐 70 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-beira-da-lagoa-em-imarui-1504994813
+
+- **Terreno em Guaiúba, Imbituba**
+  - 💰 R$ 200.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-guaiuba-imbituba-1504994814
+
+- **Terreno à venda em Garopaba - Encantada!**
+  - 💰 R$ 4.000.000 | 📐 34900 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-encantada-1504994815
+
+- **Terreno Industrial em Nova Brasília, Imbituba!!!**
+  - 💰 R$ 7.400.000 | 📐 525 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-em-nova-brasilia-imbituba-1504994819
+
+- **Terreno 2 frentes na Praia de Itapirubá Sul-Laguna**
+  - 💰 R$ 250.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-frentes-na-praia-de-itapiruba-sul-laguna-1504994758
+
+- **Terreno na Reserva do Lago em Imbituba**
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-reserva-do-lago-em-imbituba-1504994720
+
+- **Terreno na Reserva do Lago em Imbituba/SC!!!**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-reserva-do-lago-em-imbituba-sc-1504994731
+
+- **Lote à Venda em Imbituba - Excelente Localização!**
+  - 💰 R$ 330.000 | 📐 501 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-em-imbituba-excelente-localizacao-1504994732
+
+- **Terreno em Loteamento à Venda no Bairro Village**
+  - 💰 R$ 459.251 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-no-bairro-village-1504994544
+
+- **Excelente Terreno a Venda em Guaiúba**
+  - 💰 R$ 950.000 | 📐 9600 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-a-venda-em-guaiuba-1504994619
+
+- **Terreno à venda Nova Brasília, Imbituba**
+  - 💰 R$ 1.700.000 | 📐 1000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-nova-brasilia-imbituba-1504989036
+
+- **Terreno à venda em Imbituba - Vilage**
+  - 💰 R$ 490.000 | 📐 462 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-vilage-1504988490
+
+- **Area a venda de 4,000 m2 na região em Imbituba**
+  - 💰 R$ 650.000 | 📐 4000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-a-venda-de-4-000-m2-na-regiao-em-imbituba-1504988485
+
+- **Vendo Lote em Forquilhinha**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-em-forquilhinha-1504979555
+
+- **TERRENO COM 800M² E VITA PARA O MAR E LAGOA.**
+  - 💰 R$ 158.000 | 📐 800 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-800m-e-vita-para-o-mar-e-lagoa-1504972901
+
+- **Imóvel para venda possui 35000 metros quadrados com 3 quartos em Aguas**
+  - 💰 R$ 365.000 | 📐 35000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-35000-metros-quadrados-com-3-quartos-em-aguas-frias-alfredo-wag-1504967366
+
+- **TERRENO - JOÁIA LOTEAMENTO RESIDENCIAL LEMOS II**
+  - 💰 R$ 280.000 | 📐 403 m²
+  - 📍 Joáia — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-joaia-loteamento-residencial-lemos-ii-1504960173
+
+- **TERRENO - JOÁIA LOTEAMENTO RESIDENCIAL LEMOS II**
+  - 💰 R$ 280.000 | 📐 465 m²
+  - 📍 Joáia — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-joaia-loteamento-residencial-lemos-ii-1504960120
+
+- **TERRENO - JOÁIA LOTEAMENTO RESIDENCIAL LEMOS II**
+  - 💰 R$ 280.000 | 📐 412 m²
+  - 📍 Joáia — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-joaia-loteamento-residencial-lemos-ii-1504960131
+
+- **Oportunidade Única: Terreno 150m do Mar, em Areias Claras, Balneário G**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-150m-do-mar-em-areias-claras-balneario-gaivota-sc-1504959057
+
+- **Terreno à venda em Paulo Lopes-SC, bairro Santa Rita, 2.000m² de área!**
+  - 💰 R$ 318.000 | 📐 2000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-paulo-lopes-sc-bairro-santa-rita-2-000m-de-area-confira-ja-1505042253
+
+- **Casa com 2 quartos à venda no Argentina, Criciúma**
+  - 💰 R$ 1.099.000 | 📐 162 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-criciuma-argentina-162m2-RS1099000/id-38789531/
+
+- **Casa em Condomínio para Venda em Criciúma, São Luiz, 3 dormitórios, 3 **
+  - 💰 R$ 3.000.000 | 📐 340 m²
+  - 📍 São Luiz — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-3-quartos-com-garagem-sc-criciuma-sao-luiz-RS3000000/id-32289156/
+
+- **Casa Praia do Rincão - 2 dormitórios - Bem Arejada - Pronta para morar**
+  - 💰 R$ 415.000 | 📐 93 m²
+  - 📍 Balneário Rincão — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-balneario-rincao-288m2-RS415000/id-35763447/
+
+- **Casa com 3 quartos à venda em Aurora, Içara**
+  - 💰 R$ 1.400.000 | 📐 ? m²
+  - 📍 Aurora — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-icara-aurora-RS1400000/id-28603130/
+
+- **Chácara / sítio com 3 quartos à venda no Caverazinho, Araranguá , 130 **
+  - 💰 R$ 1.200.000 | 📐 130 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-ararangua-caverazinho-10m2-RS1200000/id-42994109/
+
+- **Casa com 3 quartos à venda na Avenida Getúlio Vargas, 3, Coloninha, Ar**
+  - 💰 R$ 430.000 | 📐 408 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-coloninha-408m2-RS430000/id-34542091/
+
+- **Casa para Venda em Sombrio, São Camilo, 2 dormitórios, 1 suíte, 1 banh**
+  - 💰 R$ 1.300.000 | 📐 605 m²
+  - 📍 São Camilo — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-sao-camilo-605m2-RS1300000/id-25603137/
+
+- **Casa para Venda em Sombrio, Centro, 3 dormitórios, 1 suíte, 2 banheiro**
+  - 💰 R$ 600.000 | 📐 348 m²
+  - 📍 Centro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-sombrio-centro-348m2-RS600000/id-25603035/
+
+- **Casa com 3 quartos à venda na Bela Torres, Passo de Torres**
+  - 💰 R$ 870.000 | 📐 145 m²
+  - 📍 Bela Torres — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-passo-de-torres-bela-torres-145m2-RS870000/id-36960272/
+
+- **Casa em condomínio fechado com 5 quartos à venda no Centro, Passo de T**
+  - 💰 R$ 5.042.520 | 📐 364 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-em-condominio-a-venda-5-quartos-com-garagem-sc-passo-de-torres-centro-364m2-RS5042520/id-32414245/
+
+- **Casa com 2 quartos à venda na Rua Loteamento Do Sol, 906, Balneário Ro**
+  - 💰 R$ 499.500 | 📐 95 m²
+  - 📍 Balneário Rosa do Mar — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-passo-de-torres-balneario-rosa-do-mar-110m2-RS499500/id-39609506/
+
+- **Casa à Venda – Bairro Jardim Ultramar, Balneário Gaivota/SC**
+  - 💰 R$ 255.000 | 📐 300 m²
+  - 📍 Jardim Ultramar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-balneario-gaivota-jardim-ultramar-RS255000/id-33288813/
+
+- **Sobrado para Venda em Balneário Gaivota, Jardim Ultramar, 3 dormitório**
+  - 💰 R$ 700.000 | 📐 300 m²
+  - 📍 Jardim Ultramar — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-gaivota-jardim-ultramar-300m2-RS700000/id-26459520/
+
+- **Casa com 2 quartos à venda na Lagoa dos Freitas, Balneário Rincão**
+  - 💰 R$ 399.000 | 📐 180 m²
+  - 📍 Lagoa dos Freitas — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-rincao-lagoa-dos-freitas-180m2-RS399000/id-36351740/
+
