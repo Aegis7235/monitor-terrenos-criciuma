@@ -93798,3 +93798,61 @@
   - 📍 Campo Bom — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-jaguaruna-campo-bom-325m2-RS400000/id-42813123/
 
+
+## 🆕 11 novos anúncios — 26/05/2026 22:34
+
+- **Terreno 3.500m² para Chacára a 2km da BR 101 - Sitio em Paulo Lopes**
+  - 💰 R$ 350.000 | 📐 3500 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-3-500m-para-chacara-a-2km-da-br-101-sitio-em-paulo-lopes-1505228724
+
+- **Terreno 3.000m² para Chacara em Paulo Lopes - Sitio**
+  - 💰 R$ 350.000 | 📐 3000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-3-000m-para-chacara-em-paulo-lopes-sitio-1505228707
+
+- **OPORTUNIDADE EM AREIAS CLARAS  A POUCOS PASSOS DO MAR**
+  - 💰 R$ 152.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-areias-claras-a-poucos-passos-do-mar-1505220161
+
+- **Terreno com rio**
+  - 💰 R$ 740.000 | 📐 2800 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-rio-1505216230
+
+- **Condomínio Reserva Home Club, Tubarão /SC**
+  - 💰 R$ 789.000 | 📐 400 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-reserva-home-club-tubarao-sc-1505215662
+
+- **Loteamento Altos de Santa Helena. Tijucas/SC**
+  - 💰 R$ 265.000 | 📐 252 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-altos-de-santa-helena-tijucas-sc-1505215642
+
+- **Loteamento Altos de Santa helena. Parcelamento direto Tijucas/SC**
+  - 💰 R$ 279.000 | 📐 360 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-altos-de-santa-helena-parcelamento-direto-tijucas-sc-1505215648
+
+- **Loteamento Morro dos Conventos, Araranguá / SC**
+  - 💰 R$ 312.000 | 📐 431 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-morro-dos-conventos-ararangua-sc-1505215591
+
+- **Loteamento Belvedere, parcelamento direto , São Ludgero / SC**
+  - 💰 R$ 131.000 | 📐 275 m²
+  - 📍  — São Ludgero
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-belvedere-parcelamento-direto-sao-ludgero-sc-1505215564
+
+- **OPORTUNIDADE EXCLUSIVA - TERRRENO EM CHÁCARA/CONDOMÍNIO FECHADO EM TIJ**
+  - 💰 R$ 200.000 | 📐 600 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-exclusiva-terrreno-em-chacara-condominio-fechado-em-tijucas-sc-1505192729
+
+- **Oportunidade única: Terreno de esquina com 400m² próximo ao centro do **
+  - 💰 R$ 400.000 | 📐 400 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-de-esquina-com-400m-proximo-ao-centro-do-rosa-1505178222
+
