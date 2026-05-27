@@ -93856,3 +93856,71 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-terreno-de-esquina-com-400m-proximo-ao-centro-do-rosa-1505178222
 
+
+## 🆕 13 novos anúncios — 27/05/2026 07:17
+
+- **Terreno de esquina para locação!**
+  - 💰 R$ 2.500 | 📐 646 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-para-locacao-1505328131
+
+- **Excelente terreno para emprender ou morar no Paiquere - Morro dos Conv**
+  - 💰 R$ 570.000 | 📐 442 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-para-emprender-ou-morar-no-paiquere-morro-dos-conventos-ararangua-1505325082
+
+- **Terreno com Projeto aprovado já individualizado à venda para condomíni**
+  - 💰 R$ 15.500.000 | 📐 35000 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-projeto-aprovado-ja-individualizado-a-venda-para-condominio-1505321765
+
+- **Terreno em Nova Brasília, Imbituba/SC**
+  - 💰 R$ 150.000 | 📐 230 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-nova-brasilia-imbituba-sc-1505306977
+
+- **Terreno em Imbituba - Roça Grande**
+  - 💰 R$ 128.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-roca-grande-1505306668
+
+- **Terreno à venda no Bairro Universitário**
+  - 💰 R$ 800.000 | 📐 810 m²
+  - 📍 Universitário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-universitario-1505302432
+
+- **Terreno no Campo Duna, próximo da Praia do Rosa, Surfland e comércios**
+  - 💰 R$ 215.000 | 📐 376 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-campo-duna-proximo-da-praia-do-rosa-surfland-e-comercios-1505277076
+
+- **Oportunidade! Em Barra Velha, Balneário Rincão**
+  - 💰 R$ 100.000 | 📐 375 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-barra-velha-balneario-rincao-1505273947
+
+- **Terreno plano em Pio Corrêa, Criciúma**
+  - 💰 R$ 900.000 | 📐 446 m²
+  - 📍 Pio Corrêa — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-em-pio-correa-criciuma-1505273955
+
+- **Imóvel para aluguel possui 40 metros quadrados em Ambrósio - Garopaba **
+  - 💰 R$ 2.100 | 📐 40 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-aluguel-possui-40-metros-quadrados-em-ambrosio-garopaba-sc-1505267873
+
+- **Terreno**
+  - 💰 R$ 60.000 | 📐 459 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1505259808
+
+- **TERRENO - JOÁIA LOTEAMENTO RESIDENCIAL LEMOS II**
+  - 💰 R$ 280.000 | 📐 419 m²
+  - 📍 Joáia — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-joaia-loteamento-residencial-lemos-ii-1505247323
+
+- **TERRENO A 150 METROS DO MAR PRONTO PARA CONSTRUIR**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-150-metros-do-mar-pronto-para-construir-1505243652
+
