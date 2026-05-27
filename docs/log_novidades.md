@@ -94217,3 +94217,101 @@
   - 📍 Caravaggio — Nova Veneza
   - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-534m2-RS170000/id-43034497/
 
+
+## 🆕 19 novos anúncios — 27/05/2026 18:10
+
+- **FAZENDA À VENDA - 193 HECTARES**
+  - 💰 R$ 22.000.000 | 📐 1930000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-venda-193-hectares-1505802666
+
+- **ANITÁPOLIS/SC- Chácara a venda**
+  - 💰 R$ 180.000 | 📐 15000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-chacara-a-venda-1505803232
+
+- **Terreno com casa em construção vista espetacular 525 m² Morro Queimado**
+  - 💰 R$ 350.000 | 📐 525 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-em-construcao-vista-espetacular-525-m-morro-queimado-1505802478
+
+- **FAZENDA À VENDA EM TIJUCAS - 66 HECTARES**
+  - 💰 R$ 12.000.000 | 📐 660000 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-venda-em-tijucas-66-hectares-1505795685
+
+- **Imóvel para venda tem 150 metros quadrados com 3 quartos em Aririú - P**
+  - 💰 R$ 5.200.000 | 📐 150 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-150-metros-quadrados-com-3-quartos-em-aririu-palhoca-sc-1505794031
+
+- **OPORTUNIDADE Terreno Rural com Fácil Acesso à Via Rápida**
+  - 💰 R$ 790.000 | 📐 20000 m²
+  - 📍 Vila São José — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-rural-com-facil-acesso-a-via-rapida-1505783962
+
+- **Terreno no Deltaville - Biguaçu**
+  - 💰 R$ 420.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-biguacu-1505780761
+
+- **Lote à venda em Antônio Carlos/SC**
+  - 💰 R$ 215.000 | 📐 360 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-em-antonio-carlos-sc-1429073192
+
+- **Terreno à venda no Centro de Antônio Carlos/SC**
+  - 💰 R$ 450.000 | 📐 622 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-antonio-carlos-sc-1419039828
+
+- **Terreno Residencial em João Paulo**
+  - 💰 R$ 1.590.000 | 📐 1675 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-joao-paulo-1505771689
+
+- **Terreno Comercial em João Paulo**
+  - 💰 R$ 6.500.000 | 📐 863 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-joao-paulo-1505771650
+
+- **Terreno Residencial em Cacupé**
+  - 💰 R$ 6.000.000 | 📐 7488 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-cacupe-1505771659
+
+- **Terreno Residencial em João Paulo**
+  - 💰 R$ 5.290.000 | 📐 3662 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-joao-paulo-1505771616
+
+- **Terreno comercial e residencial com área de 467 m² em Residencial Alto**
+  - 💰 R$ 340.000 | 📐 467 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-e-residencial-com-area-de-467-m-em-residencial-altos-do-jardim-biguacu-1505771114
+
+- **Terreno amplo de 611 m² Bela Vista - Palhoça**
+  - 💰 R$ 375.000 | 📐 611 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-611-m-bela-vista-palhoca-1505766689
+
+- **Vendo Terreno em Paulo Lopes**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-paulo-lopes-1505752350
+
+- **TERRENO LOCALIZADO PRÓXIMO FACULDADE ESTÁCIO DE SA**
+  - 💰 R$ 350.000 | 📐 300 m²
+  - 📍 Monte Cristo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-localizado-proximo-faculdade-estacio-de-sa-1505744654
+
+- **Terreno para Venda em Palhoça, Três Barras**
+  - 💰 R$ 127.000 | 📐 360 m²
+  - 📍 Três Barras — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-palhoca-tres-barras-1505716532
+
+- **Terreno 12x5**
+  - 💰 R$ 45.000 | 📐 50 m²
+  - 📍 Tapera da Base — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-12x5-1505722956
+
