@@ -94315,3 +94315,161 @@
   - 📍 Tapera da Base — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-12x5-1505722956
 
+
+## 🆕 31 novos anúncios — 27/05/2026 22:55
+
+- **Terreno de 121000m² no bairro Ponta Do Papagaio**
+  - 💰 R$ 30.000.000 | 📐 121000 m²
+  - 📍 Brejarú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-121000m-no-bairro-ponta-do-papagaio-1505881370
+
+- **Terreno de 2085.85m² no bairro Tapera da Base**
+  - 💰 R$ 2.310.000 | 📐 2085 m²
+  - 📍 Tapera da Base — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2085-85m-no-bairro-tapera-da-base-1505880805
+
+- **Terreno de 1281.72m² no bairro alto varginha**
+  - 💰 R$ 266.000 | 📐 1281 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1281-72m-no-bairro-alto-varginha-1505880820
+
+- **Oportunidade para investidores no Mariscal**
+  - 💰 R$ 220.000 | 📐 325 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-investidores-no-mariscal-1505871099
+
+- **Terreno 395m² - Pedra Branca - imv**
+  - 💰 R$ 600.000 | 📐 395 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-395m-pedra-branca-imv-1505869956
+
+- **Vendo terreno no Campeche**
+  - 💰 R$ 720.000 | 📐 275 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-campeche-1505867420
+
+- **Terreno 2,5 hectares a 2km da BR 101 em Paulo Lopes - Chacara e Sitio**
+  - 💰 R$ 400.000 | 📐 25000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-5-hectares-a-2km-da-br-101-em-paulo-lopes-chacara-e-sitio-1505862700
+
+- **Terreno 5.500m² para Chacará em Paulo Lopes - Sitio**
+  - 💰 R$ 400.000 | 📐 5500 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-5-500m-para-chacara-em-paulo-lopes-sitio-1505862696
+
+- **Chácara para venda - Santo Amaro da Imperatriz**
+  - 💰 R$ 1.350.000 | 📐 2000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-para-venda-santo-amaro-da-imperatriz-1505858908
+
+- **Vendo terreno na praia da solidão pantano sul**
+  - 💰 R$ 55.000 | 📐 180 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-da-solidao-pantano-sul-1505858181
+
+- **Vendo terreno em Rancho queimado *1600m2,**
+  - 💰 R$ 190.000 | 📐 1600 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-rancho-queimado-1600m2-1505854760
+
+- **Terreno com 513m² no Condomínio Casablanca em Cacupé**
+  - 💰 R$ 1.690.000 | 📐 513 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-513m-no-condominio-casablanca-em-cacupe-1505849829
+
+- **Loteamento D´Lorenzo, Içara / SC**
+  - 💰 R$ 153.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-d-lorenzo-icara-sc-1505849830
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 2.500.000 | 📐 750 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1505848625
+
+- **AREA - CAMPECHE - SC**
+  - 💰 R$ 1.700.000 | 📐 536 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-campeche-sc-1505848232
+
+- **Terreno para venda possui 360 metros quadrados em Pântano do Sul - Flo**
+  - 💰 R$ 780.000 | 📐 360 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-possui-360-metros-quadrados-em-pantano-do-sul-florianopolis-sc-1505840612
+
+- **Terreno Ribeirão da ilha**
+  - 💰 R$ 150.000 | 📐 150 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ribeirao-da-ilha-1505833028
+
+- **TERRENO para venda tem 360 metros quadrados em Pântano do Sul - Floria**
+  - 💰 R$ 1.750.000 | 📐 360 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-tem-360-metros-quadrados-em-pantano-do-sul-florianopolis-sc-1505831741
+
+- **Terreno para venda possui 360 metros quadrados em Pântano do Sul - Flo**
+  - 💰 R$ 1.650.000 | 📐 360 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-possui-360-metros-quadrados-em-pantano-do-sul-florianopolis-sc-1505831673
+
+- **Terreno para venda tem 549 metros quadrados em Pântano do Sul - Floria**
+  - 💰 R$ 1.850.000 | 📐 549 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-tem-549-metros-quadrados-em-pantano-do-sul-florianopolis-sc-1505831026
+
+- **Sítio 212.234 m², Rancho, Rio, Pastagem, Rio Forquilha, São Pedro De A**
+  - 💰 R$ 1.400.000 | 📐 212234 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-212-234-m-rancho-rio-pastagem-rio-forquilha-sao-pedro-de-alcantara-1169163096
+
+- **Imóvel para venda possui 420 metros quadrados em Pântano do Sul - Flor**
+  - 💰 R$ 1.100.000 | 📐 420 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-420-metros-quadrados-em-pantano-do-sul-florianopolis-sc-1505825035
+
+- **TERRENO para venda com 512 metros quadrados em Pântano do Sul - Floria**
+  - 💰 R$ 1.350.000 | 📐 512 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-com-512-metros-quadrados-em-pantano-do-sul-florianopolis-sc-1505825026
+
+- **Vendo ou troco chácara em Santo Amaro da Imperatriz**
+  - 💰 R$ 1.000.000 | 📐 ? m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-chacara-em-santo-amaro-da-imperatriz-1505824846
+
+- **Terreno com 300m² no loteamento Green Village - Palhoça/SC**
+  - 💰 R$ 340.673 | 📐 300 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-300m-no-loteamento-green-village-palhoca-sc-1505819828
+
+- **Terreno PLANO e de ESQUINA com 397,37m² no loteamento Green Village - **
+  - 💰 R$ 451.243 | 📐 397 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-e-de-esquina-com-397-37m-no-loteamento-green-village-palhoca-sc-1505819764
+
+- **Terreno de 255 m² à Venda  Bairro Freitas | Paulo Lopes/SC**
+  - 💰 R$ 135.000 | 📐 220 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-255-m-a-venda-bairro-freitas-paulo-lopes-sc-1505817256
+
+- **Sítio de 4,4 Hectares à Venda | Aceita Permuta  Albardão | Palhoça/SC**
+  - 💰 R$ 680.000 | 📐 48000 m²
+  - 📍 Albardão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-4-4-hectares-a-venda-aceita-permuta-albardao-palhoca-sc-1505815746
+
+- **Imóvel para venda com 2144 metros quadrados em Córrego Grande - Floria**
+  - 💰 R$ 4.550.000 | 📐 2144 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-2144-metros-quadrados-em-corrego-grande-florianopolis-sc-1505815591
+
+- **Lote 203,07 m² à Venda | Loteamento Vivenda Pescaria  Pescaria Brava/S**
+  - 💰 R$ 95.000 | 📐 203 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-203-07-m-a-venda-loteamento-vivenda-pescaria-pescaria-brava-sc-1505813392
+
+- **Terreno à venda no Caravaggio, Nova Veneza**
+  - 💰 R$ 170.000 | 📐 9538 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-9538m2-RS170000/id-43034496/
+
