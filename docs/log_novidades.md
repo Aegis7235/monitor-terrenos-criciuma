@@ -94741,3 +94741,81 @@
   - 📍 Forquilhinha — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-santo-amaro-1505884697
 
+
+## 🆕 15 novos anúncios — 28/05/2026 12:42
+
+- **Preço de ocasião. Terreno de  390m² aterrado escriturado. C/ energia e**
+  - 💰 R$ 169.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/preco-de-ocasiao-terreno-de-390m-aterrado-escriturado-c-energia-eletrica-financiavel-1505984700
+
+- **Sítio em Palhoça**
+  - 💰 R$ 2.690.000 | 📐 9619 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-palhoca-1505979534
+
+- **Terreno escriturado de 480m² na avenida principal. Financiável Aceita-**
+  - 💰 R$ 225.000 | 📐 480 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-de-480m-na-avenida-principal-financiavel-aceita-se-carro-neg-facili-1505978103
+
+- **Sítio à venda no Bairro Sambaqui em Imbituba/SC**
+  - 💰 R$ 1.400.000 | 📐 25000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-sambaqui-em-imbituba-sc-1505975870
+
+- **Preço de ocasião. Terreno de  390m² murado, aterrado, c\ energia eletr**
+  - 💰 R$ 145.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/preco-de-ocasiao-terreno-de-390m-murado-aterrado-c-energia-eletrica-e-internet-1505973412
+
+- **Parcele direto c/ proprietário! 200 m do mar! Terreno 390m² escriturad**
+  - 💰 R$ 175.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parcele-direto-c-proprietario-200-m-do-mar-terreno-390m-escriturado-negocicao-facilit-1505972015
+
+- **Terreno à venda no Campeche**
+  - 💰 R$ 5.320.000 | 📐 1100 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-campeche-1505962507
+
+- **Vende-se terreno no Lagoão, Araranguá SC**
+  - 💰 R$ 90.000 | 📐 391 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-no-lagoao-ararangua-sc-1505960812
+
+- **Terreno em Nova Veneza**
+  - 💰 R$ 110.000 | 📐 439 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-nova-veneza-1505960802
+
+- **Terreno à venda, 493 m² por R$ 367.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 367.000 | 📐 493 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-493-m-por-r-367-000-00-caverazinho-ararangua-sc-1505960622
+
+- **Terreno à venda, 440 m² por R$ 328.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 328.000 | 📐 441 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-440-m-por-r-328-000-00-caverazinho-ararangua-sc-1505960625
+
+- **AREA - CAMPECHE - SC**
+  - 💰 R$ 1.700.000 | 📐 536 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-campeche-sc-1505955947
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 2.500.000 | 📐 750 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1505953972
+
+- **Terreno à Venda em São José - R$ 301,4 m²**
+  - 💰 R$ 2.500 | 📐 301 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-jose-r-301-4-m-1505953787
+
+- **Excelente Terreno a Poucos Metros do Mar na Praia de Fora em Palhoça/S**
+  - 💰 R$ 355.000 | 📐 288 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-a-poucos-metros-do-mar-na-praia-de-fora-em-palhoca-sc-com-escritura-pub-1505953445
+
