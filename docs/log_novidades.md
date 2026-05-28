@@ -94819,3 +94819,96 @@
   - 📍 Praia do Pontal — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-a-poucos-metros-do-mar-na-praia-de-fora-em-palhoca-sc-com-escritura-pub-1505953445
 
+
+## 🆕 18 novos anúncios — 28/05/2026 18:23
+
+- **Terreno em Passo de Torres SC**
+  - 💰 R$ 80.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-passo-de-torres-sc-1506076036
+
+- **Terreno com 2.700m² na Vila Herculano/Imaruí/SC**
+  - 💰 R$ 150.000 | 📐 2700 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2-700m-na-vila-herculano-imarui-sc-1506062459
+
+- **Terreno em Major Gercino**
+  - 💰 R$ 80.000 | 📐 360 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-major-gercino-1506060583
+
+- **Vendo Lote Zona Sul**
+  - 💰 R$ 180.000 | 📐 447 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-zona-sul-1506004625
+
+- **Terreno na Encantada com vista mar**
+  - 💰 R$ 1.500.000 | 📐 4489 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-encantada-com-vista-mar-1506002368
+
+- **terreno na praia do rosa**
+  - 💰 R$ 290.000 | 📐 236 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-do-rosa-1506001206
+
+- **Terreno com alto potencial construtivo na Praia do Silveira em Garopab**
+  - 💰 R$ 5.390.000 | 📐 5741 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-alto-potencial-construtivo-na-praia-do-silveira-em-garopaba-sc-1506001215
+
+- **Terreno a venda**
+  - 💰 R$ 280.000 | 📐 447 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1506000883
+
+- **Ecxelente Terreno**
+  - 💰 R$ 15.960.000 | 📐 45000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ecxelente-terreno-1506000512
+
+- **terreno bairro arroio com 282 mts imbituba**
+  - 💰 R$ 568.000 | 📐 282 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-arroio-com-282-mts-imbituba-1506000481
+
+- **Terreno à venda**
+  - 💰 R$ 4.500.000 | 📐 6139 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1506000463
+
+- **Terreno a poucos passos do centro**
+  - 💰 R$ 2.300.000 | 📐 3352 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-poucos-passos-do-centro-1505999799
+
+- **VENDE-SE LINDO SÍTIO À BEIRA DA LAGOA EM LAGUNA/SC**
+  - 💰 R$ 2.800.000 | 📐 3000 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-lindo-sitio-beira-da-lagoa-em-laguna-sc-1505999973
+
+- **OPORTUNIDADE DE INVESTIMENTO NO LITORAL DE SC**
+  - 💰 R$ 450.000 | 📐 18000 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-no-litoral-de-sc-1506075005
+
+- **TERRENO COM 300m²**
+  - 💰 R$ 22.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-300m-1506072813
+
+- **Vende-se cada no sítio**
+  - 💰 R$ 380 | 📐 70 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-cada-no-sitio-1506069563
+
+- **Terreno de esquina à venda no reserva do lago**
+  - 💰 R$ 550.000 | 📐 419 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-no-reserva-do-lago-1506063691
+
+- **Casa com 3 quartos à venda no Centro, Turvo**
+  - 💰 R$ 850.000 | 📐 150 m²
+  - 📍 Centro — Turvo
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-turvo-centro-288m2-RS850000/id-43101417/
+
