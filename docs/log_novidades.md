@@ -94912,3 +94912,41 @@
   - 📍 Centro — Turvo
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-turvo-centro-288m2-RS850000/id-43101417/
 
+
+## 🆕 7 novos anúncios — 28/05/2026 22:53
+
+- **Terreno para sítio em Canelinha**
+  - 💰 R$ 240.000 | 📐 2750 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-em-canelinha-1506139583
+
+- **Sitio com casa**
+  - 💰 R$ 280.000 | 📐 72 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-1506126920
+
+- **LOTE PARA VENDA NO LOTEAMENTO ARINO BRESSAN II MONTE CASTELO TUBARÃO/S**
+  - 💰 R$ 195.000 | 📐 406 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-para-venda-no-loteamento-arino-bressan-ii-monte-castelo-tubarao-sc-1506126922
+
+- **Loteamento Recanto da Colina, parcelamento direto, Capivari de Baixo /**
+  - 💰 R$ 98.900 | 📐 250 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-recanto-da-colina-parcelamento-direto-capivari-de-baixo-sc-1506122879
+
+- **Condomínio Residencial Serena Città, Criciúma / SC**
+  - 💰 R$ 274.000 | 📐 360 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-residencial-serena-citta-criciuma-sc-1506122926
+
+- **Excelente Terreno/Lote à Venda no Bairro Timbé - Tijucas/SC | 600m²**
+  - 💰 R$ 199.000 | 📐 600 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-lote-a-venda-no-bairro-timbe-tijucas-sc-600m-1506085450
+
+- **Lote em Pescaria Brava - SC**
+  - 💰 R$ 150.000 | 📐 400 m²
+  - 📍  — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-pescaria-brava-sc-1506153943
+
