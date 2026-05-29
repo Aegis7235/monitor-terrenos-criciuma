@@ -96236,3 +96236,111 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-matricula-na-praia-do-rosa-1506271438
 
+
+## 🆕 21 novos anúncios — 29/05/2026 18:23
+
+- **TERRENO BARATO A VENDA EM BALNEARIO ARROIO DO SILVA SC**
+  - 💰 R$ 65.000 | 📐 324 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-barato-a-venda-em-balneario-arroio-do-silva-sc-1506373209
+
+- **Sitio lindo em Imbituba.**
+  - 💰 R$ 1.300.000 | 📐 18669 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-lindo-em-imbituba-1506323145
+
+- **Vende-se Sítio**
+  - 💰 R$ 265.000 | 📐 25000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-sitio-1506305149
+
+- **Terreno Ambrósio**
+  - 💰 R$ 7.000.000 | 📐 13450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ambrosio-1506301884
+
+- **Terreno Comercial e ou Residencial na Marginal da Rodovia Br 101 em Pa**
+  - 💰 R$ 200.000 | 📐 728 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-e-ou-residencial-na-marginal-da-rodovia-br-101-em-paulo-lopes-com-728mts-1506301235
+
+- **Terreno no Rosa**
+  - 💰 R$ 790.000 | 📐 1061 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rosa-1506299731
+
+- **Lindo sítio bem localizado em Alfredo Vagner SC - ideal para quem natu**
+  - 💰 R$ 790.000 | 📐 210 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-bem-localizado-em-alfredo-vagner-sc-ideal-para-quem-natureza-e-conforto-1506299583
+
+- **Terreno à venda, 7700,00 m² por R$ 3.500.000,00 - Laranjeiras - Pescar**
+  - 💰 R$ 3.500.000 | 📐 7700 m²
+  - 📍 Laranjeiras — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-7700-00-m-por-r-3-500-000-00-laranjeiras-pescaria-brava-sc-1506268071
+
+- **Terreno Murado. Arroio do Silva-SC**
+  - 💰 R$ 65.000 | 📐 324 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-murado-arroio-do-silva-sc-1506278483
+
+- **Terreno à venda, 840,00 m² por R$ 900.000,00 - Centro - Içara/Santa Ca**
+  - 💰 R$ 900.000 | 📐 840 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-840-00-m-por-r-900-000-00-centro-icara-santa-catarina-1506268065
+
+- **Terreno à venda, 450,00 m² por R$ 1.200.000,00 - Centro - Içara/SC**
+  - 💰 R$ 1.200.000 | 📐 450 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-450-00-m-por-r-1-200-000-00-centro-icara-sc-1506268079
+
+- **Terreno no Residenziale Quartiere Castello à venda, 546,08 m² por R$ 3**
+  - 💰 R$ 352.000 | 📐 546 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-residenziale-quartiere-castello-a-venda-546-08-m-por-r-352-000-00-centro-1506268013
+
+- **Terreno à venda, 363 m² por R$ 188.000,00 - das Damas - Urussanga/SC**
+  - 💰 R$ 188.000 | 📐 363 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-363-m-por-r-188-000-00-das-damas-urussanga-sc-1506268122
+
+- **Terreno no Condomínio San Simone à venda, 655,53 m² por R$ 738.750,00 **
+  - 💰 R$ 738.750 | 📐 656 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-san-simone-a-venda-655-53-m-por-r-738-750-00-sao-simao-criciu-1506268011
+
+- **Terreno à venda, 475 m² por R$ 121.508,80 - Linha Anta - Criciúma/SC**
+  - 💰 R$ 121.509 | 📐 476 m²
+  - 📍 Linha Anta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-475-m-por-r-121-508-80-linha-anta-criciuma-sc-1506268398
+
+- **Terreno à venda, 377 m² por R$ 138.000,00 - Jardim das Paineiras - Iça**
+  - 💰 R$ 138.000 | 📐 378 m²
+  - 📍 Jardim das Paineiras — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-377-m-por-r-138-000-00-jardim-das-paineiras-icara-sc-1506268094
+
+- **Terreno à venda, 551 m² por R$ 1.012.273,00 - Lagoa dos Esteves - Baln**
+  - 💰 R$ 1.012.273 | 📐 551 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-551-m-por-r-1-012-273-00-lagoa-dos-esteves-balneario-rincao-sc-1506268070
+
+- **Terreno à venda, 3584,31 m² por R$ 1.500.000,00 - Itapeva - Imaruí/SC**
+  - 💰 R$ 1.500.000 | 📐 3584 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3584-31-m-por-r-1-500-000-00-itapeva-imarui-sc-1506268056
+
+- **Terreno a venda**
+  - 💰 R$ 60.000 | 📐 240 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1506371632
+
+- **Terreno nova Brasília**
+  - 💰 R$ 100.000 | 📐 161 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-nova-brasilia-1506366359
+
+- **360m² de área total**
+  - 💰 R$ 450.000 | 📐 360 m²
+  - 📍 Universitário — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/360m-de-area-total-1506338845
+
