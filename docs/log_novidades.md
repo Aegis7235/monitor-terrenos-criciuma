@@ -96183,3 +96183,56 @@
   - 📍 Pagani — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-pagani-1506001855
 
+
+## 🆕 10 novos anúncios — 29/05/2026 12:28
+
+- **OPORTUNIDADE EXCLUSIVA EM PAULO LOPES/SC  BAIRRO NOVA BELÉM**
+  - 💰 R$ 215.000 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-exclusiva-em-paulo-lopes-sc-bairro-nova-belem-1506280374
+
+- **Terreno à venda, 1005 m² por R$ 329.000,00 - Quarta Linha - Criciúma/S**
+  - 💰 R$ 329.000 | 📐 1005 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1005-m-por-r-329-000-00-quarta-linha-criciuma-sc-1506268370
+
+- **Terreno à venda, 5742,65 m² por R$ 650.000,00 - Linha Anta - Criciúma/**
+  - 💰 R$ 650.000 | 📐 5743 m²
+  - 📍 Demboski — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-5742-65-m-por-r-650-000-00-linha-anta-criciuma-sc-1506268068
+
+- **Terreno no Loteamento Villagio Chiesa à venda, 368,05 m² por R$ 150.00**
+  - 💰 R$ 150.000 | 📐 368 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-villagio-chiesa-a-venda-368-05-m-por-r-150-000-00-primeira-linh-1506268060
+
+- **Terreno no Loteamento Residencial Montello à venda, 472,95 m² por R$ 1**
+  - 💰 R$ 191.120 | 📐 473 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-residencial-montello-a-venda-472-95-m-por-r-191-119-64-centro-1506268092
+
+- **Terreno à venda, 360 m² por R$ 255.000 - Nova Divinéia - Araranguá/SC**
+  - 💰 R$ 255.000 | 📐 360 m²
+  - 📍 Nova Divinéia — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-255-000-nova-divineia-ararangua-sc-1506253938
+
+- **Terreno para Venda em Imbituba, Sambaqui**
+  - 💰 R$ 120.000 | 📐 308 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-sambaqui-1506248017
+
+- **Terreno 360m2**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m2-1506243804
+
+- **Terreno na beira da lagoa**
+  - 💰 R$ 1.200.000 | 📐 1200 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-beira-da-lagoa-1506243514
+
+- **Terreno com matrícula na Praia do Rosa**
+  - 💰 R$ 350.000 | 📐 397 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-matricula-na-praia-do-rosa-1506271438
+
