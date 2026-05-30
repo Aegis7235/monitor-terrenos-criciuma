@@ -97026,3 +97026,61 @@
 
 ## ✅ Sem novidades — 30/05/2026 16:11
 
+
+## 🆕 11 novos anúncios — 30/05/2026 22:14
+
+- **Espetacular terreno**
+  - 💰 R$ 350.000 | 📐 5000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/espetacular-terreno-1506617962
+
+- **TERRENO EXCLUSIVO À VENDA - PORTINHO DA VILA | IMBITUBA - SC**
+  - 💰 R$ 950.000 | 📐 1050 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-venda-portinho-da-vila-imbituba-sc-1506605472
+
+- **Chácara em Garopaba SC**
+  - 💰 R$ 500.000 | 📐 1000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-garopaba-sc-1506596953
+
+- **Terreno em Areias Do Macacu, Garopaba/SC**
+  - 💰 R$ 971.520 | 📐 660 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-areias-do-macacu-garopaba-sc-1506585773
+
+- **Terreno com 9 cachoeiras**
+  - 💰 R$ 200.000 | 📐 54000 m²
+  - 📍  — Santa Rosa de Lima
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-9-cachoeiras-1506574916
+
+- **Terreno de leilão em Centro / IMARUI / SC | Venda Online**
+  - 💰 R$ 909.373 | 📐 715100 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-centro-imarui-sc-venda-online-1506567998
+
+- **TERRENO À VENDA - EXCELENTE OPORTUNIDADE EM TUBARÃO/SC!!!**
+  - 💰 R$ 195.000 | 📐 300 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-excelente-oportunidade-em-tubarao-sc-1506565619
+
+- **Vendo terreno na praia da silveira , linda vista**
+  - 💰 R$ 680.000 | 📐 2000 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-da-silveira-linda-vista-1506543229
+
+- **Terreno à venda no Bairro Espraiado em Nova Trento/SC**
+  - 💰 R$ 130.000 | 📐 1380 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-espraiado-em-nova-trento-sc-1506536961
+
+- **Terreno Rural à venda no Bairro Timbé em Tijucas/SC**
+  - 💰 R$ 350.000 | 📐 2350 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-a-venda-no-bairro-timbe-em-tijucas-sc-1506536701
+
+- **Chácara / sítio com 3 quartos à venda na Rua Antonio Teixeira De Faria**
+  - 💰 R$ 1.590.000 | 📐 300 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-passo-de-torres-centro-3273m2-RS1590000/id-43197425/
+
