@@ -96970,3 +96970,56 @@
   - 📍 Rio Tavares — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-no-rio-tavares-florianopolis-1506219189
 
+
+## 🆕 10 novos anúncios — 30/05/2026 11:00
+
+- **EXCELENTE SITÍO EM IMARUÍ COM 70.000 METROS, CASA COM 4 DORMITÓRIOS, P**
+  - 💰 R$ 1.200.000 | 📐 70000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-sitio-em-imarui-com-70-000-metros-casa-com-4-dormitorios-perto-de-imbituba-1506529692
+
+- **Terreno escriturado à venda no bairro Vendaval Biguaçu/SC**
+  - 💰 R$ 370.000 | 📐 381 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-a-venda-no-bairro-vendaval-biguacu-sc-1506529308
+
+- **ÓTIMO TERRENO NO LOTEAMENTO NOVA GOVERNADOR, EM GOVERNADOR CELSO RAMOS**
+  - 💰 R$ 230.000 | 📐 300 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-no-loteamento-nova-governador-em-governador-celso-ramos-1506529232
+
+- **Terreno 375m² Ponte do Imaruim-viabilidade para até 6 pav.**
+  - 💰 R$ 560.000 | 📐 375 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-375m-ponte-do-imaruim-viabilidade-para-ate-6-pav-1506521218
+
+- **Terreno para Venda em Imbituba, Sambaqui**
+  - 💰 R$ 185.000 | 📐 685 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-sambaqui-1506518389
+
+- **Terreno à Venda com Terreno com 450m² (15mx30m) em Jurerê In!**
+  - 💰 R$ 3.200.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-terreno-com-450m-15mx30m-em-jurere-in-1506515827
+
+- **Chácara à venda em Santo Amaro da Imperatriz-SC: Refúgio de Paz e Conf**
+  - 💰 R$ 570.000 | 📐 150 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-em-santo-amaro-da-imperatriz-sc-refugio-de-paz-e-conforto-no-bairro-pagar-1506514999
+
+- **Terreno à venda em Garopaba-SC, 360m² no bairro Jardim Panorâmico! Apr**
+  - 💰 R$ 950.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-garopaba-sc-360m-no-bairro-jardim-panoramico-aproveite-esta-oportuni-1506514789
+
+- **TERRENO com 614m² à VENDA no AMORAEVILLE em JURERÊ IN!**
+  - 💰 R$ 3.200.000 | 📐 614 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-614m-a-venda-no-amoraeville-em-jurere-in-1506513506
+
+- **Terreno 1.060m² em Ratones - Ideal para Sítio**
+  - 💰 R$ 695.000 | 📐 1060 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-060m-em-ratones-ideal-para-sitio-1506513231
+
