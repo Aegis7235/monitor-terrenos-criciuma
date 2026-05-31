@@ -97084,3 +97084,41 @@
   - 📍 Centro — Passo de Torres
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-passo-de-torres-centro-3273m2-RS1590000/id-43197425/
 
+
+## 🆕 7 novos anúncios — 31/05/2026 07:09
+
+- **Chácara à venda em Paulo Lopes-SC: 1 quarto, 1 banheiro, 36m² de área.**
+  - 💰 R$ 230.000 | 📐 36 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-em-paulo-lopes-sc-1-quarto-1-banheiro-36m-de-area-tranquilidade-priv-1506726734
+
+- **Terreno de esquina à venda no bairro Coloninha, em Araranguá/SC  1.239**
+  - 💰 R$ 1.600.000 | 📐 1240 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-no-bairro-coloninha-em-ararangua-sc-1-239-77-m-1506725243
+
+- **Vendo Terreno medindo 22x34 com Galpão feito todo de madeira tratada..**
+  - 💰 R$ 150.000 | 📐 748 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-medindo-22x34-com-galpao-feito-todo-de-madeira-tratada-1506679737
+
+- **Oportunidade - Terreno Escriturado, Vila São Cristóvão, Santa Rosa do **
+  - 💰 R$ 60.000 | 📐 278 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-escriturado-vila-sao-cristovao-santa-rosa-do-sul-1506668038
+
+- **Terreno - Venda - São João do Sul, Santa Catarina**
+  - 💰 R$ 35.000 | 📐 300 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-sao-joao-do-sul-santa-catarina-1506668042
+
+- **Terreno Ideal no Bairro Jardim Ultramar, SC - 300m²**
+  - 💰 R$ 210.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ideal-no-bairro-jardim-ultramar-sc-300m-1506668041
+
+- **Terreno-A venda-Balneário Arroio do Silva-Santa Catarina**
+  - 💰 R$ 45.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-balneario-arroio-do-silva-santa-catarina-1506668045
+
