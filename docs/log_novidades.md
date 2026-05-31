@@ -97128,3 +97128,46 @@
 
 ## ✅ Sem novidades — 31/05/2026 16:17
 
+
+## 🆕 8 novos anúncios — 31/05/2026 22:13
+
+- **Terreno com Viabilidade multifamiliar e comercial**
+  - 💰 R$ 1.950.000 | 📐 1425 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-multifamiliar-e-comercial-1506840163
+
+- **Terreno de esquina no loteamento Bosque**
+  - 💰 R$ 99.000 | 📐 400 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-no-loteamento-bosque-1506840075
+
+- **Terreno rua calçada Encantada Garopaba**
+  - 💰 R$ 330.000 | 📐 ? m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rua-calcada-encantada-garopaba-1506822759
+
+- **Venda-Terreno-Imbituba-Praia do Sol**
+  - 💰 R$ 380.000 | 📐 540 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-praia-do-sol-1506818388
+
+- **Venda-Sítio-Imaruí-Figueira Grande**
+  - 💰 R$ 1.100.000 | 📐 67000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-sitio-imarui-figueira-grande-1506818376
+
+- **Venda-Terreno-Imbituba-Centro**
+  - 💰 R$ 1.100.000 | 📐 660 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-imbituba-centro-1506818364
+
+- **Oportunidade Única em COCAL DO SUL - SC | Tipo: Terreno | Negociação: **
+  - 💰 R$ 424.900 | 📐 600 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-cocal-do-sul-sc-tipo-terreno-negociacao-leilao-situacao-i-1506767029
+
+- **Terreno para Venda em Paulo Lopes, Areias**
+  - 💰 R$ 159.900 | 📐 420 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-paulo-lopes-areias-1506756574
+
