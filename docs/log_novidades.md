@@ -97529,3 +97529,101 @@
   - 📍 Ingleses do Rio Vermelho — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-florianopolis-sc-no-bairro-ingleses-do-rio-vermelho-com-450-00-m-de-1506533596
 
+
+## 🆕 19 novos anúncios — 01/06/2026 15:36
+
+- **Terreno 400 metros da beira da praia.**
+  - 💰 R$ 390.000 | 📐 450 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-400-metros-da-beira-da-praia-1507012000
+
+- **Terreno 750 m2 em Saquarema RJ**
+  - 💰 R$ 30.000 | 📐 750 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-750-m2-em-saquarema-rj-1507011789
+
+- **Lote São Bento baixo - NOVA VENEZA**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍 São Bento Baixo — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-sao-bento-baixo-nova-veneza-1506995604
+
+- **Terreno à Venda em Imbituba  - Excelente Oportunidade**
+  - 💰 R$ 2.130.000 | 📐 593 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imbituba-excelente-oportunidade-1506972887
+
+- **Terreno amplo, de 600 m² Córrego Grande - Florianópolis**
+  - 💰 R$ 1.000.000 | 📐 600 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-600-m-corrego-grande-florianopolis-1506969687
+
+- **OPORTUNIDADE Terreno 11,50 x 28 . No Acesso principal Guarda ME - Tuba**
+  - 💰 R$ 125.000 | 📐 340 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-11-50-x-28-no-acesso-principal-guarda-me-tubarao-sc-1506946515
+
+- **Sítio 4 Hectares em Anitápolis SC - Vista para Montanhas**
+  - 💰 R$ 353.000 | 📐 40000 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-4-hectares-em-anitapolis-sc-vista-para-montanhas-1506926167
+
+- **Terreno Próximo a Av. Das Torres com viabilidade para 12 pavimentos**
+  - 💰 R$ 800.000 | 📐 605 m²
+  - 📍 Passa Vinte — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-av-das-torres-com-viabilidade-para-12-pavimentos-1363881945
+
+- **Excelente Terreno com 2.496,00m² em São José/SC**
+  - 💰 R$ 8.500.000 | 📐 2496 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-com-2-496-00m-em-sao-jose-sc-1456821379
+
+- **Terreno com 611 m² em Palhoça - Bela Vista**
+  - 💰 R$ 375.000 | 📐 611 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-611-m-em-palhoca-bela-vista-1438576656
+
+- **Terreno à venda no Loteamento Vista da Pedra, no Sertão do Maruim, São**
+  - 💰 R$ 370.000 | 📐 369 m²
+  - 📍 Tapera da Base — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-vista-da-pedra-no-sertao-do-maruim-sao-jose-sc-1481448507
+
+- **Terreno à venda com 310m² no bairro Estreito - Florianópolis - SC**
+  - 💰 R$ 745.000 | 📐 310 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-310m-no-bairro-estreito-florianopolis-sc-1363879282
+
+- **Terreno de 22.45m², no bairro Ponta de baixo em São José - SC**
+  - 💰 R$ 3.680.000 | 📐 2245 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-22-45m-no-bairro-ponta-de-baixo-em-sao-jose-sc-1382344215
+
+- **Terreno à venda no Acqua Condomínio Club, no Deltaville, Biguaçu/SC.**
+  - 💰 R$ 218.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-acqua-condominio-club-no-deltaville-biguacu-sc-1408141124
+
+- **Terreno no Condomínio Reserva da Pedra no bairro Pedra Branca, Palhoça**
+  - 💰 R$ 1.060.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-reserva-da-pedra-no-bairro-pedra-branca-palhoca-1363880300
+
+- **Terreno com Escritura Pública à venda com 300m² na Praia de Fora (Pont**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-a-venda-com-300m-na-praia-de-fora-pontal-em-palhoca-sc-1404846891
+
+- **Terreno em condomínio fechado com 700.16m², no bairro Córrego Grande e**
+  - 💰 R$ 1.150.000 | 📐 700 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-com-700-16m-no-bairro-corrego-grande-em-florianopolis-sc-1401987590
+
+- **Terreno com 360 metros privativos em loteamento Vista da Pedra em São **
+  - 💰 R$ 399.000 | 📐 360 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360-metros-privativos-em-loteamento-vista-da-pedra-em-sao-jose-sc-1433470517
+
+- **Terreno com 405m² no Coração do Kobrasol - Viabilidade para até 14 And**
+  - 💰 R$ 1.500.000 | 📐 405 m²
+  - 📍 Kobrasol — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-405m-no-coracao-do-kobrasol-viabilidade-para-ate-14-andares-1363879360
+
