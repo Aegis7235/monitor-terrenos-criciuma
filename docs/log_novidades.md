@@ -98026,3 +98026,66 @@
 
 ## ✅ Sem novidades — 02/06/2026 12:49
 
+
+## 🆕 12 novos anúncios — 02/06/2026 18:53
+
+- **Sitio com 6.700m² - Moura, Canelinha/SC**
+  - 💰 R$ 790.000 | 📐 6700 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-6-700m-moura-canelinha-sc-1507394016
+
+- **Terreno a 765m da Praia Central de Garopaba**
+  - 💰 R$ 950.000 | 📐 312 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-765m-da-praia-central-de-garopaba-1507384862
+
+- **Terreno em area nobre de Canelinha 3420 m2 para investir ou construir!**
+  - 💰 R$ 900.000 | 📐 3427 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-area-nobre-de-canelinha-3420-m2-para-investir-ou-construir-1457394723
+
+- **Terrenos**
+  - 💰 R$ 40.000 | 📐 40 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-1507363131
+
+- **VENDO DOIS LOTES DO MESMO TAMANHO, UM DO LADO DO OUTRO.**
+  - 💰 R$ 75.000 | 📐 494 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-dois-lotes-do-mesmo-tamanho-um-do-lado-do-outro-1507351033
+
+- **Imóvel para venda tem 422 metros quadrados em Ferraz - Garopaba - SC**
+  - 💰 R$ 475.000 | 📐 422 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-422-metros-quadrados-em-ferraz-garopaba-sc-1507344097
+
+- **Terreno Rural à venda no Bairro Espraiado em Nova Trento/SC**
+  - 💰 R$ 130.000 | 📐 1380 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-a-venda-no-bairro-espraiado-em-nova-trento-sc-1507289739
+
+- **Terreno Sanga da A|reia**
+  - 💰 R$ 1.800.000 | 📐 63000 m²
+  - 📍 Sanga da Areia — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sanga-da-a-reia-1507274473
+
+- **Terreno para Venda em Imbituba, Vila Nova**
+  - 💰 R$ 550.000 | 📐 650 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-vila-nova-1507259303
+
+- **Terreno à venda Loteamento Reserva do Lago- Campo Duna- Imbituba/ SC**
+  - 💰 R$ 270.000 | 📐 346 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-reserva-do-lago-campo-duna-imbituba-sc-1507251734
+
+- **TERRENO INDUSTRIAL À VENDA | PARQUE EMPRESARIAL REVOREDO | TUBARÃO/SC**
+  - 💰 R$ 1.640.673 | 📐 1823 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-venda-parque-empresarial-revoredo-tubarao-sc-1507251717
+
+- **TERRENO INDUSTRIAL À VENDA | PARQUE EMPRESARIAL REVOREDO | TUBARÃO/SC**
+  - 💰 R$ 1.200.000 | 📐 1500 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-venda-parque-empresarial-revoredo-tubarao-sc-1507245649
+
