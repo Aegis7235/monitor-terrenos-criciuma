@@ -98926,3 +98926,11 @@
   - 📍 Vila Beatriz — Maracajá
   - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-maracaja-vila-beatriz-120m2-RS500000/id-43315216/
 
+
+## 🆕 1 novos anúncios — 03/06/2026 23:11
+
+- **Sitio de 2 Hectares à Venda! Com cabana confortável, açude e muita tra**
+  - 💰 R$ 350.000 | 📐 20000 m²
+  - 📍 Zona Rural — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-sc-urussanga-zona-rural-RS350000/id-43309109/
+
