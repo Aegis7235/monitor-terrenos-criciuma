@@ -98260,3 +98260,36 @@
   - 📍 Universitário — Tijucas
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-1507466038
 
+
+## 🆕 6 novos anúncios — 03/06/2026 13:27
+
+- **Terreno no Loteamento Reserva da Lagoa, com matrícula**
+  - 💰 R$ 500.000 | 📐 365 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-reserva-da-lagoa-com-matricula-1507545376
+
+- **Oportunidade Única em CRICIUMA - SC | Tipo: Terreno | Negociação: Lici**
+  - 💰 R$ 76.406 | 📐 450 m²
+  - 📍 Poço Um — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-criciuma-sc-tipo-terreno-negociacao-licitacao-aberta-situa-1507543131
+
+- **Oportunidade Única em MELEIRO - SC | Tipo: Terreno | Negociação: Leilã**
+  - 💰 R$ 146.305 | 📐 375 m²
+  - 📍  — Meleiro
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-meleiro-sc-tipo-terreno-negociacao-leilao-situacao-imovel-1507542946
+
+- **Terreno**
+  - 💰 R$ 45.000 | 📐 118 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1507525252
+
+- **Sítio exclusivo à beira da lagoa, localizado no bairro Itapeva, Imaruí**
+  - 💰 R$ 890.000 | 📐 62000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-exclusivo-a-beira-da-lagoa-localizado-no-bairro-itapeva-imarui-sc-1507524740
+
+- **OPORTUNIDADE PRA VENDER RÁPIDO A 150 METROS DO MAR**
+  - 💰 R$ 79.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-pra-vender-rapido-a-150-metros-do-mar-1507546739
+
