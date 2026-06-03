@@ -98247,3 +98247,16 @@
   - 📍 Ribeirão da Ilha — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pe-na-areia-no-ribeirao-da-ilha-em-florianopolis-1507245151
 
+
+## 🆕 2 novos anúncios — 03/06/2026 08:28
+
+- **TERRENO MONTE CASTELO**
+  - 💰 R$ 290.000 | 📐 360 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-monte-castelo-1507476524
+
+- **Venda**
+  - 💰 R$ 790.000 | 📐 6700 m²
+  - 📍 Universitário — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-1507466038
+
