@@ -99578,3 +99578,61 @@
   - 📍  — Tijucas
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-santa-luzia-tijucas-sc-1507851280
 
+
+## 🆕 11 novos anúncios — 04/06/2026 22:34
+
+- **Oportunidade! Área em Lagoa da Conceição - Florianópolis**
+  - 💰 R$ 25.000 | 📐 150 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-area-em-lagoa-da-conceicao-florianopolis-1507977992
+
+- **FKDS - 4 hectares, Sítio 5km do centro de Rancho Queimado / SC**
+  - 💰 R$ 1.500.000 | 📐 40000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fkds-4-hectares-sitio-5km-do-centro-de-rancho-queimado-sc-1507974684
+
+- **Terreno - 4.925m² - Bina - Biguaçu/SC**
+  - 💰 R$ 7.500.000 | 📐 4225 m²
+  - 📍 Jardim Janaína — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-4-925m-bina-biguacu-sc-1507974694
+
+- **Terreno, 8.000m² - Pedra Branca - Palhoça, SC**
+  - 💰 R$ 13.000.000 | 📐 8000 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-8-000m-pedra-branca-palhoca-sc-1507974645
+
+- **Lote / Terreno 227m² - Trindade - Florianópolis, SC**
+  - 💰 R$ 1.250.000 | 📐 227 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-227m-trindade-florianopolis-sc-1507974597
+
+- **Lotes em loteamento planejado - dos mesmos criadores do CIDADE PEDRA B**
+  - 💰 R$ 128.116.749 | 📐 368 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-em-loteamento-planejado-dos-mesmos-criadores-do-cidade-pedra-branca-1507963547
+
+- **Meio lote no Rio Tavares  top**
+  - 💰 R$ 195.000 | 📐 70 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/meio-lote-no-rio-tavares-top-1507948088
+
+- **Terreno na Costeira do Pirajubaé**
+  - 💰 R$ 70.000 | 📐 80 m²
+  - 📍 Costeira do Pirajubaé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-costeira-do-pirajubae-1507938752
+
+- **Sítio no Treviso à venda**
+  - 💰 R$ 270.000 | 📐 30000 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-no-treviso-a-venda-1507928114
+
+- **Sítio de 18.943m² com Nascente e Cachoeira - Excelente Oportunidade!**
+  - 💰 R$ 360.000 | 📐 18943 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-18-943m-com-nascente-e-cachoeira-excelente-oportunidade-1507930284
+
+- **Terreno com Cachoeira em Gov. Celso Ramos SC**
+  - 💰 R$ 1.950.000 | 📐 106934 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-cachoeira-em-gov-celso-ramos-sc-1507929672
+
