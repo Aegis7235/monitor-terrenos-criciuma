@@ -99457,3 +99457,21 @@
   - 📍  — Santo Amaro da Imperatriz
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-floreville-1507686965
 
+
+## 🆕 3 novos anúncios — 04/06/2026 12:06
+
+- **Terreno à venda em Areião, Canelinha por R$ 900 mil**
+  - 💰 R$ 900.000 | 📐 3420 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-areiao-canelinha-por-r-900-mil-1507840903
+
+- **Terreno Ideal - Loteamento Silvestre em Tubarão**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ideal-loteamento-silvestre-em-tubarao-1507833834
+
+- **Terreno à venda, 493 m² por R$ 367.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 367.000 | 📐 493 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-493-m-por-r-367-000-00-caverazinho-ararangua-sc-1507833151
+
