@@ -99475,3 +99475,106 @@
   - 📍 Caverazinho — Araranguá
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-493-m-por-r-367-000-00-caverazinho-ararangua-sc-1507833151
 
+
+## 🆕 20 novos anúncios — 04/06/2026 17:58
+
+- **Terreno em Condomínio à venda Rua Candido Pereira dos Anjos, São João **
+  - 💰 R$ 750.000 | 📐 600 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-rua-candido-pereira-dos-anjos-sao-joao-do-rio-vermelho-fl-1507910710
+
+- **Terreno Trindade Florianópolis**
+  - 💰 R$ 1.090.000 | 📐 527 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-trindade-florianopolis-1507901897
+
+- **Terreno para venda no bairro Beira Rio (Delta Ville) na Cidade de Bigu**
+  - 💰 R$ 239.000 | 📐 172 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-bairro-beira-rio-delta-ville-na-cidade-de-biguacu-1507901656
+
+- **Oportunidade! Terreno em Ingleses do Rio Vermelho - Florianópolis**
+  - 💰 R$ 3.500 | 📐 458 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-ingleses-do-rio-vermelho-florianopolis-1507898587
+
+- **Oportunidade! Terreno em Ingleses do Rio Vermelho - Florianópolis**
+  - 💰 R$ 3.500 | 📐 458 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-ingleses-do-rio-vermelho-florianopolis-1507898409
+
+- **Oportunidade! Terreno em Ingleses do Rio Vermelho - Florianópolis**
+  - 💰 R$ 7.500 | 📐 1374 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-ingleses-do-rio-vermelho-florianopolis-1507898363
+
+- **Terreno em Palhoça**
+  - 💰 R$ 130.000 | 📐 340 m²
+  - 📍 Praia do Pontal — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-palhoca-1507888475
+
+- **Terreno à venda no Rio vermelho - Florianopolis**
+  - 💰 R$ 300.000 | 📐 297 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-rio-vermelho-florianopolis-1507885402
+
+- **UM REFÚGIO ENTRE O CÉU E AS MONTANHAS.**
+  - 💰 R$ 249.000 | 📐 1168 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/um-refugio-entre-o-ceu-e-as-montanhas-1507882636
+
+- **Lagoa da Conceição terreno com 3.940m² na Av. Das Rendeiras**
+  - 💰 R$ 8.300.000 | 📐 3940 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lagoa-da-conceicao-terreno-com-3-940m-na-av-das-rendeiras-1507853659
+
+- **Vendo lote**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-1507845792
+
+- **Terreno em Condomínio fechado no Rio Vermelho**
+  - 💰 R$ 420.000 | 📐 406 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-rio-vermelho-1507840686
+
+- **TERRENO COMERCIAL em FLORIANÓPOLIS - SC, SÃO JOÃO DO RIO VERMELHO**
+  - 💰 R$ 1.800.000 | 📐 1500 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-em-florianopolis-sc-sao-joao-do-rio-vermelho-1507830275
+
+- **Sítio para Locação em Angelina, ALTO GARCIA, 1 dormitório, 1 banheiro,**
+  - 💰 R$ 2.500 | 📐 2000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-locacao-em-angelina-alto-garcia-1-dormitorio-1-banheiro-1-vaga-1507826946
+
+- **Terreno para Venda em Florianópolis, Daniela**
+  - 💰 R$ 529.000 | 📐 576 m²
+  - 📍 Daniela — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-daniela-1507826082
+
+- **Terreno para Venda em Florianópolis, Jurerê Internacional**
+  - 💰 R$ 2.500.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-jurere-internacional-1507823936
+
+- **Terreno Área em Rio dos Quatis - Rancho Queimado**
+  - 💰 R$ 600.000 | 📐 31000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-area-em-rio-dos-quatis-rancho-queimado-1507823241
+
+- **Terreno disponível para locação no bairro Universitário, Tijucas, SC**
+  - 💰 R$ 1.300 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-disponivel-para-locacao-no-bairro-universitario-tijucas-sc-1507851817
+
+- **Terreno para locação com 2 mil m² em frente a avenida asfaltada ,Tijuc**
+  - 💰 R$ 5.000 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-com-2-mil-m-em-frente-a-avenida-asfaltada-tijucas-sc-1507851823
+
+- **Terreno para locação, Santa Luzia, Tijucas, SC**
+  - 💰 R$ 3.000 | 📐 10 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-santa-luzia-tijucas-sc-1507851280
+
