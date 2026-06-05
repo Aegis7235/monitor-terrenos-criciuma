@@ -99722,3 +99722,61 @@
   - 📍 Campeche — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1508039072
 
+
+## 🆕 11 novos anúncios — 05/06/2026 17:32
+
+- **2 Hectares com Lago e Linda Vista - Morro dos 50**
+  - 💰 R$ 300.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-hectares-com-lago-e-linda-vista-morro-dos-50-1508131413
+
+- **Terreno 3100m² com Boa Localização - Ipiranga - EST**
+  - 💰 R$ 3.000.000 | 📐 3100 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-3100m-com-boa-localizacao-ipiranga-est-1508130538
+
+- **Vendo ou troco lote em Braço do norte**
+  - 💰 R$ 115.000 | 📐 360 m²
+  - 📍  — Braço do Norte
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-lote-em-braco-do-norte-1508097238
+
+- **Terreno plano com 495,10m2 de área, escritura pública  na Tapera - Fpo**
+  - 💰 R$ 700.000 | 📐 495 m²
+  - 📍 Tapera da Base — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-com-495-10m2-de-area-escritura-publica-na-tapera-fpolis-sc-1508095328
+
+- **Ótimo Sitio Com 4 Hectares e Área Construída de 320 m2 em Área Rural -**
+  - 💰 R$ 3.500.000 | 📐 320 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-sitio-com-4-hectares-e-area-construida-de-320-m2-em-area-rural-aguas-mornas-sc-1508086324
+
+- **Belíssimo Sítio Com Escritura Pública 20000 metros quadrados  em Área **
+  - 💰 R$ 1.900.000 | 📐 20000 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belissimo-sitio-com-escritura-publica-20000-metros-quadrados-em-area-rural-aguas-mornas-1508084000
+
+- **Oportunidade Única em MORRO DA FUMACA - SC | Tipo: Terreno | Negociaçã**
+  - 💰 R$ 162.990 | 📐 392 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-morro-da-fumaca-sc-tipo-terreno-negociacao-leilao-situacao-1508074075
+
+- **Oportunidade Única em URUSSANGA - SC | Tipo: Terreno | Negociação: Lic**
+  - 💰 R$ 70.036 | 📐 507 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-urussanga-sc-tipo-terreno-negociacao-licitacao-aberta-situ-1508074091
+
+- **Vendo Chácara de 2.100 mil metros quadrados em Anitápolis SC**
+  - 💰 R$ 170.000 | 📐 60 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-chacara-de-2-100-mil-metros-quadrados-em-anitapolis-sc-1366424133
+
+- **Terreno de 3 mil metros quadrados,Rural em Condomínio em Rancho Queima**
+  - 💰 R$ 400.000 | 📐 3000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-3-mil-metros-quadrados-rural-em-condominio-em-rancho-queimado-sc-1406599433
+
+- **Chácara em Rancho Queimado - SC**
+  - 💰 R$ 650.000 | 📐 1000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-rancho-queimado-sc-1507716854
+
