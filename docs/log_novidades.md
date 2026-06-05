@@ -99636,3 +99636,76 @@
   - 📍  — Governador Celso Ramos
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-cachoeira-em-gov-celso-ramos-sc-1507929672
 
+
+## 🆕 14 novos anúncios — 05/06/2026 07:22
+
+- **Sítio para Venda em Palhoça, Enseada do Brito (Ens Brito), 3 dormitóri**
+  - 💰 R$ 369.990 | 📐 90 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-palhoca-enseada-do-brito-ens-brito-3-dormitorios-1-suite-1-banhe-1508022930
+
+- **Sítio / Chácara para Venda em Palhoça, Enseada do Brito (Ens Brito), 3**
+  - 💰 R$ 2.000.000 | 📐 9659 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-chacara-para-venda-em-palhoca-enseada-do-brito-ens-brito-3-dormitorios-1-suit-1508021828
+
+- **Terreno para venda no bairro Beira Rio (Delta Ville) na Cidade de Bigu**
+  - 💰 R$ 239.000 | 📐 172 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-bairro-beira-rio-delta-ville-na-cidade-de-biguacu-1508003445
+
+- **Terreno para venda no bairro Beira Rio (Delta Ville) na Cidade de Bigu**
+  - 💰 R$ 239.000 | 📐 172 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-bairro-beira-rio-delta-ville-na-cidade-de-biguacu-1508002409
+
+- **Terreno próximo a BR**
+  - 💰 R$ 920.000 | 📐 48000 m²
+  - 📍  — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-br-1507999115
+
+- **Terreno plano e pronto para construir - Rio Vermelho |Floripa**
+  - 💰 R$ 125.000 | 📐 60 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-e-pronto-para-construir-rio-vermelho-floripa-1507995473
+
+- **Terreno Santo Amaro da Imperatriz**
+  - 💰 R$ 95.000 | 📐 190 m²
+  - 📍 Centro — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-santo-amaro-da-imperatriz-1507993090
+
+- **Terreno no sertão do ribeirão**
+  - 💰 R$ 105.000 | 📐 500 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-sertao-do-ribeirao-1507990506
+
+- **Terreno Potecas**
+  - 💰 R$ 70.000 | 📐 ? m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-potecas-1507987180
+
+- **Terreno em localização privilegiada: oportunidade de investimento 1.17**
+  - 💰 R$ 900.000 | 📐 1170 m²
+  - 📍 Passagem — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-localizacao-privilegiada-oportunidade-de-investimento-1-170-m2-1507986548
+
+- **Terreno de 360m² nos Açores**
+  - 💰 R$ 2.000.000 | 📐 360 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360m-nos-acores-1507985404
+
+- **Alugo terreno na Forquilhinha**
+  - 💰 R$ 3.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alugo-terreno-na-forquilhinha-1507983068
+
+- **Terreno no Estreito lote com 310m2**
+  - 💰 R$ 699.000 | 📐 310 m²
+  - 📍 Jardim Atlântico — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-estreito-lote-com-310m2-1507979921
+
+- **Terreno à venda, 1024 m² por R$ 5.000.000 - Ingleses do Rio Vermelho -**
+  - 💰 R$ 5.000.000 | 📐 1024 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1024-m-por-r-5-000-000-ingleses-do-rio-vermelho-florianopolis-sc-1507806099
+
