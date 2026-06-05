@@ -99709,3 +99709,16 @@
   - 📍 Ingleses do Rio Vermelho — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1024-m-por-r-5-000-000-ingleses-do-rio-vermelho-florianopolis-sc-1507806099
 
+
+## 🆕 2 novos anúncios — 05/06/2026 12:20
+
+- **Vendo Terreno laguna avenida do acesso norte estudo permuta por imóvel**
+  - 💰 R$ 1.200.000 | 📐 6288 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-laguna-avenida-do-acesso-norte-estudo-permuta-por-imovel-menor-valor-1508044366
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1508039072
+
