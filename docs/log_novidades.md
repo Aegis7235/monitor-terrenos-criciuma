@@ -99780,3 +99780,21 @@
   - 📍 Centro — Rancho Queimado
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-rancho-queimado-sc-1507716854
 
+
+## 🆕 3 novos anúncios — 05/06/2026 22:25
+
+- **Terreno a venda na Bella Torres em Passo de Torres/SC**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-bella-torres-em-passo-de-torres-sc-1508196511
+
+- **Terreno de esquina aterrado e escriturado na praia do Camacho**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-aterrado-e-escriturado-na-praia-do-camacho-1508183083
+
+- **Terreno escriturado na praia do Campo Bom em Jaguaruna**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-na-praia-do-campo-bom-em-jaguaruna-1508182970
+
