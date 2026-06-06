@@ -100294,3 +100294,6 @@
   - 📍 Maccari — Morro da Fumaça
   - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-morro-da-fumaca-maccari-50m2-RS162990/id-43393924/
 
+
+## ✅ Sem novidades — 06/06/2026 16:12
+
