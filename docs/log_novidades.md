@@ -100276,3 +100276,21 @@
   - 📍 Forquilhinha — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-770m-parte-ideal-sao-jose-sc-1507089395
 
+
+## 🆕 3 novos anúncios — 06/06/2026 11:04
+
+- **VENDE-SE TERRENO, PRAÇA PARIS  ARARANGUÁ SC**
+  - 💰 R$ 197.500 | 📐 339 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-praca-paris-ararangua-sc-1508288245
+
+- **Oportunidade Única em MELEIRO - SC | Tipo: Terreno | Negociação: Leilã**
+  - 💰 R$ 146.305 | 📐 375 m²
+  - 📍 Centro — Meleiro
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-meleiro-centro-50m2-RS146305/id-43393845/
+
+- **Oportunidade Única em MORRO DA FUMACA - SC | Tipo: Terreno | Negociaçã**
+  - 💰 R$ 162.990 | 📐 392 m²
+  - 📍 Maccari — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-morro-da-fumaca-maccari-50m2-RS162990/id-43393924/
+
