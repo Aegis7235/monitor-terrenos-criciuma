@@ -100297,3 +100297,161 @@
 
 ## ✅ Sem novidades — 06/06/2026 16:12
 
+
+## 🆕 31 novos anúncios — 06/06/2026 22:17
+
+- **Vendo Terreno em Imbituba**
+  - 💰 R$ 75.000 | 📐 240 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-imbituba-1508414771
+
+- **Vendo terreno em Araquari**
+  - 💰 R$ 200.000 | 📐 240 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-araquari-1508413006
+
+- **2 HECTARES 6km da BR 101 - Lindo terreno para Sitio - Chácara - Escrit**
+  - 💰 R$ 380.000 | 📐 20000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-hectares-6km-da-br-101-lindo-terreno-para-sitio-chacara-escritura-matricula-1508409326
+
+- **Belo terreno para sítio / chácara, alto, com luz, água e terraplanado **
+  - 💰 R$ 205.000 | 📐 3520 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-terreno-para-sitio-chacara-alto-com-luz-agua-e-terraplanado-3-520-m-1508395892
+
+- **Oportunidade! Terreno em Trindade - Florianópolis**
+  - 💰 R$ 4.000 | 📐 305 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-trindade-florianopolis-1508392239
+
+- **Lindo terreno para sítio / chácara com luz, água e terraplanado - 3.68**
+  - 💰 R$ 195.000 | 📐 3685 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-para-sitio-chacara-com-luz-agua-e-terraplanado-3-685-m-1508391797
+
+- **Vento ou Troco Ótimo Terreno**
+  - 💰 R$ 1.850.000 | 📐 1860 m²
+  - 📍 Bom Viver — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vento-ou-troco-otimo-terreno-1508385299
+
+- **Terreno com cachoeira a 200m do asfalto em Rancho Queimado com 30.000,**
+  - 💰 R$ 850.000 | 📐 30000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-cachoeira-a-200m-do-asfalto-em-rancho-queimado-com-30-000-00m-1508380529
+
+- **Sitio em -Águas Mornas, 26 hectares, a 100m do asfalto.**
+  - 💰 R$ 1.800.000 | 📐 260000000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-26-hectares-a-100m-do-asfalto-1508377943
+
+- **Sitio com linda cachoeira  e casas na divisa Rancho Queimado/Angelina**
+  - 💰 R$ 2.300.000 | 📐 630000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-cachoeira-e-casas-na-divisa-rancho-queimado-angelina-1508374482
+
+- **Terreno no bairro Santa Catarina, em Biguaçu - SC**
+  - 💰 R$ 300.000 | 📐 364 m²
+  - 📍 Prado de Baixo — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-santa-catarina-em-biguacu-sc-1508367281
+
+- **Sítio em São Mateus - Biguaçu**
+  - 💰 R$ 850.000 | 📐 150 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-sao-mateus-biguacu-1508362517
+
+- **Terreno para negócio**
+  - 💰 R$ 400.000 | 📐 ? m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-negocio-1508362119
+
+- **Fazenda / Sítio / Chácara à venda Rua Manoel Petronilho da Silveira, S**
+  - 💰 R$ 3.000.000 | 📐 153 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-sitio-chacara-a-venda-rua-manoel-petronilho-da-silveira-sao-joao-do-rio-verme-1508361454
+
+- **Vende -se Terreno de 444,63m² no Bairro Carianos - Florianópolis SC**
+  - 💰 R$ 660.000 | 📐 444 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-de-444-63m-no-bairro-carianos-florianopolis-sc-1508352250
+
+- **Terreno Residencial em Jurerê Internacional**
+  - 💰 R$ 2.385.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-jurere-internacional-1508352214
+
+- **Terreno em Canelinha**
+  - 💰 R$ 95.000 | 📐 374 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-canelinha-1508331693
+
+- **Vende-se lindo sítio na cidade de Imaruí**
+  - 💰 R$ 299.900 | 📐 1400 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-lindo-sitio-na-cidade-de-imarui-1508330022
+
+- **Terreno no Carianos**
+  - 💰 R$ 430.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-carianos-1508322584
+
+- **Vendo sítio  em Imaruí. Com vista para Lagoa.Lugar tranquilo na locali**
+  - 💰 R$ 350.000 | 📐 848 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-imarui-com-vista-para-lagoa-lugar-tranquilo-na-localidade-de-sitio-novo-1508298595
+
+- **Terreno em Oficinas**
+  - 💰 R$ 310.000 | 📐 405 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-oficinas-1476099820
+
+- **agronomica centro ,**
+  - 💰 R$ 800.000 | 📐 652 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/agronomica-centro-1508318272
+
+- **Terreno em santo Amaro. Centro**
+  - 💰 R$ 150.000 | 📐 356 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-santo-amaro-centro-1508311667
+
+- **Terreno em Pedra Branca, Palhoça/SC**
+  - 💰 R$ 650.000 | 📐 425 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-pedra-branca-palhoca-sc-1508310379
+
+- **Área com 4.214,04m² - Praia Comprida - São José/SC**
+  - 💰 R$ 2.700.000 | 📐 4214 m²
+  - 📍 Ponta de Baixo — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-com-4-214-04m-praia-comprida-sao-jose-sc-1508298257
+
+- **Terreno em Condomínio Fechado - Biguaçú/SC**
+  - 💰 R$ 175.000 | 📐 150 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-biguacu-sc-1508298238
+
+- **Sitio em Alfredo wagner**
+  - 💰 R$ 360.000 | 📐 7500 m²
+  - 📍 Praia João Rosa — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-1508294600
+
+- **Terreno Deltaville - Condomínio Blue, Biguaçu/SC**
+  - 💰 R$ 330.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-deltaville-condominio-blue-biguacu-sc-1508293347
+
+- **Lindo terreno / Chácara Sertão do Campo**
+  - 💰 R$ 360.000 | 📐 6400 m²
+  - 📍 Área Rural de Palhoça — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-chacara-sertao-do-campo-1508290669
+
+- **Imóvel para venda possui 600 metros quadrados em Bosque das Mansões - **
+  - 💰 R$ 1.800.000 | 📐 600 m²
+  - 📍 Bosque das Mansões — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-600-metros-quadrados-em-bosque-das-mansoes-sao-jose-sc-1313505795
+
+- **Lote / Terreno em Cidade Universitária Pedra Branca - Palhoça**
+  - 💰 R$ 899.000 | 📐 314 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-cidade-universitaria-pedra-branca-palhoca-1508280500
+
