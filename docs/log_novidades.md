@@ -100471,3 +100471,26 @@
   - 📍  — Balneário Arroio do Silva
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-balneario-arroio-do-silva-sc-1508469616
 
+
+## 🆕 4 novos anúncios — 07/06/2026 16:29
+
+- **Terreno em Tijucas, litoral catarinense. Loteamento Galápagos.**
+  - 💰 R$ 285.000 | 📐 364 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-tijucas-litoral-catarinense-loteamento-galapagos-1448872467
+
+- **Lote em São João Batista SC**
+  - 💰 R$ 230.000 | 📐 324 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-sao-joao-batista-sc-1508522433
+
+- **Melhor Terreno do Villagio | Esquina | Área Verde nos Fundos | 432m²**
+  - 💰 R$ 200.000 | 📐 432 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/melhor-terreno-do-villagio-esquina-area-verde-nos-fundos-432m-1508507134
+
+- **Lote/Terreno para venda possui 306 metros quadrados em Araçatuba - Imb**
+  - 💰 R$ 390.000 | 📐 306 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-venda-possui-306-metros-quadrados-em-aracatuba-imbituba-santa-catari-1508488999
+
