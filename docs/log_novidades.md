@@ -100458,3 +100458,16 @@
 
 ## ✅ Sem novidades — 07/06/2026 07:16
 
+
+## 🆕 2 novos anúncios — 07/06/2026 11:20
+
+- **"Terreno dos Sonhos em Morrotes, Tubarão, SC!"**
+  - 💰 R$ 265.000 | 📐 375 m²
+  - 📍 Morrotes — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-dos-sonhos-em-morrotes-tubarao-sc-1508469635
+
+- **Excelente terreno Balneário Arroio do Silva - SC**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-balneario-arroio-do-silva-sc-1508469616
+
