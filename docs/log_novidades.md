@@ -100497,3 +100497,216 @@
 
 ## ✅ Sem novidades — 07/06/2026 22:11
 
+
+## 🆕 42 novos anúncios — 08/06/2026 08:24
+
+- **TERRENO de 3,42 Hectares - Indústria / Galpão / Sítio /Empresa / Fábri**
+  - 💰 R$ 597.700 | 📐 34200 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-3-42-hectares-industria-galpao-sitio-empresa-fabrica-urussanga-1508642091
+
+- **Sítio 20.000m² Nova Veneza com escritura 3 casas Piscina Castelo Campo**
+  - 💰 R$ 1.380.000 | 📐 20000 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-20-000m-nova-veneza-com-escritura-3-casas-piscina-castelo-campo-aceita-permuta-1508624893
+
+- **Terreno 200m² - Bela Vista**
+  - 💰 R$ 190.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-200m-bela-vista-1508621414
+
+- **Vendo Terreno Com 921m² em Sambaqui-Imbituba/SC**
+  - 💰 R$ 360.000 | 📐 921 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-com-921m-em-sambaqui-imbituba-sc-1508608608
+
+- **Área rural com 20 ha (20 hectares) em São Pedro de Alcântara**
+  - 💰 R$ 1.000.000 | 📐 200000 m²
+  - 📍 Santa Teresa — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-com-20-ha-20-hectares-em-sao-pedro-de-alcantara-1508587714
+
+- **Barbada vendo 2 hectares em Anitapolis**
+  - 💰 R$ 250.000 | 📐 20000000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-vendo-2-hectares-em-anitapolis-1508584361
+
+- **Lindo terreno para venda com 498 metros quadrados em Centro - Santo Am**
+  - 💰 R$ 328.000 | 📐 498 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-para-venda-com-498-metros-quadrados-em-centro-santo-amaro-da-imperatriz-1508583148
+
+- **SITIO A BEIRA RIO CACHOEIRA**
+  - 💰 R$ 115.000 | 📐 1180 m²
+  - 📍  — Turvo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-beira-rio-cachoeira-1508580712
+
+- **VENDO LOTE A 1KM DA PRAIA**
+  - 💰 R$ 89.000 | 📐 133 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-a-1km-da-praia-1508563138
+
+- **OTIMA OPORTUNIDADE PARA CONSTRUIR OU INVESTIR EM STO AMARO DA IMPERATR**
+  - 💰 R$ 120.000 | 📐 314 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-para-construir-ou-investir-em-sto-amaro-da-imperatriz-1508573083
+
+- **Lote / Terreno em Capoeiras - Florianópolis, SC**
+  - 💰 R$ 600.000 | 📐 240 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-capoeiras-florianopolis-sc-1370498545
+
+- **Lote / Terreno em Pedra Branca - Palhoça, SC**
+  - 💰 R$ 700.000 | 📐 638 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-pedra-branca-palhoca-sc-1383303157
+
+- **Barbada lote no Deltaville condominio BLue**
+  - 💰 R$ 239.000 | 📐 150 m²
+  - 📍 Universitário — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-lote-no-deltaville-condominio-blue-1508564948
+
+- **Oportunidade! Terreno em Potecas - São José**
+  - 💰 R$ 2.500 | 📐 416 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-potecas-sao-jose-1508560057
+
+- **Terreno condomínio vista da pedra**
+  - 💰 R$ 390.000 | 📐 360 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-vista-da-pedra-1508538828
+
+- **Lindo terreno de 498 metros quadrados em Santo Amaro da imperatriz a 1**
+  - 💰 R$ 328.000 | 📐 498 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-de-498-metros-quadrados-em-santo-amaro-da-imperatriz-a-1-km-do-centro-da-cid-1508537427
+
+- **Terreno para Venda em Florianópolis, Vargem Pequena**
+  - 💰 R$ 1.590.000 | 📐 402 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-vargem-pequena-1508528586
+
+- **TERRENO COMERCIAL E INDUSTRIAL | 2.099 m² | WILLEMANN PARK | SERTÃO DO**
+  - 💰 R$ 2.520.000 | 📐 2099 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-e-industrial-2-099-m-willemann-park-sertao-do-maruim-sao-jose-1508511983
+
+- **Terreno em Biguaçu**
+  - 💰 R$ 105.000 | 📐 414 m²
+  - 📍 Prado de Baixo — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-biguacu-1508492046
+
+- **Casa de sítio**
+  - 💰 R$ 340.000 | 📐 1600000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-sitio-1508481675
+
+- **Terreno para Venda em Florianópolis, Centro**
+  - 💰 R$ 1.500.000 | 📐 671 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-centro-1508466345
+
+- **Terreno para Venda em Florianópolis, Jurerê**
+  - 💰 R$ 3.800.000 | 📐 450 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-jurere-1508466164
+
+- **em Serraria - São José, SC**
+  - 💰 R$ 1.300.000 | 📐 1780 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/em-serraria-sao-jose-sc-1457240982
+
+- **Imóvel para venda tem 40000 metros quadrados em Taquaras - Rancho Quei**
+  - 💰 R$ 415.000 | 📐 40000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-40000-metros-quadrados-em-taquaras-rancho-queimado-sc-1508448837
+
+- **Vendo**
+  - 💰 R$ 35.000 | 📐 40 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-1508446053
+
+- **Vende -se Terreno de 444,63m² no Bairro Carianos - Florianópolis SC**
+  - 💰 R$ 660.000 | 📐 444 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-de-444-63m-no-bairro-carianos-florianopolis-sc-1508436367
+
+- **Terreno Residencial em Jurerê Internacional**
+  - 💰 R$ 2.385.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-jurere-internacional-1508436340
+
+- **FKDS - Terreno em ótima localização no Sul da Ilha**
+  - 💰 R$ 7.100.000 | 📐 16000 m²
+  - 📍 Costeira do Pirajubaé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fkds-terreno-em-otima-localizacao-no-sul-da-ilha-1508436099
+
+- **Vende -se Terreno de 444,63m² no Bairro Carianos - Florianópolis SC**
+  - 💰 R$ 660.000 | 📐 444 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-de-444-63m-no-bairro-carianos-florianopolis-sc-1508435978
+
+- **Terreno Residencial em Jurerê Internacional**
+  - 💰 R$ 2.385.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-jurere-internacional-1508435919
+
+- **FKDS - Terreno 506m² em Condomínio Fechado nos Ingleses, Florianópolis**
+  - 💰 R$ 980.000 | 📐 506 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fkds-terreno-506m-em-condominio-fechado-nos-ingleses-florianopolis-sc-1508434527
+
+- **Chacara na Guarda do Cubatão - Palhoça SC**
+  - 💰 R$ 665.000 | 📐 250 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-na-guarda-do-cubatao-palhoca-sc-1508430682
+
+- **TERRENO 336m², 2 Pavimentos - Serraria**
+  - 💰 R$ 315.000 | 📐 336 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-336m-2-pavimentos-serraria-1508430451
+
+- **TERRENO 2 Andares, Escritura - Deltaville**
+  - 💰 R$ 300.000 | 📐 180 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-andares-escritura-deltaville-1508430431
+
+- **Terreno de 1710.55m² no bairro Pântano Do Sul**
+  - 💰 R$ 9.000.000 | 📐 1710 m²
+  - 📍 Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1710-55m-no-bairro-pantano-do-sul-1508422890
+
+- **Terreno à venda Campeche**
+  - 💰 R$ 3.250.000 | 📐 2019 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-campeche-1508422879
+
+- **TERRENO A VENDA NA NOVA SÃO JOSÉ**
+  - 💰 R$ 450.000 | 📐 370 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-nova-sao-jose-1508422412
+
+- **Vendo terreno**
+  - 💰 R$ 80.000 | 📐 600 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1508422187
+
+- **Terreno no itacorubi**
+  - 💰 R$ 110.000 | 📐 ? m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-itacorubi-1508420200
+
+- **Terreno 360 m² ? Plano Escritura e ao lado de Área Verde Permanente**
+  - 💰 R$ 330.000 | 📐 360 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360-m-plano-escritura-e-ao-lado-de-area-verde-permanente-1508417836
+
+- **Oportunidade! Terreno em Centro - Florianópolis**
+  - 💰 R$ 3.900 | 📐 463 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-em-centro-florianopolis-1508415871
+
+- **Terreno em Pagará (Colônia Santana), Santo Amaro da Imperatriz - Santa**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-pagara-colonia-santana-santo-amaro-da-imperatriz-santa-catarina-1508415898
+
