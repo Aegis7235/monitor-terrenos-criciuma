@@ -100710,3 +100710,16 @@
   - 📍 Alto Aririú — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-pagara-colonia-santana-santo-amaro-da-imperatriz-santa-catarina-1508415898
 
+
+## 🆕 2 novos anúncios — 08/06/2026 13:19
+
+- **Vendo Terreno Amplo em área verde, próximo 15 minutos da praia da Vila**
+  - 💰 R$ 360.000 | 📐 921 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-amplo-em-area-verde-proximo-15-minutos-da-praia-da-vila-em-imbituba-1508666035
+
+- **VENDO TERRENO NA PRAIA DO RINCÃO!!**
+  - 💰 R$ 87.000 | 📐 288 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-do-rincao-1508655787
+
