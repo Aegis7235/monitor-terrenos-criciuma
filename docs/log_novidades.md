@@ -100723,3 +100723,86 @@
   - 📍 Distrito Estação Cocal — Balneário Rincão
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-do-rincao-1508655787
 
+
+## 🆕 16 novos anúncios — 08/06/2026 18:09
+
+- **Terreno para Venda em Palhoça, Enseada do Brito (Ens Brito)**
+  - 💰 R$ 3.200.000 | 📐 3506 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-palhoca-enseada-do-brito-ens-brito-1508781546
+
+- **Terreno 01**
+  - 💰 R$ 250.000 | 📐 687880 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-01-1508775620
+
+- **Terreno a venda no Rio Vermelho Florianópolis**
+  - 💰 R$ 100.000 | 📐 ? m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-rio-vermelho-florianopolis-1508772625
+
+- **Seu lindo sítio em Pagará - Santo Amaro da Imperatriz SC - vista livre**
+  - 💰 R$ 449.000 | 📐 4906 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-lindo-sitio-em-pagara-santo-amaro-da-imperatriz-sc-vista-livre-e-otimo-preco-1476724466
+
+- **LOTE EM FORQUILHINHA no Bairro Vila Franca**
+  - 💰 R$ 140.000 | 📐 473 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-forquilhinha-no-bairro-vila-franca-1508767540
+
+- **Excelente Terreno com Escritura Pública no Norte da Ilha.**
+  - 💰 R$ 583.000 | 📐 464 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-com-escritura-publica-no-norte-da-ilha-1508760758
+
+- **Terreno Rural**
+  - 💰 R$ 280.000 | 📐 20000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-1508758327
+
+- **Terreno 573m² em Condomínio - Área Rural de Antônio Carlos - mrt**
+  - 💰 R$ 17.000.000 | 📐 572865 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-573m-em-condominio-area-rural-de-antonio-carlos-mrt-1508741714
+
+- **Terreno em Rancho Queimado**
+  - 💰 R$ 180.000 | 📐 900 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-rancho-queimado-1508703704
+
+- **Sítio 12.000m² com Córrego, Casa, Pomar e Área Preservada Palhoça R$ 5**
+  - 💰 R$ 550.000 | 📐 12000 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-12-000m-com-corrego-casa-pomar-e-area-preservada-palhoca-r-550-000-1508693623
+
+- **ATENÇÃO CONSTRUTORES - Terreno com 300m² no bairro Ipiranga - São José**
+  - 💰 R$ 390.000 | 📐 300 m²
+  - 📍 Ipiranga — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/atencao-construtores-terreno-com-300m-no-bairro-ipiranga-sao-jose-sc-1508691384
+
+- **Terreno com casa simples no coração do Rio Tavares**
+  - 💰 R$ 1.200.000 | 📐 525 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-casa-simples-no-coracao-do-rio-tavares-1508679479
+
+- **Terreno 468 m² no bairro Aririú, em Palhoça.**
+  - 💰 R$ 240.000 | 📐 468 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-468-m-no-bairro-aririu-em-palhoca-1508676000
+
+- **TERRENO COMERCIAL E INDUSTRIAL | 1.940 m² | WILLEMANN PARK | SERTÃO DO**
+  - 💰 R$ 2.328 | 📐 1940 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-e-industrial-1-940-m-willemann-park-sertao-do-maruim-sao-jose-1508660734
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1508652845
+
+- **Terreno em Condomínio fechado no Córrego Grande ! Colina dos Açores !**
+  - 💰 R$ 1.490.000 | 📐 700 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-corrego-grande-colina-dos-acores-1508651534
+
