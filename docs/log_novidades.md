@@ -100806,3 +100806,96 @@
   - 📍 Córrego Grande — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-corrego-grande-colina-dos-acores-1508651534
 
+
+## 🆕 18 novos anúncios — 08/06/2026 22:53
+
+- **TERRENO À VENDA - COLÔNIA SANTANA | SÃO JOSÉ/SC**
+  - 💰 R$ 70.000 | 📐 286 m²
+  - 📍 Colônia Santana — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-colonia-santana-sao-jose-sc-1508860176
+
+- **Terreno Reserva da Pedra**
+  - 💰 R$ 860.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-reserva-da-pedra-1508854319
+
+- **TERRENO PARA LOCAÇÃO NO CENTRO DE TUBARÃO/SC**
+  - 💰 R$ 2.000 | 📐 525 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-locacao-no-centro-de-tubarao-sc-1508850958
+
+- **Terreno Rio Tavares Campeche Sul da ilha**
+  - 💰 R$ 290.000 | 📐 250 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rio-tavares-campeche-sul-da-ilha-1508850125
+
+- **Terreno de alto padrão na praia do Rosa, 70mil à baixo do marcado!**
+  - 💰 R$ 380.000 | 📐 509 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-alto-padrao-na-praia-do-rosa-70mil-a-baixo-do-marcado-1508848382
+
+- **Terreno Comercial/Misto à venda  Guarda do Cubatão**
+  - 💰 R$ 350.000 | 📐 380 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-misto-a-venda-guarda-do-cubatao-1508832740
+
+- **Terreno plano 360m² Pagani**
+  - 💰 R$ 520.000 | 📐 306 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-360m-pagani-1508832703
+
+- **Terreno à venda Pedra Branca**
+  - 💰 R$ 700.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-pedra-branca-1508832189
+
+- **Terreno em Tubarão 380m2**
+  - 💰 R$ 240.000 | 📐 380 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-tubarao-380m2-1508842278
+
+- **Terreno 12.000 m2**
+  - 💰 R$ 28.000.000 | 📐 12000 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-12-000-m2-1508834780
+
+- **Terreno no centro de Tubarão SC**
+  - 💰 R$ 235.000 | 📐 330 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-tubarao-sc-1508837951
+
+- **Terreno Bairro Cidade Mineira Nova.**
+  - 💰 R$ 155.000 | 📐 390 m²
+  - 📍 Operária Nova — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-cidade-mineira-nova-1508832257
+
+- **LOTE RESERVADA DA PEDRA FUNDO LAGO**
+  - 💰 R$ 825.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-reservada-da-pedra-fundo-lago-1508826770
+
+- **Terreno à venda com 1.631m² no Condomínio Village Imperatriz por R$ 25**
+  - 💰 R$ 250.000 | 📐 1631 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-1-631m-no-condominio-village-imperatriz-por-r-250-000-em-santo-amaro-1508810966
+
+- **Lote alto e com vista aberta medindo 868,64m² no Condomínio Villa da I**
+  - 💰 R$ 450.000 | 📐 868 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-alto-e-com-vista-aberta-medindo-868-64m-no-condominio-villa-da-imperatriz-em-santo-a-1508805176
+
+- **Terreno à venda no Deltaville - 360 m² em localização central e estrat**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-deltaville-360-m-em-localizacao-central-e-estrategica-1508817853
+
+- **Terrenos ótima localização!**
+  - 💰 R$ 150.000 | 📐 100 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-otima-localizacao-1508801579
+
+- **Lote alto com 1.203m2 e fundos para área verde no Condomínio Golden Ga**
+  - 💰 R$ 700.000 | 📐 1203 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-alto-com-1-203m2-e-fundos-para-area-verde-no-condominio-golden-garden-em-santo-amaro-1508821666
+
