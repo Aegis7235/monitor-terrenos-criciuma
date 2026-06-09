@@ -101220,3 +101220,186 @@
   - 📍  — São Bonifácio
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-726000-m-por-r-3-080-000-santo-antonio-sao-bonifacio-sc-1508997058
 
+
+## 🆕 36 novos anúncios — 09/06/2026 17:38
+
+- **Sitio com bela vista em Águas Mornas - SC**
+  - 💰 R$ 220.000 | 📐 37000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-bela-vista-em-aguas-mornas-sc-1509080496
+
+- **Terreno de frente para a geral do Aririú - Palhoça - SC**
+  - 💰 R$ 8.000.000 | 📐 3400 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-frente-para-a-geral-do-aririu-palhoca-sc-1509077987
+
+- **9 mil Pés de Pinus com 25 anos - 104 Metros de Frente**
+  - 💰 R$ 1.100.000 | 📐 10000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/9-mil-pes-de-pinus-com-25-anos-104-metros-de-frente-1509077609
+
+- **Terreno em Rancho Queimado com aproximados 13 mil Pés de Pinus com 25 **
+  - 💰 R$ 2.200.000 | 📐 10000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-rancho-queimado-com-aproximados-13-mil-pes-de-pinus-com-25-anos-104-metros-de-1509077651
+
+- **Belo Sitio em Santo Amaro da Imperatriz!**
+  - 💰 R$ 2.800.000 | 📐 70000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-santo-amaro-da-imperatriz-1509076462
+
+- **Oportunidade comercial: amplo terreno de 2.160 m² com acesso duplo**
+  - 💰 R$ 8.900 | 📐 2160 m²
+  - 📍 Prado de Baixo — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-comercial-amplo-terreno-de-2-160-m-com-acesso-duplo-1509076143
+
+- **Bela Chácara em Caldas da Imperatriz!**
+  - 💰 R$ 390.000 | 📐 2963 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/bela-chacara-em-caldas-da-imperatriz-1509072722
+
+- **Chácara em Imaruí/SC Fazenda Rio das Garças**
+  - 💰 R$ 800.000 | 📐 120 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-imarui-sc-fazenda-rio-das-garcas-1509065207
+
+- **Sitio em Caldas da Imperatriz!**
+  - 💰 R$ 950.000 | 📐 28700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-caldas-da-imperatriz-1509065129
+
+- **Terreno em Biguaçu entre Antônio Carlos**
+  - 💰 R$ 200.000 | 📐 450 m²
+  - 📍 Prado de Baixo — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-biguacu-entre-antonio-carlos-1509145575
+
+- **Sitio em Santo Amaro da Imperatriz, imovel com casa e duas cabanas!**
+  - 💰 R$ 980.000 | 📐 11000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-santo-amaro-da-imperatriz-imovel-com-casa-e-duas-cabanas-1509064485
+
+- **Chácara em São Pedro de Alcântara - SC**
+  - 💰 R$ 230.000 | 📐 3000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-sao-pedro-de-alcantara-sc-1509061594
+
+- **Terreno em Área Industrial!**
+  - 💰 R$ 4.000.000 | 📐 8615 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-area-industrial-1509060876
+
+- **Lote a venda no Bairro Santo Antônio de Pádua**
+  - 💰 R$ 175.000 | 📐 288 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-bairro-santo-antonio-de-padua-1509122936
+
+- **Sitio na Espanha**
+  - 💰 R$ 900.000 | 📐 50000 m²
+  - 📍 Prado de Baixo — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-na-espanha-1509121045
+
+- **Vendo terreno santo Amaro**
+  - 💰 R$ 250.000 | 📐 368 m²
+  - 📍 Morro dos Ventura — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-santo-amaro-1509120745
+
+- **Terreno no Centr de  Rancho Queimado - SC**
+  - 💰 R$ 4.500.000 | 📐 8600 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centr-de-rancho-queimado-sc-1509049787
+
+- **TERRENO 230M² VARGEM DO BOM JESUS**
+  - 💰 R$ 80.000 | 📐 230 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-230m-vargem-do-bom-jesus-1509112126
+
+- **Sitio com bela vista em Águas Mornas - SC**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-bela-vista-em-aguas-mornas-sc-1509046352
+
+- **Condominio Floreville em Caldas da Imperatriz - Santo Amaro da Imperat**
+  - 💰 R$ 450.000 | 📐 500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-floreville-em-caldas-da-imperatriz-santo-amaro-da-imperatriz-sc-1509045812
+
+- **Venda de Sítio Encantador com 47.232,84m² (4,7 Hectares) em Biguaçu  S**
+  - 💰 R$ 2.600.000 | 📐 47232 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-de-sitio-encantador-com-47-232-84m-4-7-hectares-em-biguacu-sc-1509045395
+
+- **Sítio em Biguaçú - Próximo ao Contorno Viário**
+  - 💰 R$ 350.000 | 📐 5618 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-biguacu-proximo-ao-contorno-viario-1509045370
+
+- **Terreno Reserva da Pedra com Vista para a Pedra Branca**
+  - 💰 R$ 960.000 | 📐 321 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-reserva-da-pedra-com-vista-para-a-pedra-branca-1509043023
+
+- **AREA - CENTRO - SC**
+  - 💰 R$ 190.000 | 📐 447 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-centro-sc-1509038740
+
+- **Terreno Urbano Palhoça - Bela Vista - Área 9.378 M² - Próximo Br101**
+  - 💰 R$ 9.500.000 | 📐 9378 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-palhoca-bela-vista-area-9-378-m-proximo-br101-1509096691
+
+- **Sitio grande  na Fazenda de Dentro**
+  - 💰 R$ 1.200.000 | 📐 32000 m²
+  - 📍 Prado de Baixo — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-grande-na-fazenda-de-dentro-1474890663
+
+- **TERRENO DE 480 M² À VENDA NO JOÃO PAULO - FLORIANÓPOLIS**
+  - 💰 R$ 1.100.000 | 📐 480 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-480-m-venda-no-joao-paulo-florianopolis-1509037109
+
+- **TERRENO EM SANTO AMARO DA IMPERATRIZ IMPERDÍVEL**
+  - 💰 R$ 250.000 | 📐 800 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-santo-amaro-da-imperatriz-imperdivel-1509088831
+
+- **Terreno de 510m² no João Paulo - Potencial para projeto de alto padrão**
+  - 💰 R$ 900.000 | 📐 510 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-510m-no-joao-paulo-potencial-para-projeto-de-alto-padrao-1509035887
+
+- **Oportunidade Comercial em Jardim Ultramar!**
+  - 💰 R$ 195.000 | 📐 150 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-comercial-em-jardim-ultramar-1509035758
+
+- **Oportunidade para construtores! Terreno 1.319m2, Vargem Grande**
+  - 💰 R$ 1.800.000 | 📐 1319 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-construtores-terreno-1-319m2-vargem-grande-1509082658
+
+- **Terreno no morretes**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-morretes-1509071657
+
+- **TERRENO BEM LOCALIZADO**
+  - 💰 R$ 700.000 | 📐 360 m²
+  - 📍 Jardim Cidade de Florianópolis — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bem-localizado-1509071604
+
+- **Vendo terreno no bairro Fundos em Biguaçu**
+  - 💰 R$ 170.000 | 📐 352 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-bairro-fundos-em-biguacu-1509070946
+
+- **Terreno à venda na Trindade - Florianópolis/SC.**
+  - 💰 R$ 1.300.000 | 📐 720 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-trindade-florianopolis-sc-1509032930
+
+- **Terreno murado, com IPTU, água e luz ligada! Armação .**
+  - 💰 R$ 399.000 | 📐 250 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-murado-com-iptu-agua-e-luz-ligada-armacao-1509068538
+
