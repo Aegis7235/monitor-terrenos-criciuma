@@ -101157,3 +101157,66 @@
   - 📍 Praia Areias Claras — Balneário Gaivota
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-sc-balneario-gaivota-praia-areias-claras-RS250000/id-43279000/
 
+
+## 🆕 12 novos anúncios — 09/06/2026 12:18
+
+- **Terreno de esquina, 459m2, no Real Parque, Vargem do Bom Jesus. R$ 625**
+  - 💰 R$ 625.000 | 📐 459 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-459m2-no-real-parque-vargem-do-bom-jesus-r-625-000-1509024644
+
+- **Terreno plano de 450m², 15x30, no Real Parque. R$ 515.000**
+  - 💰 R$ 515.000 | 📐 450 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-de-450m-15x30-no-real-parque-r-515-000-1509024560
+
+- **Terreno / Lote / Condomínio em Sertão do Maruim - São José**
+  - 💰 R$ 350.000 | 📐 373 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-condominio-em-sertao-do-maruim-sao-jose-1509024250
+
+- **Terreno / Lote / Condomínio em Sertão do Maruim - São José**
+  - 💰 R$ 500.000 | 📐 602 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-condominio-em-sertao-do-maruim-sao-jose-1509022167
+
+- **Terreno escriturado perto da Udesc**
+  - 💰 R$ 139.000 | 📐 170 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-perto-da-udesc-1509038690
+
+- **Casas com área de 5 hec.( vai até a lagoa)**
+  - 💰 R$ 1.790.000 | 📐 48000000 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casas-com-area-de-5-hec-vai-ate-a-lagoa-1509036757
+
+- **Terreno à venda em Imaruí-SC, bairro Imaruí, 6,20 hectares de área! Ap**
+  - 💰 R$ 890.000 | 📐 6 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-imarui-sc-bairro-imarui-6-20-hectares-de-area-aproveite-essa-oportun-1509004319
+
+- **Excelente Oportunidade: Terreno Industrial/Comercial em Palhoça - 3.50**
+  - 💰 R$ 3.200.000 | 📐 3506 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-terreno-industrial-comercial-em-palhoca-3-506-m-1509001184
+
+- **Terreno à venda na Agronômica - Florianópolis**
+  - 💰 R$ 800.000 | 📐 653 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-agronomica-florianopolis-1509000676
+
+- **Terreno comercial ao lado do Naçoes Shop**
+  - 💰 R$ 1.280.000 | 📐 5833 m²
+  - 📍 Nossa Senhora da Salete — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-ao-lado-do-nacoes-shop-1508998085
+
+- **Oportunidade! Terreno de 549m² na Av. Centenário**
+  - 💰 R$ 2.610.000 | 📐 550 m²
+  - 📍 Próspera — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-de-549m-na-av-centenario-1508998029
+
+- **Terreno à venda, 726000 m² por R$ 3.080.000 - Santo Antonio - São Boni**
+  - 💰 R$ 3.080.000 | 📐 726000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-726000-m-por-r-3-080-000-santo-antonio-sao-bonifacio-sc-1508997058
+
