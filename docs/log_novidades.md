@@ -101662,3 +101662,81 @@
   - 📍  — Garopaba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-comercial-a-venda-em-garopaba-sc-no-campo-duna-oportunidade-unica-em-localizacao-pr-1509325124
 
+
+## 🆕 15 novos anúncios — 10/06/2026 18:10
+
+- **Terrenos na área central vendem parcelados**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-na-area-central-vendem-parcelados-1509389889
+
+- **TERRENO NO BAIRRO AREAIS CLARAS**
+  - 💰 R$ 87.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-areais-claras-1509389891
+
+- **TERRENO NO BAIRRO AREIAS CLARAS BAL. GAIVOTA SC**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-areias-claras-bal-gaivota-sc-1509389867
+
+- **Balneário Esplanada**
+  - 💰 R$ 100.000 | 📐 375 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/balneario-esplanada-1509378683
+
+- **TERRENO ESCRITURADO A POUCOS METROS DO MAR COM VALOR DE OCASIÃO**
+  - 💰 R$ 79.000 | 📐 324 m²
+  - 📍 Centro — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-a-poucos-metros-do-mar-com-valor-de-ocasiao-1509377929
+
+- **TERRENO DE ESQUINA COM PARCELAMENTO DIRETO EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-com-parcelamento-direto-em-balneario-gaivota-1509364135
+
+- **OPORTUNIDADE LADO A LADA PARA INVESTIMENTO EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-lado-a-lada-para-investimento-em-balneario-gaivota-1509436696
+
+- **Lote Industrial de 450m² em frente à saída para a Av. Patrício Lima**
+  - 💰 R$ 390.000 | 📐 450 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-industrial-de-450m-em-frente-a-saida-para-a-av-patricio-lima-1509450046
+
+- **Terreno com Escritura à Venda no Parque da Lagoa**
+  - 💰 R$ 160.000 | 📐 200 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-a-venda-no-parque-da-lagoa-1509450056
+
+- **Terreno no Rio D'una Seu Refúgio na Natureza**
+  - 💰 R$ 100.000 | 📐 615 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-d-una-seu-refugio-na-natureza-1509450040
+
+- **Terreno à venda na Roça Grande - Imbituba/SC 432m²**
+  - 💰 R$ 130.000 | 📐 432 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-roca-grande-imbituba-sc-432m-1509450035
+
+- **Venda-Terreno-Laguna-Caputera**
+  - 💰 R$ 269.000 | 📐 498 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-laguna-caputera-1509440901
+
+- **Dois terrenos à venda na Praia do Campo Bom - Jaguaruna/SC**
+  - 💰 R$ 350.000 | 📐 ? m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-a-venda-na-praia-do-campo-bom-jaguaruna-sc-1509433619
+
+- **VENDA TERRENO CAMPO D`UNA PROXIMO DA LAGOA E PRAIA DO ROSA em GAROPABA**
+  - 💰 R$ 520.000 | 📐 748 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-campo-d-una-proximo-da-lagoa-e-praia-do-rosa-em-garopaba-sc-1407789657
+
+- **Lote Industrial de 450m² em frente à saída para a Av. Patrício Lima**
+  - 💰 R$ 390.000 | 📐 450 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-industrial-de-450m-em-frente-a-saida-para-a-av-patricio-lima-1509450635
+
