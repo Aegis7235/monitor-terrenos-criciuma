@@ -101644,3 +101644,21 @@
   - 📍 Lagoa da Serra — Araranguá
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-ararangua-lagoa-da-serra-2m2-RS530000/id-43494090/
 
+
+## 🆕 3 novos anúncios — 10/06/2026 12:33
+
+- **Terreno praia do Rosa**
+  - 💰 R$ 350.000 | 📐 505 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-do-rosa-1509347967
+
+- **Loteamento Praia Paiquerê, Araranguá/SC**
+  - 💰 R$ 277.000 | 📐 390 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-praia-paiquere-ararangua-sc-1509335875
+
+- **Casa comercial à venda em Garopaba-SC, no Campo Duna: oportunidade úni**
+  - 💰 R$ 700.000 | 📐 560 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-comercial-a-venda-em-garopaba-sc-no-campo-duna-oportunidade-unica-em-localizacao-pr-1509325124
+
