@@ -101596,3 +101596,51 @@
   - 📍  — Paulo Lopes
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno--paulo-lopes----cova-triste-1509165299
 
+
+## 🆕 9 novos anúncios — 10/06/2026 07:21
+
+- **Terreno na SULMAR**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-sulmar-1509297283
+
+- **TERRENO ESQUINA NA AV. INTERPRAIS EM MIRATORRES**
+  - 💰 R$ 190.000 | 📐 360 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-na-av-interprais-em-miratorres-1509297071
+
+- **Terreno à venda frente para a Avenida Interpraias**
+  - 💰 R$ 49.000 | 📐 504 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-frente-para-a-avenida-interpraias-1509297043
+
+- **EXCLUSIVIDADE E VALORIZAÇÃO A POUCOS PASSOS DO MAR**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/exclusividade-e-valorizacao-a-poucos-passos-do-mar-1509297033
+
+- **Terreno no Cristo rei VI**
+  - 💰 Não informado | 📐 357 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-cristo-rei-vi-1509289664
+
+- **ÁREA IDEAL PARA SÍTIO EM PAULO LOPES  ACEITA VEÍCULO**
+  - 💰 R$ 219.900 | 📐 6480 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-ideal-para-sitio-em-paulo-lopes-aceita-veiculo-1509259097
+
+- **TERRENO 6.480m² EM PAULO LOPES | ÁGUA CORRENTE E ÓTIMO ACESSO**
+  - 💰 R$ 219.900 | 📐 6480 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-6-480m-em-paulo-lopes-agua-corrente-e-otimo-acesso-1509255136
+
+- **Terreno no Loteamento Bosque em Imbituba/SC**
+  - 💰 R$ 92.000 | 📐 305 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-bosque-em-imbituba-sc-1509247313
+
+- **Chácara / sítio à venda na Lagoa da Serra, Araranguá  por R$ 530.000**
+  - 💰 R$ 530.000 | 📐 2 m²
+  - 📍 Lagoa da Serra — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-ararangua-lagoa-da-serra-2m2-RS530000/id-43494090/
+
