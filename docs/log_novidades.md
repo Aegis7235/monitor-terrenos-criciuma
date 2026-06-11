@@ -101743,3 +101743,216 @@
 
 ## ✅ Sem novidades — 10/06/2026 23:05
 
+
+## 🆕 42 novos anúncios — 11/06/2026 08:16
+
+- **Loteamento para Venda em Garopaba, Areias de Palhocinha**
+  - 💰 R$ 451.025 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-para-venda-em-garopaba-areias-de-palhocinha-1509606145
+
+- **Terreno para Venda em Imbituba, Vila Nova**
+  - 💰 R$ 430.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-imbituba-vila-nova-1509606129
+
+- **Área para Venda em Paulo Lopes, Bairro: 2**
+  - 💰 R$ 3.000.000 | 📐 115416 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-para-venda-em-paulo-lopes-bairro-2-1509606094
+
+- **Terreno para Venda em Garopaba, Jardim Panorâmico**
+  - 💰 R$ 960.958 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-garopaba-jardim-panoramico-1509606062
+
+- **Lotes à Venda no Solar do Campo | Campo Duna - Garopaba/SC**
+  - 💰 R$ 295.000 | 📐 364 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-a-venda-no-solar-do-campo-campo-duna-garopaba-sc-1509605588
+
+- **Terreno à venda, 360 m² por R$ 80.000 - Miratorres - Passo de Torres/S**
+  - 💰 R$ 80.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-80-000-miratorres-passo-de-torres-sc-1509600465
+
+- **Terreno Rural de 3,5 Hectares em Maracajá/SC - Prontinho para Produção**
+  - 💰 R$ 420.000 | 📐 35000 m²
+  - 📍  — Maracajá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-de-3-5-hectares-em-maracaja-sc-prontinho-para-producao-de-arroz-1509585171
+
+- **Terreno com Vista Incrível na Praia do Siriú**
+  - 💰 R$ 520.000 | 📐 347 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-incrivel-na-praia-do-siriu-1509584166
+
+- **Terreno à venda no bairro Macacu - Garopaba/SC**
+  - 💰 R$ 350.000 | 📐 349 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-macacu-garopaba-sc-1509580095
+
+- **Terreno à venda em Xangri-lá dos Mares  Passo de Torres**
+  - 💰 R$ 97.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-xangri-la-dos-mares-passo-de-torres-1509572428
+
+- **Terreno na Marginal da BR 101 em Paulo Lopes 324 m²**
+  - 💰 R$ 265.000 | 📐 324 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-marginal-da-br-101-em-paulo-lopes-324-m-1509571423
+
+- **Terreno à venda no Bairro Linha Anta, Içara**
+  - 💰 R$ 120.000 | 📐 368 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-linha-anta-icara-1509559657
+
+- **Sítio à venda em Içara, Boa Vista**
+  - 💰 R$ 1.500.000 | 📐 8100 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-icara-boa-vista-1509559653
+
+- **Terreno com 1782 m² e vista privilegiada 360 graus**
+  - 💰 R$ 490.000 | 📐 1782 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-1782-m-e-vista-privilegiada-360-graus-1509557241
+
+- **Terreno à Beira da Lagoa Doce no Arroio do Rosa - Imbituba/SC**
+  - 💰 R$ 740.000 | 📐 1478 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-beira-da-lagoa-doce-no-arroio-do-rosa-imbituba-sc-1509542577
+
+- **Terreno Plano com 700m² no Arroio - Imbituba/SC**
+  - 💰 R$ 320.000 | 📐 689 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-com-700m-no-arroio-imbituba-sc-1509542350
+
+- **Terreno de 324m2 em Imbituba SC**
+  - 💰 R$ 80.000 | 📐 324 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-324m2-em-imbituba-sc-1509540443
+
+- **Terreno à Venda no Centro de Capivari de Baixo!**
+  - 💰 R$ 193.500 | 📐 312 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-capivari-de-baixo-1509522428
+
+- **Sítio 2hectares com Casa Maravilhosa em Alfredo Wagner**
+  - 💰 R$ 790.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-2hectares-com-casa-maravilhosa-em-alfredo-wagner-1381784377
+
+- **Fazenda de 113 Hectares na Santa Bárbara - Alfredo Wagner**
+  - 💰 R$ 6.900.000 | 📐 1130000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-de-113-hectares-na-santa-barbara-alfredo-wagner-1423903828
+
+- **Sítio em Alfredo Wagner com 8.739 m2 com matrícula**
+  - 💰 R$ 150.000 | 📐 8739 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-com-8-739-m2-com-matricula-1334446462
+
+- **Terreno no alto da Santa Bárbara 40.000 m2 - Alfredo Wagner - Serra Ca**
+  - 💰 R$ 497.000 | 📐 40000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-alto-da-santa-barbara-40-000-m2-alfredo-wagner-serra-catarinense-1440070084
+
+- **Sítio com 20 hectares em Alfredo Wagner  SC**
+  - 💰 R$ 2.000.000 | 📐 200000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-20-hectares-em-alfredo-wagner-sc-1426173163
+
+- **Terreno de 8,5 hectares em Alfredo Wagner  SC**
+  - 💰 R$ 800.000 | 📐 85000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-8-5-hectares-em-alfredo-wagner-sc-1449024964
+
+- **Sítio e Pousada à Venda - Rústica e Aconchegante - Alfredo Wagner - SC**
+  - 💰 R$ 1.400.000 | 📐 60000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-e-pousada-a-venda-rustica-e-aconchegante-alfredo-wagner-sc-1370945458
+
+- **Sítio 1 dormitórios à venda Zona Rural Alfredo Wagner/SC**
+  - 💰 R$ 390.000 | 📐 32000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1-dormitorios-a-venda-zona-rural-alfredo-wagner-sc-1440046491
+
+- **Terreno de 26.000m2 na Santa Bárbara em Alfredo Wagner - SC**
+  - 💰 R$ 350.000 | 📐 26000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-26-000m2-na-santa-barbara-em-alfredo-wagner-sc-1440048542
+
+- **OPORTUNIDADE: Sítio com 40.000m² em Alfredo Wagner - Serra Catarinense**
+  - 💰 R$ 197.000 | 📐 40000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-sitio-com-40-000m-em-alfredo-wagner-serra-catarinense-1346151700
+
+- **Terreno 20.000m² na Serra da Tartaruga em Alfredo Wagner-SC**
+  - 💰 R$ 287.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-20-000m-na-serra-da-tartaruga-em-alfredo-wagner-sc-1440537569
+
+- **Imóvel para venda com 20000 metros quadrados em Penha - Paulo Lopes - **
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-20000-metros-quadrados-em-penha-paulo-lopes-sc-1509506544
+
+- **Loteamento Vale do Sol, parcelamento direto, Criciúma / SC**
+  - 💰 R$ 108.000 | 📐 359 m²
+  - 📍 Mina Brasil — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-vale-do-sol-parcelamento-direto-criciuma-sc-1509505322
+
+- **Loteamento, Parque Max José Arns, Centro, Forquilhinha / SC**
+  - 💰 R$ 219.000 | 📐 370 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-parque-max-jose-arns-centro-forquilhinha-sc-1509504737
+
+- **Loteamento Jardim América - Tubarão SC**
+  - 💰 R$ 177.657 | 📐 252 m²
+  - 📍 Passagem — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-jardim-america-tubarao-sc-1509504648
+
+- **Lotes residenciais no Vivenda Pescaria em Pescaria Brava**
+  - 💰 R$ 86.940 | 📐 200 m²
+  - 📍  — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-residenciais-no-vivenda-pescaria-em-pescaria-brava-1509504637
+
+- **Terreno em Imaruí**
+  - 💰 R$ 739.000 | 📐 21277150 m²
+  - 📍 Distrito Rio D'Una — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imarui-1509500033
+
+- **VENDA: SÍTIO com 7,5 Hectares, Uma Raridade, Alfredo Wagner - SC**
+  - 💰 R$ 860.000 | 📐 75000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-sitio-com-7-5-hectares-uma-raridade-alfredo-wagner-sc-1509499817
+
+- **Terreno em Tubarão**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-tubarao-1509493184
+
+- **CHÁCARA A VENDA EM CANELINHA**
+  - 💰 R$ 110.000 | 📐 700 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-em-canelinha-1509483697
+
+- **Imóvel para venda com 100000 metros quadrados com 2 quartos em Catuíra**
+  - 💰 R$ 895.000 | 📐 100000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-100000-metros-quadrados-com-2-quartos-em-catuira-alfredo-wagner-1509469258
+
+- **Terrenos no Loteamento Reserva do Siriú- B. Siriú/ Garopaba/SC**
+  - 💰 R$ 586.170 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-loteamento-reserva-do-siriu-b-siriu-garopaba-sc-1509460575
+
+- **Terreno em Imbituba com 1158m² à venda por R$ 600.000**
+  - 💰 R$ 600.000 | 📐 1158 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-com-1158m-a-venda-por-r-600-000-1509568115
+
+- **Terreno em Imbituba com 1158m² à venda por R$ 600.000**
+  - 💰 R$ 600.000 | 📐 1158 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-com-1158m-a-venda-por-r-600-000-1509555585
+
