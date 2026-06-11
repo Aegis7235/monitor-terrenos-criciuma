@@ -101964,3 +101964,6 @@
   - 📍 COHAB — Siderópolis
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-sideropolis-cohab-142m2-RS93000/id-43551430/
 
+
+## ✅ Sem novidades — 11/06/2026 18:22
+
