@@ -101967,3 +101967,96 @@
 
 ## ✅ Sem novidades — 11/06/2026 18:22
 
+
+## 🆕 18 novos anúncios — 11/06/2026 22:58
+
+- **Terreno de 2,1 hectares com vista entre Bom Retiro e Alfredo Wagner  S**
+  - 💰 R$ 340.000 | 📐 21000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-1-hectares-com-vista-entre-bom-retiro-e-alfredo-wagner-sc-1509792944
+
+- **Terreno de 2,7 hectares com Rio incrível em Alfredo Wagner  SC**
+  - 💰 R$ 297.000 | 📐 27000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-7-hectares-com-rio-incrivel-em-alfredo-wagner-sc-1509793014
+
+- **Terreno á venda - Arroio do Rosa | Imbituba-SC**
+  - 💰 R$ 230.000 | 📐 480 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-arroio-do-rosa-imbituba-sc-1509749033
+
+- **Ocasião!!!! 2 casas por preço de uma. Aceitamos troca**
+  - 💰 R$ 165.000 | 📐 1000 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ocasiao--2-casas-por-preco-de-uma-aceitamos-troca-1509674625
+
+- **Sítio 31 Hectares em São Martinho/SC | Nascentes | Casa Histórica | Po**
+  - 💰 R$ 1.400.000 | 📐 ? m²
+  - 📍  — São Martinho
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-31-hectares-em-sao-martinho-sc-nascentes-casa-historica-potencial-para-chales-1509671978
+
+- **Parcele direto c/ proprietário! 200 m do mar! Terreno 390m² escriturad**
+  - 💰 R$ 175.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parcele-direto-c-proprietario-200-m-do-mar-terreno-390m-escriturado-negocicao-facilit-1509652018
+
+- **Terreno escriturado de 480m² na avenida principal. Financiável Aceita-**
+  - 💰 R$ 225.000 | 📐 480 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-de-480m-na-avenida-principal-financiavel-aceita-se-carro-neg-facili-1509649127
+
+- **Terreno para Venda em Paulo Lopes, Santa Cruz**
+  - 💰 R$ 1.499.900 | 📐 90000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-paulo-lopes-santa-cruz-1509633658
+
+- **Terreno para Venda em Paulo Lopes, Santa Cruz**
+  - 💰 R$ 2.399.900 | 📐 190000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-paulo-lopes-santa-cruz-1509633056
+
+- **Preço de ocasião Terreno de 390m² aterrdado e murado Escriturado Pront**
+  - 💰 R$ 145.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/preco-de-ocasiao-terreno-de-390m-aterrdado-e-murado-escriturado-pronto-para-construir-1509628515
+
+- **TERRENO DE 4,3 HECTARES COM RIACHO, NASCENTE EM ALFREDO WAGNER, SC**
+  - 💰 R$ 247.000 | 📐 43000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-4-3-hectares-com-riacho-nascente-em-alfredo-wagner-sc-1430373469
+
+- **Terreno para Sítio com 31.000m2 na Santa Bárbara - Alfredo Wagner - SC**
+  - 💰 R$ 380.000 | 📐 31000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-com-31-000m2-na-santa-barbara-alfredo-wagner-sc-1440046511
+
+- **Terreno de 4.000m2 com escritura e Vista em Alfredo Wagner - SC**
+  - 💰 R$ 150.000 | 📐 4000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-4-000m2-com-escritura-e-vista-em-alfredo-wagner-sc-1440046014
+
+- **Loteamento Villa dos Araçás, Tubarão/SC**
+  - 💰 R$ 149.700 | 📐 264 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-villa-dos-aracas-tubarao-sc-1509613301
+
+- **Brognoli Vende - Terreno em São João Batista - Barbada!**
+  - 💰 R$ 100.000 | 📐 640 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-terreno-em-sao-joao-batista-barbada-1509645334
+
+- **Sítio com 10 hectares com 2 casas, em Garopaba/SC**
+  - 💰 R$ 2.100.000 | 📐 250 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-10-hectares-com-2-casas-em-garopaba-sc-1509644666
+
+- **Terreno em Ibiraquera com 1493m² à venda por R$ 950.000**
+  - 💰 R$ 950.000 | 📐 1493 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ibiraquera-com-1493m-a-venda-por-r-950-000-1509644171
+
+- **Chácara com 13 mil m2 em condomínio rural, em Paulo Lopes/Garopaba**
+  - 💰 R$ 870.000 | 📐 100 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-13-mil-m2-em-condominio-rural-em-paulo-lopes-garopaba-1509644253
+
