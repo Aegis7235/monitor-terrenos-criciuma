@@ -101956,3 +101956,11 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-com-1158m-a-venda-por-r-600-000-1509555585
 
+
+## 🆕 1 novos anúncios — 11/06/2026 12:53
+
+- **Oportunidade Única em SIDEROPOLIS - SC | Tipo: Casa | Negociação: Leil**
+  - 💰 R$ 93.000 | 📐 308 m²
+  - 📍 COHAB — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-sideropolis-cohab-142m2-RS93000/id-43551430/
+
