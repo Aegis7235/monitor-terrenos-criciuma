@@ -103684,3 +103684,76 @@
   - 📍 São Bento Alto — Nova Veneza
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-nova-veneza-sao-bento-alto-9m2-RS1100000/id-43601562/
 
+
+## 🆕 14 novos anúncios — 12/06/2026 22:38
+
+- **OPORTUNIDADE DE INVESTIMENTO! Terreno rural 19 hectares com lindas cac**
+  - 💰 R$ 660.000 | 📐 9000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-terreno-rural-19-hectares-com-lindas-cachoeiras-1316304254
+
+- **Terreno com 720m², parcelamento direto, Forquilinha, São José**
+  - 💰 R$ 480.000 | 📐 720 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-720m-parcelamento-direto-forquilinha-sao-jose-1510041503
+
+- **Vendo sitio em Alfredo Wagner**
+  - 💰 R$ 280.000 | 📐 8300 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-alfredo-wagner-1510029647
+
+- **TERRENO NO LOT. MORADA RIO BELO | Entrada R$ 30 Mil | Aceito Veiculo e**
+  - 💰 R$ 30.000 | 📐 278 m²
+  - 📍  — Orleans
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-lot-morada-rio-belo-entrada-r-30-mil-aceito-veiculo-e-volto-dif-1510030443
+
+- **Terreno de esquina na Pedra Branca**
+  - 💰 R$ 820.000 | 📐 571 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-na-pedra-branca-1510025606
+
+- **Terreno com 150 m² no Delta Ville - Biguaçu - SC**
+  - 💰 R$ 218.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-150-m-no-delta-ville-biguacu-sc-1510024096
+
+- **Terreno com 377m² à venda Pedra Branca, Palhoça, SC**
+  - 💰 R$ 620.000 | 📐 363 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-377m-a-venda-pedra-branca-palhoca-sc-1417229266
+
+- **Terreno de 10.230,78mts - Plano - Condomínio Industrial - Biguaçu - SC**
+  - 💰 R$ 10.230.780 | 📐 10230 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-10-230-78mts-plano-condominio-industrial-biguacu-sc-1474739026
+
+- **Sitio em Alfredo Wagner**
+  - 💰 R$ 300.000 | 📐 1000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-1510016585
+
+- **Terreno à venda em Vargem Grande, Florianópolis.**
+  - 💰 R$ 600.000 | 📐 10000 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-vargem-grande-florianopolis-1509998983
+
+- **Terreno 800m² | Condomínio Villagio Verde | Criciúma-SC**
+  - 💰 R$ 450.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-800m-condominio-villagio-verde-criciuma-sc-1509996484
+
+- **? Lote Residencial no Viva Verde 379,92 | Criciúma/SC | Excelente Opor**
+  - 💰 R$ 118.800 | 📐 379 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-residencial-no-viva-verde-379-92-criciuma-sc-excelente-oportunidade-1509991860
+
+- **Terreno no Condomínio Vilas do Mar no Passo de Torres c**
+  - 💰 R$ 275.000 | 📐 399 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-vilas-do-mar-no-passo-de-torres-c-1509993848
+
+- **Imóvel para venda tem 717 metros quadrados em Barra do Aririú - Palhoç**
+  - 💰 R$ 630.000 | 📐 717 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-717-metros-quadrados-em-barra-do-aririu-palhoca-sc-1509993563
+
