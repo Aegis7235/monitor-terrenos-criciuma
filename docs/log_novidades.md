@@ -103103,3 +103103,76 @@
   - 📍 Humaitá — Tubarão
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-na-patricio-lima-com-alto-potencial-construtivo-1509871016
 
+
+## 🆕 14 novos anúncios — 12/06/2026 12:32
+
+- **LOTE A MARGEM DA BR 12x140**
+  - 💰 R$ 249.900 | 📐 1680 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-margem-da-br-12x140-1509903868
+
+- **Vendo lote em Gravatal bairro Bela Vista**
+  - 💰 R$ 100.000 | 📐 370 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-em-gravatal-bairro-bela-vista-1509897858
+
+- **Preço de ocasião. Terreno de  390m² aterrado escriturado. C/ energia e**
+  - 💰 R$ 169.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/preco-de-ocasiao-terreno-de-390m-aterrado-escriturado-c-energia-eletrica-financiavel-1509896983
+
+- **Terreno à venda, Morada do Sol, Balneário Rincão, SC**
+  - 💰 R$ 490.000 | 📐 10 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-morada-do-sol-balneario-rincao-sc-1509896824
+
+- **Casa para Venda em Içara, Zona Sul, 2 dormitórios, 1 banheiro**
+  - 💰 R$ 330.000 | 📐 50 m²
+  - 📍 Zona Sul — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-icara-zona-sul-288m2-RS330000/id-40308836/
+
+- **Casa com 3 quartos à venda na Rua Emilia Tibério Joaquim, 311, Tereza **
+  - 💰 R$ 742.000 | 📐 175 m²
+  - 📍 Tereza Cristina — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-icara-tereza-cristina-375m2-RS742000/id-40136575/
+
+- **Casa com 3 quartos à venda no Lagoão, Araranguá**
+  - 💰 R$ 295.000 | 📐 67 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-ararangua-lagoao-RS295000/id-29123872/
+
+- **Imóvel com grandes espaço de terreno de área construída esperando pra **
+  - 💰 R$ 230.000 | 📐 163 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-caverazinho-600m2-RS230000/id-43409957/
+
+- **Casa com 3 quartos à venda na Avenida Getúlio Vargas, 1, Caverazinho, **
+  - 💰 R$ 1.250.000 | 📐 155 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-ararangua-caverazinho-155m2-RS1250000/id-36017776/
+
+- **Cobertura com 3 quartos à venda na PREFEITO FRANCISCO LUMMERTZ JUNIOR,**
+  - 💰 R$ 1.620.000 | 📐 211 m²
+  - 📍 Nova Brasília — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/cobertura-a-venda-3-quartos-com-garagem-sc-sombrio-nova-brasilia-227m2-RS1620000/id-14865926/
+
+- **Atenção investidores, terreno em sombrio oportunidade imperdível!!**
+  - 💰 R$ 350.000 | 📐 330000 m²
+  - 📍 São Pedro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-sombrio-sao-pedro-330000m2-RS350000/id-42723599/
+
+- **Oportunidade Única em SOMBRIO - SC | Tipo: Apartamento | Negociação: L**
+  - 💰 R$ 270.000 | 📐 49 m²
+  - 📍 Centro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/apartamento-a-venda-2-quartos-com-garagem-sc-sombrio-centro-87m2-RS270000/id-43551431/
+
+- **Casa com 4 quartos à venda no Paraiso, Passo de Torres**
+  - 💰 R$ 1.400.000 | 📐 200 m²
+  - 📍 Paraiso — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-passo-de-torres-paraiso-200m2-RS1400000/id-43279276/
+
+- **Casa á venda com 2 dormitórios no bairro Village Dunas em Balneário Ga**
+  - 💰 R$ 585.000 | 📐 400 m²
+  - 📍 Village Dunas I — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-village-dunas-i-300m2-RS585000/id-40578830/
+
