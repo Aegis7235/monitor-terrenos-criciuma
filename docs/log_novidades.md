@@ -103953,3 +103953,136 @@
 
 ## ✅ Sem novidades — 13/06/2026 11:21
 
+
+## 🆕 26 novos anúncios — 13/06/2026 16:27
+
+- **Terreno para venda em Governador Celso Ramos - SC**
+  - 💰 R$ 190.000 | 📐 252 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-governador-celso-ramos-sc-1510208002
+
+- **Imóvel para venda possui 396 metros quadrados em Forquilhas - São José**
+  - 💰 R$ 445.000 | 📐 396 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-396-metros-quadrados-em-forquilhas-sao-jose-sc-1510202598
+
+- **Terreno Alto na Pescaria Brava | Asfalto | 4.454m2 | 3,3 km BR101**
+  - 💰 R$ 500.000 | 📐 4454 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-alto-na-pescaria-brava-asfalto-4-454m2-3-3-km-br101-1510201114
+
+- **Residencial  Lote/Terreno - Venda - 1.373,51 (M²) de Área Total - 0,00**
+  - 💰 R$ 1.915.000 | 📐 1374 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-venda-1-373-51-m-de-area-total-0-00-m-de-area-privat-1479505369
+
+- **Residencial  Lote/Terreno - Venda - 296,00 (M²) de Área Total - 0,00 (**
+  - 💰 R$ 265.000 | 📐 296 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-venda-296-00-m-de-area-total-0-00-m-de-area-privativ-1479506116
+
+- **Residencial  Lote/Terreno - Venda - 506,00 (M²) de Área Total - 506,00**
+  - 💰 R$ 509.900 | 📐 506 m²
+  - 📍 Morro da Bina — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-venda-506-00-m-de-area-total-506-00-m-de-area-privat-1475764989
+
+- **Residencial  Lote/Terreno com 0 Dormitório(s) sendo 0 Suíte(s) no Bair**
+  - 💰 R$ 375.000 | 📐 611 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-com-0-dormitorio-s-sendo-0-suite-s-no-bairro-alto-aririu--p-1479505473
+
+- **Residencial  Lote/Terreno com 0 Dormitório(s) sendo 0 Suíte(s) no Bair**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-com-0-dormitorio-s-sendo-0-suite-s-no-bairro-cidade-universita-1479505476
+
+- **Residencial  Lote/Terreno com 0 Dormitório(s) sendo 0 Suíte(s) no Bair**
+  - 💰 R$ 650.000 | 📐 817 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-com-0-dormitorio-s-sendo-0-suite-s-no-bairro-barreiros--sao-1479505634
+
+- **Residencial  Lote/Terreno com 0 Dormitório(s) sendo 0 Suíte(s) no Bair**
+  - 💰 R$ 900.000 | 📐 375 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-com-0-dormitorio-s-sendo-0-suite-s-no-bairro-cidade-universita-1479505452
+
+- **Residencial  Lote/Terreno - Venda - 292,27 (M²) de Área Total - 0,00 (**
+  - 💰 R$ 300.000 | 📐 292 m²
+  - 📍 Pachecos — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-venda-292-27-m-de-area-total-0-00-m-de-area-privativ-1453202141
+
+- **Condomínio Clube Costa azul  Fundos de Biguaçu**
+  - 💰 R$ 185.000 | 📐 150 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-clube-costa-azul-fundos-de-biguacu-1510193554
+
+- **Terreno urbano em local alto com lindo visual em Santo Amaro da Impera**
+  - 💰 R$ 210.000 | 📐 407 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-em-local-alto-com-lindo-visual-em-santo-amaro-da-imperatriz-1510188511
+
+- **Terreno com belo visual, energia elétrica e água instalados em Santo A**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-belo-visual-energia-eletrica-e-agua-instalados-em-santo-amaro-1510184645
+
+- **Fazenda / Sitio, Residencial/Comercial para Venda, Centro, Santo Amaro**
+  - 💰 R$ 7.000.000 | 📐 34477 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-sitio-residencial-comercial-para-venda-centro-santo-amaro-da-imperatriz-1410110750
+
+- **FKDS - 4 hectares, Sítio 5km do centro de Rancho Queimado / SC**
+  - 💰 R$ 1.500.000 | 📐 40000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fkds-4-hectares-sitio-5km-do-centro-de-rancho-queimado-sc-1510176662
+
+- **Terreno à venda, 285 m2. com 19,50m de frente. Constrói 2 casas ou alg**
+  - 💰 R$ 1.220.000 | 📐 285 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-285-m2-com-19-50m-de-frente-constroi-2-casas-ou-algum-comercio-1510176514
+
+- **Terreno para venda em Condomínio no Bairro da Trindade**
+  - 💰 R$ 1.100.000 | 📐 527 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-condominio-no-bairro-da-trindade-1510176225
+
+- **Apartamentos de 117 a 231 m² 2 a 4 suítes**
+  - 💰 R$ 5.340.798 | 📐 193 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/apartamentos-de-117-a-231-m-2-a-4-suites-1510175743
+
+- **Terreno, Saco Grande**
+  - 💰 R$ 745.000 | 📐 450 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-saco-grande-1510172502
+
+- **Barbada Av Red Park**
+  - 💰 R$ 500.000 | 📐 453 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-av-red-park-1510158696
+
+- **Terreno em Centro, Florianópolis/SC**
+  - 💰 R$ 499.000 | 📐 340 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-centro-florianopolis-sc-1510149922
+
+- **Vendo terreno**
+  - 💰 R$ 380.000 | 📐 3900 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1509736416
+
+- **Vendas Terreno Palhoça SC**
+  - 💰 R$ 4.000.000 | 📐 4813 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendas-terreno-palhoca-sc-1510146794
+
+- **Terreno de 312 m² Forquilhas - São José**
+  - 💰 R$ 255.000 | 📐 312 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-312-m-forquilhas-sao-jose-1510145655
+
+- **Lotes com parcelas de 650,00 em Sombrio SC**
+  - 💰 R$ 650 | 📐 375 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-com-parcelas-de-650-00-em-sombrio-sc-1510144291
+
