@@ -104086,3 +104086,6 @@
   - 📍  — Sombrio
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-com-parcelas-de-650-00-em-sombrio-sc-1510144291
 
+
+## ✅ Sem novidades — 13/06/2026 22:11
+
