@@ -104089,3 +104089,21 @@
 
 ## ✅ Sem novidades — 13/06/2026 22:11
 
+
+## 🆕 3 novos anúncios — 14/06/2026 07:34
+
+- **Chalé na serra (Alfredo Wagner)**
+  - 💰 R$ 149.000 | 📐 1250 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chale-na-serra-alfredo-wagner-1510234616
+
+- **Terreno em Condomínio à venda Rua Ivo Joaquim Cardoso, Garopaba - Garo**
+  - 💰 R$ 451.025 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-rua-ivo-joaquim-cardoso-garopaba-garopaba-1510223917
+
+- **Oportunidade: Terreno de 391,50 m² à venda em Imbituba, bairro Araçatu**
+  - 💰 R$ 275.000 | 📐 391 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-de-391-50-m-a-venda-em-imbituba-bairro-aracatuba-1510354436
+
