@@ -104674,3 +104674,161 @@
   - 📍 Balneário Esplanada — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-sc-jaguaruna-balneario-esplanada-276m2-RS220000/id-43063770/
 
+
+## 🆕 31 novos anúncios — 15/06/2026 19:16
+
+- **Terreno Urbano Guarda do Cubatão Palhoça - 360m²**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-guarda-do-cubatao-palhoca-360m-1510700884
+
+- **Jazigo duplo no cemitério Jardim da Paz**
+  - 💰 R$ 10.000 | 📐 ? m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jazigo-duplo-no-cemiterio-jardim-da-paz-1510696321
+
+- **Chácara de veraneio**
+  - 💰 R$ 230.000 | 📐 550 m²
+  - 📍 Passagem do Massiambú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-de-veraneio-1510694567
+
+- **Terreno no Condomínio Vila Suíça**
+  - 💰 R$ 489.000 | 📐 387 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-condominio-vila-suica-1510691617
+
+- **Terreno para Venda em Palhoça, PEDRA BRANCA**
+  - 💰 R$ 900.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-palhoca-pedra-branca-1510690722
+
+- **Brognoli Vende - Terreno em São João Batista - Barbada!**
+  - 💰 R$ 100.000 | 📐 640 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/brognoli-vende-terreno-em-sao-joao-batista-barbada-1510685144
+
+- **Terreno Residencial com 7.488m², no bairro Cacupé em Florianópolis**
+  - 💰 R$ 6.000.000 | 📐 7488 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-com-7-488m-no-bairro-cacupe-em-florianopolis-1510685153
+
+- **Terreno à venda, Saco Grande, com viabilidade para edificio, Florianóp**
+  - 💰 R$ 4.500.000 | 📐 73300 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-saco-grande-com-viabilidade-para-edificio-florianopolis-sc-1510685163
+
+- **Terreno Comercial - Carvoeira, Florianópolis**
+  - 💰 R$ 5.100.000 | 📐 436 m²
+  - 📍 Carvoeira — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-carvoeira-florianopolis-1510685117
+
+- **Terreno à venda no Centro de Florianópolis**
+  - 💰 R$ 650.000 | 📐 280 m²
+  - 📍 José Mendes — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-florianopolis-1510685125
+
+- **Terreno em Imarui**
+  - 💰 R$ 100.000 | 📐 750 m²
+  - 📍 Rio Grande — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imarui-1510684443
+
+- **CHÁCARA NA SERRA CATARINENSE 31.985,46 m²**
+  - 💰 R$ 897.000 | 📐 31985 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-na-serra-catarinense-31-985-46-m-1510681396
+
+- **Terreno Rural 71 Hectares - Investimento com Potencial - Alfredo Wagne**
+  - 💰 R$ 11.111.111 | 📐 710000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-71-hectares-investimento-com-potencial-alfredo-wagner-sc-1510678569
+
+- **Terreno para Venda em Florianópolis, Capoeiras**
+  - 💰 R$ 8.000.000 | 📐 1320 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-capoeiras-1510677527
+
+- **Terreno à venda, 360 m² por R$ 1.300.000,00 - Santa Mônica - Florianóp**
+  - 💰 R$ 1.300.000 | 📐 360 m²
+  - 📍 Santa Mônica — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-1-300-000-00-santa-monica-florianopolis-sc-1436034187
+
+- **Terreno para Venda em Florianópolis, Cacupé**
+  - 💰 R$ 3.200.000 | 📐 557 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-cacupe-1510677304
+
+- **Terreno em Imaruí - SC**
+  - 💰 R$ 50.000 | 📐 ? m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imarui-sc-1510669519
+
+- **Terreno em forquilhas**
+  - 💰 R$ 90.000 | 📐 113 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-forquilhas-1510648803
+
+- **Comercial  Terreno - Venda - 5.672,62 (M²) de Área Total - 5.672,00 (M**
+  - 💰 R$ 5.672.000 | 📐 5672 m²
+  - 📍 Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/comercial-terreno-venda-5-672-62-m-de-area-total-5-672-00-m-de-area-privativa-1479505475
+
+- **Residencial  Lote/Terreno com 0 Dormitório(s) sendo 0 Suíte(s) no Bair**
+  - 💰 R$ 2.750.000 | 📐 22000 m²
+  - 📍 Fundos — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-com-0-dormitorio-s-sendo-0-suite-s-no-bairro-fundos--biguac-1479505471
+
+- **Terreno no Rio vermelho**
+  - 💰 R$ 220.000 | 📐 96 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-vermelho-1510618216
+
+- **Terreno ótima localização**
+  - 💰 R$ 130.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-otima-localizacao-1510607568
+
+- **TERRENO A VENDA - JARDIM CAMPECHE**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-jardim-campeche-1510600947
+
+- **AREA - CARIANOS - SC**
+  - 💰 R$ 3.200.000 | 📐 1440 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-carianos-sc-1510554349
+
+- **AREA - CARIANOS - SC**
+  - 💰 R$ 3.200.000 | 📐 1440 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-carianos-sc-1510552877
+
+- **TERRENO DE 4 MIL m² NA ENSEADA DO BRITO**
+  - 💰 R$ 4.000.000 | 📐 4813 m²
+  - 📍 Enseada do Brito (Ens Brito) — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-4-mil-m-na-enseada-do-brito-1510027560
+
+- **Oportunidade Única em MELEIRO - SC | Tipo: Terreno | Negociação: Leilã**
+  - 💰 R$ 146.305 | 📐 375 m²
+  - 📍 Centro — Meleiro
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-meleiro-centro-50m2-RS146305/id-43676642/
+
+- **Oportunidade Única em SIDEROPOLIS - SC | Tipo: Casa | Negociação: Leil**
+  - 💰 R$ 93.000 | 📐 308 m²
+  - 📍 COHAB — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-sc-sideropolis-cohab-142m2-RS93000/id-43676369/
+
+- **Oportunidade Única em URUSSANGA - SC | Tipo: Terreno | Negociação: Lic**
+  - 💰 R$ 70.036 | 📐 507 m²
+  - 📍 De Villa — Urussanga
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-urussanga-de-villa-50m2-RS70036/id-43676770/
+
+- **Oportunidade Única em MORRO DA FUMACA - SC | Tipo: Terreno | Negociaçã**
+  - 💰 R$ 117.702 | 📐 390 m²
+  - 📍 Maccari — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-morro-da-fumaca-maccari-50m2-RS117702/id-43676771/
+
+- **Oportunidade Única em MORRO DA FUMACA - SC | Tipo: Terreno | Negociaçã**
+  - 💰 R$ 162.990 | 📐 392 m²
+  - 📍 Maccari — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-morro-da-fumaca-maccari-50m2-RS162990/id-43676774/
+
