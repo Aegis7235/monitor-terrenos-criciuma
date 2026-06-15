@@ -104832,3 +104832,101 @@
   - 📍 Maccari — Morro da Fumaça
   - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-morro-da-fumaca-maccari-50m2-RS162990/id-43676774/
 
+
+## 🆕 19 novos anúncios — 15/06/2026 23:15
+
+- **Lindo terreno para venda com 2.200 metros quadrados em Centro - Santo **
+  - 💰 R$ 384.000 | 📐 2200 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-para-venda-com-2-200-metros-quadrados-em-centro-santo-amaro-da-imperatriz-1510758897
+
+- **Terreno à venda no Bairro Campinas em São José-SC, com , 10 vagas**
+  - 💰 R$ 1.500.000 | 📐 487 m²
+  - 📍 Campinas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-campinas-em-sao-jose-sc-com-10-vagas-1510751856
+
+- **Lote na Guarda do Cubatão, 200m² com escritura publica, entrada de ape**
+  - 💰 R$ 150.000 | 📐 200 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-guarda-do-cubatao-200m-com-escritura-publica-entrada-de-apenas-21-mil-e-parcela-1510748573
+
+- **Loteamento Santa Fé, parcelamento 180x, Araranguá / SC**
+  - 💰 R$ 94.800 | 📐 300 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-santa-fe-parcelamento-180x-ararangua-sc-1510748200
+
+- **Loteamento Villa di Palma, parcelamento direto em 180x, Cocal do Sul /**
+  - 💰 R$ 190.000 | 📐 365 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-villa-di-palma-parcelamento-direto-em-180x-cocal-do-sul-sc-1510748202
+
+- **Loteamento Viva Verde, parcelamento direto, Criciúma / SC**
+  - 💰 R$ 111.000 | 📐 360 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-viva-verde-parcelamento-direto-criciuma-sc-1510748163
+
+- **São Pedro de Alcântara 91.000 m2 - áreas de 2 hectares**
+  - 💰 R$ 500.000 | 📐 100000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sao-pedro-de-alcantara-91-000-m2-areas-de-2-hectares-1510747715
+
+- **Terreno em Antônio Carlos/SC**
+  - 💰 R$ 500.000 | 📐 5000 m²
+  - 📍 Guiomar de Baixo — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-antonio-carlos-sc-1510743958
+
+- **Chácara bem localizada !! Aceita ap SJB**
+  - 💰 R$ 450.000 | 📐 4000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-bem-localizada-aceita-ap-sjb-1413957035
+
+- **Terreno de Alto Padrão com 935,94m² no Condomínio Costão Golf Ville**
+  - 💰 R$ 870.000 | 📐 935 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-alto-padrao-com-935-94m-no-condominio-costao-golf-ville-1510736066
+
+- **Lote no Bela Vista em Palhoça, 215m2 com escritura publica. estuda-se **
+  - 💰 R$ 165.000 | 📐 215 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-bela-vista-em-palhoca-215m2-com-escritura-publica-estuda-se-veiculo-como-pagamen-1510733917
+
+- **Terreno na Tigela Paulo Lopes**
+  - 💰 R$ 460.000 | 📐 5522 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-tigela-paulo-lopes-1510732134
+
+- **Lotes no Alto Aririu em Palhoça, viabilidade 4 pavimentos, entrada de **
+  - 💰 R$ 240.000 | 📐 360 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-no-alto-aririu-em-palhoca-viabilidade-4-pavimentos-entrada-de-36-mil-sado-em-120-m-1510729244
+
+- **Lotes em Palhoça, com entrada de apenas 27 mil e saldo restante em até**
+  - 💰 R$ 180.000 | 📐 200 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-em-palhoca-com-entrada-de-apenas-27-mil-e-saldo-restante-em-ate-120-meses-para-paga-1510721885
+
+- **Terreno em Biguaçu**
+  - 💰 R$ 110.000 | 📐 998 m²
+  - 📍 Prado de Baixo — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-biguacu-1510713832
+
+- **Jardim Atlântico/Coloninha terreno á pouca distância do Estádio do Fig**
+  - 💰 R$ 680.000 | 📐 338 m²
+  - 📍 Coloninha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jardim-atlantico-coloninha-terreno-a-pouca-distancia-do-estadio-do-figueirense-e-da-marinh-1510712877
+
+- **Terrenos a partir R$55.000,00 o hectare em Anitápolis-SC**
+  - 💰 R$ 165.000 | 📐 30000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-partir-r-55-000-00-o-hectare-em-anitapolis-sc-1510712755
+
+- **Terreno em São Sebastião com 165m2, pronto para construir, aceita veic**
+  - 💰 R$ 99.900 | 📐 165 m²
+  - 📍 São Sebastião — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sao-sebastiao-com-165m2-pronto-para-construir-aceita-veiculo-e-parcelamento-c-1510706173
+
+- **TERRENO À RODOVIA SC-447**
+  - 💰 R$ 450.000 | 📐 23144 m²
+  - 📍  — Meleiro
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rodovia-sc-447-1500767529
+
