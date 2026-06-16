@@ -107679,3 +107679,121 @@
   - 📍 Coloninha — Araranguá
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-ararangua-coloninha-2m2-RS610000/id-41273382/
 
+
+## 🆕 23 novos anúncios — 16/06/2026 23:06
+
+- **Lote para chácara em Canelinha/SC**
+  - 💰 R$ 290.000 | 📐 1650 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-para-chacara-em-canelinha-sc-1511059734
+
+- **Terreno de 25mil m² Gov. Celso Ramos**
+  - 💰 R$ 8.862.507 | 📐 25300 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-25mil-m-gov-celso-ramos-1511037644
+
+- **Terreno de esquina com 375m², no condominio Reserva da Pedra - Pedra B**
+  - 💰 R$ 949.000 | 📐 375 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-com-375m-no-condominio-reserva-da-pedra-pedra-branca-1511031050
+
+- **Vende-se Sítio/ chácara**
+  - 💰 R$ 50.000 | 📐 ? m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-sitio-chacara-1511025137
+
+- **Chácara Completa em Rancho Queimado - SC**
+  - 💰 R$ 750.000 | 📐 2000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-completa-em-rancho-queimado-sc-1511024298
+
+- **Terreno de 300 m² à Venda  Vista para as Dunas da Gamboa | Gamboinha  **
+  - 💰 R$ 185.000 | 📐 300 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300-m-a-venda-vista-para-as-dunas-da-gamboa-gamboinha-paulo-lopes-sc-1511018610
+
+- **Terreno de 360 m² Regularizado e Financiável  Bairro Areias | Paulo Lo**
+  - 💰 R$ 220.000 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-360-m-regularizado-e-financiavel-bairro-areias-paulo-lopes-sc-1511012054
+
+- **Terreno com Vista e 407 m² à Venda | Morro dos Venturas  Santo Amaro d**
+  - 💰 R$ 230.000 | 📐 407 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-e-407-m-a-venda-morro-dos-venturas-santo-amaro-da-imperatriz-sc-1511003400
+
+- **Lindo sítio de 2 Hectares com escritura pública, apenas 280.000.00.**
+  - 💰 R$ 280.000 | 📐 20000 m²
+  - 📍 Santa Cruz da Figueira — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-de-2-hectares-com-escritura-publica-apenas-280-000-00-1510976596
+
+- **Lindo terreno na Armação de 169,00 m2**
+  - 💰 R$ 350.000 | 📐 169 m²
+  - 📍 Armação do Pântano do Sul — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-na-armacao-de-169-00-m2-1511007370
+
+- **Terreno Residencial para Venda em Florianópolis, Santo Antônio**
+  - 💰 R$ 7.840.000 | 📐 1121 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-para-venda-em-florianopolis-santo-antonio-1511000481
+
+- **Terreno Comercial para Venda em Florianópolis, São João do Rio Vermelh**
+  - 💰 R$ 2.385.000 | 📐 2100000 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-para-venda-em-florianopolis-sao-joao-do-rio-vermelho-1511000485
+
+- **Terreno para Venda em Florianópolis, Ingleses do Rio Vermelho**
+  - 💰 R$ 1.100.000 | 📐 400 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ingleses-do-rio-vermelho-1511000196
+
+- **Terreno para Venda em Florianópolis, Ingleses do Rio Vermelho**
+  - 💰 R$ 730.000 | 📐 480 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ingleses-do-rio-vermelho-1511000194
+
+- **Terreno à venda - ( casa) Trindade SC**
+  - 💰 R$ 3.816.000 | 📐 432 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda--casa-trindade-sc-1510997817
+
+- **Terreno à Venda, 3.662m², João Paulo - Florianópolis/SC**
+  - 💰 R$ 5.290.000 | 📐 3662 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-3-662m-joao-paulo-florianopolis-sc-1510997654
+
+- **Terreno Urbano para Venda em Florianópolis, Carianos**
+  - 💰 R$ 689.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-para-venda-em-florianopolis-carianos-1510996992
+
+- **Terreno de 345 m² à Venda  Bom Retiro | Paulo Lopes/SC | Apenas R$160.**
+  - 💰 R$ 160.000 | 📐 345 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-345-m-a-venda-bom-retiro-paulo-lopes-sc-apenas-r-160-000-00-1511031508
+
+- **Terrenos em Garopaba com Ótimo Potencial Construtivo | 330m² Cada**
+  - 💰 R$ 320.000 | 📐 330 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-garopaba-com-otimo-potencial-construtivo-330m-cada-1511028997
+
+- **Terreno Exclusivo à Venda na Praia do Siriú | 562,70 m² |  Praia do Si**
+  - 💰 R$ 350.000 | 📐 362 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-a-venda-na-praia-do-siriu-562-70-m--praia-do-siriu-garopaba-sc-1511024574
+
+- **Terreno de 880m² com Vista Panorâmica para o Mar e Lagoa à Venda  Maca**
+  - 💰 R$ 325.000 | 📐 800 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-880m-com-vista-panoramica-para-o-mar-e-lagoa-a-venda-macacu-garopaba-sc-1511016686
+
+- **TERRENO DE ESQUINA A POUCOS METROS DO MAR IDEAL PARA INVESTIMENTO**
+  - 💰 R$ 55.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-poucos-metros-do-mar-ideal-para-investimento-1511002453
+
+- **Oportunidade Única em ARARANGUA - SC | Tipo: Casa | Negociação: Leilão**
+  - 💰 R$ 420.000 | 📐 600 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-ararangua-urussanguinha-202m2-RS420000/id-43393923/
+
