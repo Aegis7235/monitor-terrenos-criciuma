@@ -105418,3 +105418,36 @@
   - 📍 Furnas — Sombrio
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-sombrio-furnas-949m2-RS490000/id-26459518/
 
+
+## 🆕 6 novos anúncios — 16/06/2026 14:22
+
+- **Terreno Comercial para Venda em Paulo Lopes, Nova Belém**
+  - 💰 R$ 649.900 | 📐 1150 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-para-venda-em-paulo-lopes-nova-belem-1510889064
+
+- **Preço de ocasião. Terreno a 50m do mar. Acesso direto a praia Escitura**
+  - 💰 R$ 219.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/preco-de-ocasiao-terreno-a-50m-do-mar-acesso-direto-a-praia-esciturado-pronto-p-constui-1510914506
+
+- **2 TERRENOS LADO A LADO DE FRENTE PARA AVENIDA EM CONDOMÍNIO MÉDIO/ALTO**
+  - 💰 R$ 220.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-lado-a-lado-de-frente-para-avenida-em-condominio-medio-alto-padrao-1510914532
+
+- **Casa com 2 quartos à venda no Lagoão, Araranguá**
+  - 💰 R$ 265.000 | 📐 57 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-lagoao-150m2-RS265000/id-40556188/
+
+- **Casa com 2 quartos à venda na Rodovia Interpraias, Praia Ribeiro, Pass**
+  - 💰 R$ 265.000 | 📐 70 m²
+  - 📍 Praia Ribeiro — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-passo-de-torres-praia-ribeiro-375m2-RS265000/id-43538056/
+
+- **Terreno à venda no Caravaggio, Nova Veneza**
+  - 💰 R$ 165.000 | 📐 403 m²
+  - 📍 Caravaggio — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/terreno-a-venda-sc-nova-veneza-caravaggio-403m2-RS165000/id-43034500/
+
