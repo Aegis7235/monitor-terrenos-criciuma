@@ -107845,3 +107845,26 @@
   - 📍 São Sebastião — Criciúma
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-criciuma-sao-sebastiao-61m2-RS180000/id-43676320/
 
+
+## 🆕 4 novos anúncios — 17/06/2026 13:03
+
+- **Imóvel para venda possui 20000 metros quadrados em Santa Barbara - Alf**
+  - 💰 R$ 350.000 | 📐 20000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-20000-metros-quadrados-em-santa-barbara-alfredo-wagner-sc-1511166787
+
+- **Terreno Estratégico na Entrada de Garopaba. 1.384 m², Alto Potencial C**
+  - 💰 R$ 3.459.000 | 📐 1384 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-estrategico-na-entrada-de-garopaba-1-384-m-alto-potencial-construtivo-o-1511157774
+
+- **Sítio para Venda em Garopaba, Ressacada, 8 dormitórios, 8 suítes, 10 b**
+  - 💰 R$ 2.390.000 | 📐 500 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-garopaba-ressacada-8-dormitorios-8-suites-10-banheiros-16-vagas-1511141183
+
+- **TERRENO FRENTE AV INTERPRAIAS NA SUMARE 2**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-av-interpraias-na-sumare-2-1511131873
+
