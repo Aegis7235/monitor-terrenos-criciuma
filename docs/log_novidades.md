@@ -107797,3 +107797,51 @@
   - 📍 Urussanguinha — Araranguá
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-ararangua-urussanguinha-202m2-RS420000/id-43393923/
 
+
+## 🆕 9 novos anúncios — 17/06/2026 08:40
+
+- **Sítio de 15.000 m² em Orleans - Vista Incrível na Ponte Preta! ?<br>**
+  - 💰 R$ 250.000 | 📐 15000 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-15-000-m-em-orleans-vista-incrivel-na-ponte-preta-br-1511118480
+
+- **Terreno Forquilhinha Res. Aloisio Engy**
+  - 💰 R$ 190.000 | 📐 392 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-forquilhinha-res-aloisio-engy-1511102309
+
+- **Vendo lote com 442,50 metros quadrados**
+  - 💰 R$ 200.000 | 📐 442 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-com-442-50-metros-quadrados-1511087917
+
+- **Sítio no Moura**
+  - 💰 R$ 80.000 | 📐 1500 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-no-moura-1511081721
+
+- **Terreno em Garopaba Ressacada**
+  - 💰 R$ 500 | 📐 1560 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-ressacada-1511075337
+
+- **Oportunidade**
+  - 💰 Não informado | 📐 800 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-1511074516
+
+- **Loteamento Dublin, parcelamento direto, Tubarão / SC**
+  - 💰 R$ 138.000 | 📐 252 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-dublin-parcelamento-direto-tubarao-sc-1511059037
+
+- **Terreno em Imbituba com 1158m² à venda por R$ 600.000**
+  - 💰 R$ 600.000 | 📐 1158 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-imbituba-com-1158m-a-venda-por-r-600-000-1511116184
+
+- **Oportunidade Única em CRICIUMA - SC | Tipo: Casa | Negociação: Leilão **
+  - 💰 R$ 180.000 | 📐 137 m²
+  - 📍 São Sebastião — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-criciuma-sao-sebastiao-61m2-RS180000/id-43676320/
+
