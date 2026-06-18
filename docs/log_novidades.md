@@ -110203,3 +110203,51 @@
   - 📍 Estação Cocal — Morro da Fumaça
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-morro-da-fumaca-estacao-cocal-378m2-RS350000/id-43822345/
 
+
+## 🆕 9 novos anúncios — 18/06/2026 23:07
+
+- **Terreno à venda em Florianópolis, Trindade, com 500 m², Costa Nobre**
+  - 💰 R$ 1.600.000 | 📐 500 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-florianopolis-trindade-com-500-m-costa-nobre-1511643881
+
+- **Terreno Bairro Monte Castelo**
+  - 💰 R$ 190.000 | 📐 406 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-monte-castelo-1511639903
+
+- **Terreno com restaurante pé na areia na praia dos Ingleses**
+  - 💰 R$ 3.000.000 | 📐 572 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-restaurante-pe-na-areia-na-praia-dos-ingleses-1511618435
+
+- **"Terreno 450m² à Venda em Florianopolis - Imperdível!"**
+  - 💰 R$ 474.900 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450m-a-venda-em-florianopolis-imperdivel-1511613351
+
+- **Terreno à venda a uma quadra da beira-mar continental - Estreito - Flo**
+  - 💰 R$ 1.580.000 | 📐 342 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-a-uma-quadra-da-beira-mar-continental-estreito-florianopolis-1511594833
+
+- **Vendo terreno escritura a 100m do mar em balneario gaivota**
+  - 💰 R$ 79.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-escritura-a-100m-do-mar-em-balneario-gaivota-1511593562
+
+- **Vende-se Terreno 10x18 no saco dos limoes**
+  - 💰 R$ 50.000 | 📐 180 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-10x18-no-saco-dos-limoes-1511586713
+
+- **Terreno para Alugar no Centro de Florianópolis.**
+  - 💰 R$ 5.000 | 📐 200 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-alugar-no-centro-de-florianopolis-1511579701
+
+- **Área Rural 4 Hectares à Venda | Nascente | Natureza | Sossego | Cedro **
+  - 💰 R$ 275.000 | 📐 39000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-rural-4-hectares-a-venda-nascente-natureza-sossego-cedro-penha-paulo-lopes-1511573545
+
