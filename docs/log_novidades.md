@@ -109659,3 +109659,191 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-100-metros-do-mar-e-1km-do-centro-parcelamento-direto-40-mil-de-entrada-e-24x-d-1511361023
 
+
+## 🆕 37 novos anúncios — 18/06/2026 08:21
+
+- **Terreno à venda, 300 m² por R$ 165.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-165-000-bellatorres-passo-de-torres-sc-1511438629
+
+- **Terreno no bairro Deltaville, em Biguaçu - SC**
+  - 💰 R$ 429.900 | 📐 400 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-deltaville-em-biguacu-sc-1511436458
+
+- **Terreno à venda, 14767 m² por R$ 3.800.000 - Vargem Pequena - Florianó**
+  - 💰 R$ 3.800.000 | 📐 14767 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-14767-m-por-r-3-800-000-vargem-pequena-florianopolis-sc-1511436273
+
+- **Terreno à venda, 6118 m² por R$ 2.800.000 - Vargem Pequena - Florianóp**
+  - 💰 R$ 2.800.000 | 📐 6118 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-6118-m-por-r-2-800-000-vargem-pequena-florianopolis-sc-1511436234
+
+- **Terreno à venda, 20625 m² por R$ 4.900.000 - Vargem Pequena - Florianó**
+  - 💰 R$ 4.900.000 | 📐 20626 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-20625-m-por-r-4-900-000-vargem-pequena-florianopolis-sc-1511436244
+
+- **Sítio em Antônio Carlos**
+  - 💰 R$ 890.000 | 📐 37468 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-antonio-carlos-1511431208
+
+- **Lote Parque das Vilas**
+  - 💰 R$ 250.000 | 📐 369 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-parque-das-vilas-1511430344
+
+- **TERRENO RESIDENCIAL em FLORIANÓPOLIS - SC, RATONES**
+  - 💰 R$ 850.000 | 📐 1680 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-florianopolis-sc-ratones-1511429498
+
+- **Amplo terreno com possibilidade de construção**
+  - 💰 R$ 1.200.000 | 📐 944 m²
+  - 📍 Santa Bárbara — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-com-possibilidade-de-construcao-1511424143
+
+- **Terreno 300m² com Boa Localização - Barreiros - JMS**
+  - 💰 R$ 500.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-com-boa-localizacao-barreiros-jms-1511422818
+
+- **Terreno à venda por R$ 420000.00, 54.00 m2 - SAO JOAO DO RIO VERMELHO **
+  - 💰 R$ 420.000 | 📐 54 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-por-r-420000-00-54-00-m2-sao-joao-do-rio-vermelho-florianopolis-sc-1511422032
+
+- **Terreno 300m² com Boa Localização - Barreiros - CEN**
+  - 💰 R$ 500.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-com-boa-localizacao-barreiros-cen-1511421456
+
+- **Terreno Comercial com 370m2 no Bairro Próspera! Próximo à Centenário.**
+  - 💰 R$ 549.000 | 📐 370 m²
+  - 📍 Próspera — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-com-370m2-no-bairro-prospera-proximo-a-centenario-1511418505
+
+- **Terreno 300m² com Boa Localização - Barreiros**
+  - 💰 R$ 500.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-com-boa-localizacao-barreiros-1511416910
+
+- **OPORTUNIDADE NO NORTE DA ILHA**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-no-norte-da-ilha-1511416451
+
+- **AREA - PRAIA COMPRIDA - SC**
+  - 💰 R$ 1.200.000 | 📐 513 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-praia-comprida-sc-1511404295
+
+- **Terreno balneário gaivota**
+  - 💰 R$ 150.000 | 📐 200 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-balneario-gaivota-1511402445
+
+- **Vendo  lote plano com 245 m², em São José- Forquilhas**
+  - 💰 R$ 269.000 | 📐 240 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-plano-com-245-m-em-sao-jose-forquilhas-1511401856
+
+- **Lote de esquina plano, com 1.036 m², de frente para a geral-  em Forqu**
+  - 💰 R$ 910.000 | 📐 1036 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-plano-com-1-036-m-de-frente-para-a-geral-em-forquilhas-1511398358
+
+- **Terreno 300m² com Boa Localização - Barreiros - BRN**
+  - 💰 R$ 500.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-com-boa-localizacao-barreiros-brn-1511394667
+
+- **Terreno 300 m² - Lagoa das Capivaras - Balneário Arroio do Silva - SC**
+  - 💰 R$ 25.366 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300-m-lagoa-das-capivaras-balneario-arroio-do-silva-sc-1511391947
+
+- **VENDO TERRENO PARA INVESTIDORES !**
+  - 💰 R$ 2.000.000 | 📐 1980 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-para-investidores-1511391650
+
+- **Terreno no centro de santo Amaro da Imperatriz**
+  - 💰 R$ 120.000 | 📐 30 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-santo-amaro-da-imperatriz-1511391359
+
+- **Excelente Terreno Centro de Santa Rosa do Sul - SC**
+  - 💰 R$ 120.000 | 📐 374 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-centro-de-santa-rosa-do-sul-sc-1511391272
+
+- **AREA - PRAIA COMPRIDA - SC**
+  - 💰 R$ 1.200.000 | 📐 513 m²
+  - 📍 Praia Comprida — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-praia-comprida-sc-1511389282
+
+- **Terreno maravilho com 636m² em condomínio fechado em Santo Antonio de **
+  - 💰 R$ 1.050.000 | 📐 632 m²
+  - 📍 Santo Antônio de Lisboa — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-maravilho-com-636m-em-condominio-fechado-em-santo-antonio-de-lisboa-1511387237
+
+- **Terreno na praia à venda, 450 m² por R$ 200.000 - Paiquerê - Araranguá**
+  - 💰 R$ 200.000 | 📐 450 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-a-venda-450-m-por-r-200-000-paiquere-ararangua-sc-1511383036
+
+- **Terreno à venda, 592 m² por R$ 150.000,00 - Alto Aririu - Palhoça/SC**
+  - 💰 R$ 150.000 | 📐 592 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-592-m-por-r-150-000-00-alto-aririu-palhoca-sc-1511380282
+
+- **Praia da Gamboa**
+  - 💰 R$ 2.800 | 📐 7365 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/praia-da-gamboa-1511378558
+
+- **Terreno 633,6m², SERRARIA, SAO JOSE SC**
+  - 💰 R$ 385.511 | 📐 633 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-633-6m-serraria-sao-jose-sc-1511371993
+
+- **Terreno 316,8m², SERRARIA, SAO JOSE SC**
+  - 💰 R$ 200.116 | 📐 316 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-316-8m-serraria-sao-jose-sc-1511371196
+
+- **Vendo terreno loteamento galapagos**
+  - 💰 Não informado | 📐 364 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-loteamento-galapagos-1511370476
+
+- **Terreno 360m², VILA FLORESTA II, CRICIUMA SC**
+  - 💰 R$ 71.789 | 📐 360 m²
+  - 📍 Vila Floresta II — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-vila-floresta-ii-criciuma-sc-1511370370
+
+- **Terreno 316,8m², SERRARIA, SAO JOSE SC**
+  - 💰 R$ 200.116 | 📐 316 m²
+  - 📍 Serraria — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-316-8m-serraria-sao-jose-sc-1511370316
+
+- **Vendo terreno  630 metros com escritura pública.**
+  - 💰 R$ 328.000 | 📐 630 m²
+  - 📍 Cachoeiras (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-630-metros-com-escritura-publica-1511364379
+
+- **Terreno 300m² com Boa Localização - Barreiros - PLC**
+  - 💰 R$ 500.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-com-boa-localizacao-barreiros-plc-1511360256
+
+- **Terreno à venda, 468 m² por R$ 95.000 - Arapongas - Araranguá/SC**
+  - 💰 R$ 95.000 | 📐 468 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-468-m-por-r-95-000-arapongas-ararangua-sc-1511383182
+
