@@ -109847,3 +109847,76 @@
   - 📍 Arapongas — Araranguá
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-468-m-por-r-95-000-arapongas-ararangua-sc-1511383182
 
+
+## 🆕 14 novos anúncios — 18/06/2026 12:39
+
+- **ANITÁPOLIS/SC - Lindo terreno para sítio com 2hectares**
+  - 💰 R$ 210.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-lindo-terreno-para-sitio-com-2hectares-1511463515
+
+- **03 terrenos para locação no Balneário Rincão**
+  - 💰 R$ 3.450 | 📐 900 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/03-terrenos-para-locacao-no-balneario-rincao-1511462465
+
+- **ANITÁPOLIS/SC - Terreno para sítio com 3hectares**
+  - 💰 R$ 220.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-para-sitio-com-3hectares-1511462125
+
+- **Terreno à venda com 360m² no Bairro Forquilhinhas/São José**
+  - 💰 R$ 362.000 | 📐 360 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-360m-no-bairro-forquilhinhas-sao-jose-1511458740
+
+- **Terreno de 400m² na Trindade**
+  - 💰 R$ 5.000.000 | 📐 441 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-400m-na-trindade-1511458597
+
+- **Terreno de 600m² no bairro Trindade**
+  - 💰 R$ 1.100.000 | 📐 600 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-600m-no-bairro-trindade-1511458614
+
+- **Terreno de 9.399,32m² no bairro Sambaqui**
+  - 💰 R$ 24.900.000 | 📐 9399 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-9-399-32m-no-bairro-sambaqui-1511458574
+
+- **Terreno de 400m² na Trindade**
+  - 💰 R$ 5.000.000 | 📐 441 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-400m-na-trindade-1511458576
+
+- **Lote em Condomínio Fechado para Venda em Florianópolis, Campeche**
+  - 💰 R$ 2.200.000 | 📐 750 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-para-venda-em-florianopolis-campeche-1511458135
+
+- **Terreno de 608.04m² no bairro Ratones**
+  - 💰 R$ 980.000 | 📐 608 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-608-04m-no-bairro-ratones-1511458052
+
+- **Terreno de 3438.45m² no bairro São Miguel (Guaporanga)**
+  - 💰 R$ 3.500.000 | 📐 3438 m²
+  - 📍 São Miguel (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-3438-45m-no-bairro-sao-miguel-guaporanga-1511458048
+
+- **Terreno com 952,98m² no Morro das Pedras, Florianópolis.**
+  - 💰 R$ 10.000.000 | 📐 952 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-952-98m-no-morro-das-pedras-florianopolis-1511458050
+
+- **ANITÁPOLIS/SC - Terreno para sítio com 2 hectares**
+  - 💰 R$ 160.000 | 📐 20000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/anitapolis-sc-terreno-para-sitio-com-2-hectares-1511453838
+
+- **Terreno à venda, 1350 m² por R$ 1.350.000 - Vargem Grande - Florianópo**
+  - 💰 R$ 1.350.000 | 📐 1350 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1350-m-por-r-1-350-000-vargem-grande-florianopolis-sc-1511448465
+
