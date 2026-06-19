@@ -110434,3 +110434,66 @@
   - 📍 Vargem Pequena — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-disponivel-para-a-venda-proximo-a-vargem-pequena-florianopolis-sc-1511424607
 
+
+## 🆕 12 novos anúncios — 19/06/2026 13:01
+
+- **Terreno para Venda em Garopaba, Campo Duna**
+  - 💰 R$ 780.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-garopaba-campo-duna-1511760338
+
+- **Terreno a venda na Guarda do Cubatão com 300m2 | XP2360**
+  - 💰 R$ 225.000 | 📐 300 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-guarda-do-cubatao-com-300m2-xp2360-1417280386
+
+- **Terreno Pedra Branca à venda com Projeto para 14 casas| XP1904**
+  - 💰 R$ 2.422.000 | 📐 2000 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pedra-branca-a-venda-com-projeto-para-14-casas-xp1904-1416981448
+
+- **Terreno na Pedra Branca**
+  - 💰 R$ 532.000 | 📐 369 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-pedra-branca-1416838019
+
+- **Terreno a venda Pedra Branca em Palhoça, Santa Catarina.**
+  - 💰 R$ 960.000 | 📐 286 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-pedra-branca-em-palhoca-santa-catarina-1416217767
+
+- **Lote Premium no Villa Imperatriz 826m2 - Direto com Proprietário (Acei**
+  - 💰 R$ 500.000 | 📐 826 m²
+  - 📍 Vila Santana — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-premium-no-villa-imperatriz-826m2-direto-com-proprietario-aceito-veiculo-1511752437
+
+- **Chácara no Centro de Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 370.000 | 📐 2500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-no-centro-de-santo-amaro-da-imperatriz-sc-1511748461
+
+- **Terreno / Lote / Condomínio em Cidade Universitária Pedra Branca - Pal**
+  - 💰 R$ 850.000 | 📐 551 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-condominio-em-cidade-universitaria-pedra-branca-palhoca-1511747507
+
+- **Terreno Florianópolis, Capoeiras com viabilidade**
+  - 💰 R$ 1.490.000 | 📐 600 m²
+  - 📍 Capoeiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-florianopolis-capoeiras-com-viabilidade-1511742373
+
+- **Terreno medindo 3205 m² com possibilidade residencial e industrial e f**
+  - 💰 R$ 2.100.000 | 📐 3205 m²
+  - 📍 São Luiz — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-medindo-3205-m-com-possibilidade-residencial-e-industrial-e-facil-acesso-a-via-ra-1511728373
+
+- **Terreno 480m² - Pedra Branca - imv**
+  - 💰 R$ 745.000 | 📐 480 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-480m-pedra-branca-imv-1511724456
+
+- **Terreno em Loteamento Fechado**
+  - 💰 R$ 905.000 | 📐 1666 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-fechado-1511723019
+
