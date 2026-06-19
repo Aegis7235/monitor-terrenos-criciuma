@@ -110497,3 +110497,176 @@
   - 📍 Ratones — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-fechado-1511723019
 
+
+## 🆕 34 novos anúncios — 19/06/2026 17:32
+
+- **Belo Sitio em Santo Amaro da Imperatriz!**
+  - 💰 R$ 2.800.000 | 📐 70000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-santo-amaro-da-imperatriz-1511816916
+
+- **Sitio com casa e duas cabanas em Santo Amaro da Imperatriz!**
+  - 💰 R$ 980.000 | 📐 11000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-e-duas-cabanas-em-santo-amaro-da-imperatriz-1511813475
+
+- **Chácara com Água e Luz no local em São Pedro de Alcântara - SC!**
+  - 💰 R$ 230.000 | 📐 3000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-agua-e-luz-no-local-em-sao-pedro-de-alcantara-sc-1511813298
+
+- **Lote**
+  - 💰 R$ 100.000 | 📐 16 m²
+  - 📍 Saco Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-1511811636
+
+- **Terreno industrial em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 4.000.000 | 📐 8615 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-em-santo-amaro-da-imperatriz-sc-1511810719
+
+- **Terreno no Centro de Rancho Queimado - SC**
+  - 💰 R$ 4.500.000 | 📐 8600 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-rancho-queimado-sc-1511810087
+
+- **Sítio**
+  - 💰 R$ 350.000 | 📐 20000000 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-1511807493
+
+- **Belo Sitio em Águas Mornas - SC**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-aguas-mornas-sc-1511792618
+
+- **Condominio Floreville em Caldas da Imperatriz!**
+  - 💰 R$ 450.000 | 📐 500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-floreville-em-caldas-da-imperatriz-1511790856
+
+- **Sitio e Caldas da Imperatriz em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 950.000 | 📐 28700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-e-caldas-da-imperatriz-em-santo-amaro-da-imperatriz-sc-1511787814
+
+- **Vende-se Casa em Santo Amaro da imperatriz (Pagará).**
+  - 💰 R$ 250.000 | 📐 750 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-casa-em-santo-amaro-da-imperatriz-pagara-1511786417
+
+- **Terreno à Venda em Paulo Lopes/SC - Ribeirão Grande**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-paulo-lopes-sc-ribeirao-grande-1511785913
+
+- **Chácara na Vargem do Braço - Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 380.000 | 📐 6000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-na-vargem-do-braco-santo-amaro-da-imperatriz-sc-1511784066
+
+- **Terreno a venda em Tijucas a partir de 1000m²**
+  - 💰 R$ 220.000 | 📐 1000 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-tijucas-a-partir-de-1000m-1511783764
+
+- **Lote proximo do Centro de Santo Amaro da Imperatriz!**
+  - 💰 R$ 160.000 | 📐 380 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-proximo-do-centro-de-santo-amaro-da-imperatriz-1511783414
+
+- **Terreno Mato Alto Barbacena - Laguna/SC**
+  - 💰 R$ 450.000 | 📐 5537 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-mato-alto-barbacena-laguna-sc-1511782572
+
+- **LOTE NA RODOVIA SEBASTIAO TOLEDO DOS SANTOS**
+  - 💰 Não informado | 📐 495 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-rodovia-sebastiao-toledo-dos-santos-1511781141
+
+- **Vendo Chácara com chalé - Varginha Santo Amaro da Imperatriz | SC**
+  - 💰 R$ 371.000 | 📐 80 m²
+  - 📍 Varginha — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-chacara-com-chale-varginha-santo-amaro-da-imperatriz-sc-1511779744
+
+- **Terreno de Esquina à venda na Praia da Pinheira com 416m² - Palhoça/SC**
+  - 💰 R$ 583.000 | 📐 416 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-na-praia-da-pinheira-com-416m-palhoca-sc-1511778827
+
+- **Sitio em Águas Mornas - SC**
+  - 💰 R$ 380.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-sc-1511778170
+
+- **Belo Sitio em Águas Mornas - SC**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-aguas-mornas-sc-1511777300
+
+- **Imóvel para venda com 611 metros quadrados em Bela Vista - Palhoça - S**
+  - 💰 R$ 375.000 | 📐 611 m²
+  - 📍 Bela Vista — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-611-metros-quadrados-em-bela-vista-palhoca-sc-1511775747
+
+- **Imóvel para venda tem 239100 metros quadrados em Universitário - Bigua**
+  - 💰 R$ 3.500.000 | 📐 239100 m²
+  - 📍 Universitário — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-239100-metros-quadrados-em-universitario-biguacu-sc-1511775668
+
+- **Belo Terreno com escritura em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 340.000 | 📐 1000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-terreno-com-escritura-em-santo-amaro-da-imperatriz-sc-1511773407
+
+- **Sitio Proximo do Centro de Angelina - SC**
+  - 💰 R$ 380.000 | 📐 40000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-proximo-do-centro-de-angelina-sc-1511772470
+
+- **Vende se terreno sertão dos correas**
+  - 💰 R$ 100.000 | 📐 ? m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-sertao-dos-correas-1511772500
+
+- **Belo sitio proximo da praça de Rancho Queimado-SC!**
+  - 💰 R$ 700.000 | 📐 38000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-proximo-da-praca-de-rancho-queimado-sc-1511771591
+
+- **Vendo sitio em Águas Mornas ,Rio Novo**
+  - 💰 R$ 150.000 | 📐 1300 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-aguas-mornas-rio-novo-1511769592
+
+- **Terreno no Carianos - Florianópolis/SC**
+  - 💰 R$ 500.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-carianos-florianopolis-sc-1511769913
+
+- **Belo Sitio em Águas Mornas - SC**
+  - 💰 R$ 1.500.000 | 📐 210000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-aguas-mornas-sc-1511769465
+
+- **Chácara proxima do Centro de Anitápolis - SC**
+  - 💰 R$ 460.000 | 📐 5800 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-proxima-do-centro-de-anitapolis-sc-1511767915
+
+- **Belo terreno em Caldas da Imperatriz - Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 320.000 | 📐 375 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-terreno-em-caldas-da-imperatriz-santo-amaro-da-imperatriz-sc-1511015552
+
+- **Chácara / sítio à venda no Centro, Lauro Müller**
+  - 💰 R$ 360.000 | 📐 20 m²
+  - 📍 Centro — Lauro Müller
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-lauro-muller-centro-56000m2-RS360000/id-43855404/
+
+- **Chácara / sítio à venda no Centro, Siderópolis**
+  - 💰 R$ 400.000 | 📐 20 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sideropolis-centro-20m2-RS400000/id-43855402/
+
