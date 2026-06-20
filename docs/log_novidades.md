@@ -111567,3 +111567,11 @@
   - 📍  — Imaruí
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-de-300-mts-por-40mil-ou-600mts-por-75mil-1511980700
 
+
+## 🆕 1 novos anúncios — 20/06/2026 22:21
+
+- **Troco casa de alto padrão por sítio ou chácara**
+  - 💰 R$ 2.000.000 | 📐 280 m²
+  - 📍 Santa Bárbara — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/troco-casa-de-alto-padrao-por-sitio-ou-chacara-1512078692
+
