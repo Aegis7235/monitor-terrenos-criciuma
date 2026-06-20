@@ -111471,3 +111471,66 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-lote-amplo-exclusivo-escriturado-1511823124
 
+
+## 🆕 12 novos anúncios — 20/06/2026 11:31
+
+- **Terreno no bairro Barra Clara, em Angelina - SC**
+  - 💰 R$ 180.000 | 📐 4500 m²
+  - 📍 Centro — Barra Clara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-barra-clara-em-angelina-sc-1511968655
+
+- **Terreno no bairro Barra Clara, em Angelina - SC**
+  - 💰 R$ 150.000 | 📐 4250 m²
+  - 📍 Centro — Barra Clara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-barra-clara-em-angelina-sc-1511968670
+
+- **Terreno no bairro Barra Clara, em Angelina - SC**
+  - 💰 R$ 210.000 | 📐 6112 m²
+  - 📍 Centro — Barra Clara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-barra-clara-em-angelina-sc-1511968673
+
+- **Terreno - Palhoça SC**
+  - 💰 R$ 420.000 | 📐 360 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-palhoca-sc-1511967404
+
+- **CHÁCARA COM CACHOEIRA**
+  - 💰 R$ 350.000 | 📐 1500 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-cachoeira-1511966288
+
+- **Terreno rural para sítio**
+  - 💰 R$ 150.000 | 📐 4000 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-para-sitio-1511962960
+
+- **Sítio à venda no Bairro Moura em Canelinha/SC**
+  - 💰 R$ 5.000.000 | 📐 16570 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-moura-em-canelinha-sc-1511962524
+
+- **Sítio à venda no Bairro Aguti em Nova Trento/SC**
+  - 💰 R$ 2.500.000 | 📐 3041 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-aguti-em-nova-trento-sc-1511962263
+
+- **Terreno à Venda no Bairro Carianos, Florianópolis !!**
+  - 💰 R$ 575.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-carianos-florianopolis-1511957295
+
+- **Terreno à Venda com 771m² e Escritura Pública, Cachoeira do Bom Jesus,**
+  - 💰 R$ 1.000.000 | 📐 771 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-771m-e-escritura-publica-cachoeira-do-bom-jesus-florianopolis-sc-1511956808
+
+- **Casa/Terreno Kobrasol**
+  - 💰 R$ 1.299.900 | 📐 308 m²
+  - 📍 Kobrasol — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-terreno-kobrasol-1470458882
+
+- **Terreno à venda em loteamento fechado e planejado, na Armação, em Flor**
+  - 💰 R$ 940.000 | 📐 10 m²
+  - 📍 Morro das Pedras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-loteamento-fechado-e-planejado-na-armacao-em-florianopolis-sc-1511952812
+
