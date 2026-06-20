@@ -111534,3 +111534,36 @@
   - 📍 Morro das Pedras — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-loteamento-fechado-e-planejado-na-armacao-em-florianopolis-sc-1511952812
 
+
+## 🆕 6 novos anúncios — 20/06/2026 16:31
+
+- **VENDE-SE TERRENO COM CASA  EM ÁREA CENTRAL DE BALNEÁRIO GAIVOTA/SC**
+  - 💰 R$ 380.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-com-casa-em-area-central-de-balneario-gaivota-sc-1512027068
+
+- **VENDO - SÍTIO NOVA VENEZA / SIDERÓPOLIS**
+  - 💰 R$ 265.000 | 📐 1000 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-nova-veneza-sideropolis-1512024449
+
+- **Terreno com vista para lago no Blue Condomínio Club - Biguaçu**
+  - 💰 R$ 290.000 | 📐 150 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-lago-no-blue-condominio-club-biguacu-1512020715
+
+- **Terreno**
+  - 💰 R$ 150.000 | 📐 ? m²
+  - 📍 Tereza Cristina — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1512001202
+
+- **Terreno no loteamento Humberto Locks - Mina do Mato**
+  - 💰 R$ 235.000 | 📐 420 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-humberto-locks-mina-do-mato-1511982020
+
+- **Vendo terreno de 300 MTS por 40mil ou 600mts por 75mil**
+  - 💰 R$ 40.000 | 📐 300 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-de-300-mts-por-40mil-ou-600mts-por-75mil-1511980700
+
