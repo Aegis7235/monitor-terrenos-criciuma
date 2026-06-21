@@ -111778,3 +111778,16 @@
   - 📍 Sertão do Maruim — São José
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-p-construir-ou-investir-1511972535
 
+
+## 🆕 2 novos anúncios — 21/06/2026 11:57
+
+- **TERRENO 450M² EM LOTEAMENTO NO CAMPECHE - FINANCIAVEL**
+  - 💰 R$ 1.060.000 | 📐 450 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450m-em-loteamento-no-campeche-financiavel-1512174512
+
+- **Sítio à venda em São Bonifácio - SC**
+  - 💰 R$ 800.000 | 📐 54000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-sao-bonifacio-sc-1512165721
+
