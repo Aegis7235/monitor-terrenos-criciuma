@@ -111829,3 +111829,31 @@
   - 📍 Centro — Siderópolis
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sideropolis-centro-47500m2-RS400000/id-43920679/
 
+
+## 🆕 5 novos anúncios — 21/06/2026 22:26
+
+- **Terreno em Alfredo Wagner**
+  - 💰 R$ 225.000 | 📐 2200 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-alfredo-wagner-1512283062
+
+- **Vendo terreno**
+  - 💰 R$ 150.000 | 📐 574 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-1512282864
+
+- **Terreno de esquina c/ 540m² na avenida principal escriturado**
+  - 💰 R$ 249.000 | 📐 540 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-c-540m-na-avenida-principal-escriturado-1512261422
+
+- **Terreno a 80m do mar 390m² privativos 2º terreno da rua Frente Mar Esc**
+  - 💰 R$ 285.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-80m-do-mar-390m-privativos-2-terreno-da-rua-frente-mar-escriturado-terreno-lim-1512251136
+
+- **Terreno 200m do mar escriturado 390m² em rua Calçada Financiável Quadr**
+  - 💰 R$ 219.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-200m-do-mar-escriturado-390m-em-rua-calcada-financiavel-quadra-mar-1512243504
+
