@@ -111791,3 +111791,41 @@
   - 📍  — São Bonifácio
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-sao-bonifacio-sc-1512165721
 
+
+## 🆕 7 novos anúncios — 21/06/2026 16:57
+
+- **Terreno à venda, no Bairro Beira Rio, Biguaçu-SC. Com Tamanho de 150,0**
+  - 💰 R$ 285.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-beira-rio-biguacu-sc-com-tamanho-de-150-00m-1512226540
+
+- **Terreno para à venda, no Bairro Forquilhinha, São José-SC. Com Tamanho**
+  - 💰 R$ 490.000 | 📐 531 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-a-venda-no-bairro-forquilhinha-sao-jose-sc-com-tamanho-de-531-44-metros-1512226513
+
+- **SITIO TRÊS RIACHOS**
+  - 💰 R$ 250.000 | 📐 1120 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-tres-riachos-1512220007
+
+- **Oportunidade em terreno a 150 m do mar Escriturado e Aterrado Acesso d**
+  - 💰 R$ 185.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-em-terreno-a-150-m-do-mar-escriturado-e-aterrado-acesso-direto-a-praia-15m-x-1512219652
+
+- **Terreno Loteamento Dona Irene - Criciuma/SC**
+  - 💰 R$ 180.000 | 📐 324 m²
+  - 📍 Bosque do Repouso — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-dona-irene-criciuma-sc-1384542465
+
+- **Vivenda Praianos terreno 316,50m**
+  - 💰 R$ 315.000 | 📐 316500 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vivenda-praianos-terreno-316-50m-1512196330
+
+- **Chácara / sítio à venda no Centro, Siderópolis**
+  - 💰 R$ 400.000 | 📐 20 m²
+  - 📍 Centro — Siderópolis
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-sideropolis-centro-47500m2-RS400000/id-43920679/
+
