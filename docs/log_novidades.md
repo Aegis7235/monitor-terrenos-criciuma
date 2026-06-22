@@ -111988,3 +111988,16 @@
   - 📍  — Alfredo Wagner
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-sitio-rio-adaga-alfredo-wagner-sc-1512489315
 
+
+## 🆕 2 novos anúncios — 22/06/2026 22:57
+
+- **CONDOMÍNIO RESIDENCIAL PARQUE DOS IPÊS   ***   INFRAESTRUTURA COMPLETA**
+  - 💰 R$ 414.000 | 📐 360 m²
+  - 📍 Lagoa da Serra — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-residencial-parque-dos-ipes--infraestrutura-completa--ararangua-1512508127
+
+- **Casa para Venda em Balneário Gaivota, Centro, 2 dormitórios, 1 banheir**
+  - 💰 R$ 650.000 | 📐 288 m²
+  - 📍 Centro — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-sc-balneario-gaivota-centro-288m2-RS650000/id-30643579/
+
