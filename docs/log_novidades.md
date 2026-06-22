@@ -111915,3 +111915,76 @@
   - 📍 João Paulo — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jazigo-lote-cemiterio-jardim-da-paz-florianopolis-1512232619
 
+
+## 🆕 14 novos anúncios — 22/06/2026 18:59
+
+- **Terrenos Industriais/Comerciais - Parque Empresarial Arnaldo Peixoto -**
+  - 💰 R$ 4.871.146 | 📐 3479 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-industriais-comerciais-parque-empresarial-arnaldo-peixoto-tijucas-sc-1512478920
+
+- **Lotes industriais/comerciais  à Venda em - Tijucas, Santa Luzia/SC**
+  - 💰 R$ 5.000.000 | 📐 2939 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-industriais-comerciais-a-venda-em-tijucas-santa-luzia-sc-1512475354
+
+- **Terreno industrial/comercial à venda no Bairro Santa Luzia em Tijucas **
+  - 💰 R$ 2.399.000 | 📐 1388 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-comercial-a-venda-no-bairro-santa-luzia-em-tijucas-sc-1512473377
+
+- **TERRENO 300m² COM ÁGUA**
+  - 💰 R$ 25.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-com-agua-1512462587
+
+- **Terrenos Industriais/Comerciais - Parque Empresarial Arnaldo Peixoto -**
+  - 💰 R$ 4.491.130 | 📐 3207 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-industriais-comerciais-parque-empresarial-arnaldo-peixoto-tijucas-sc-1512461200
+
+- **Terreno em Garopaba SC**
+  - 💰 R$ 1.300.000 | 📐 3815 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-sc-1512459398
+
+- **LINDO 10 HECTARES VISTA PARA LAGOA!**
+  - 💰 R$ 580.000 | 📐 100000 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-10-hectares-vista-para-lagoa-1512455305
+
+- **Terreno com Escritura Pública de 404,75m² Próximo às Dunas do Siriú em**
+  - 💰 R$ 560.000 | 📐 404 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-de-404-75m-proximo-as-dunas-do-siriu-em-garopaba-sc-1512429744
+
+- **lindo sítio no Alfredo Wagner, com casa linda**
+  - 💰 R$ 330.000 | 📐 1680 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-no-alfredo-wagner-com-casa-linda-1512427837
+
+- **Terreno Condomínio Fechado Praia do Rosa- Escritura Pública! ÓTIMA OPO**
+  - 💰 R$ 270.000 | 📐 249 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-fechado-praia-do-rosa-escritura-publica-otima-oportunidade-1459147957
+
+- **Sítio Imarui 6ha**
+  - 💰 R$ 350.000 | 📐 59546 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-imarui-6ha-1512406619
+
+- **Sitio em Imaruí com casa**
+  - 💰 R$ 550.000 | 📐 16940 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-imarui-com-casa-1512387350
+
+- **Últimas unidades**
+  - 💰 R$ 380.000 | 📐 507 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ultimas-unidades-1512373475
+
+- **VENDE-SE SÍTIO RIO ADAGA - ALFREDO WAGNER/SC**
+  - 💰 R$ 750.000 | 📐 47000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-sitio-rio-adaga-alfredo-wagner-sc-1512489315
+
