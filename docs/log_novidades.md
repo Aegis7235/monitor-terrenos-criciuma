@@ -111857,3 +111857,61 @@
   - 📍  — Laguna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-200m-do-mar-escriturado-390m-em-rua-calcada-financiavel-quadra-mar-1512243504
 
+
+## 🆕 11 novos anúncios — 22/06/2026 09:23
+
+- **TERRENO - SÃO JOÃO DO RIO VERMELHO - SC**
+  - 💰 R$ 750.000 | 📐 1009 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-sao-joao-do-rio-vermelho-sc-1512360970
+
+- **Terreno Residencial à venda, Itacorubi, Florianópolis - TE0029.**
+  - 💰 R$ 6.400.000 | 📐 6395 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-a-venda-itacorubi-florianopolis-te0029-1374952663
+
+- **Vendo tereno**
+  - 💰 R$ 80.000 | 📐 120 m²
+  - 📍 Saco dos Limões — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-tereno-1512301052
+
+- **Terreno na praia OPORTUNIDADE ÚNICA!**
+  - 💰 R$ 1.600.000 | 📐 507 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-oportunidade-unica-1512290516
+
+- **Terreno no bairro Vila Junckes, em São Pedro de Alcântara - SC**
+  - 💰 R$ 199.900 | 📐 594 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-vila-junckes-em-sao-pedro-de-alcantara-sc-1512289800
+
+- **Terreno Urbano de 3.873m² com Vista para a Lagoa em Imaruí - SC**
+  - 💰 R$ 265.000 | 📐 3873 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-de-3-873m-com-vista-para-a-lagoa-em-imarui-sc-1512287839
+
+- **Terreno a venda no Loteamento Bosque Résidence Galerie no Campeche - F**
+  - 💰 R$ 1.290.000 | 📐 372 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-bosque-residence-galerie-no-campeche-florianopolis-sc-1512278004
+
+- **Vendo Terreno na Pedra Branca**
+  - 💰 R$ 799.000 | 📐 510 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-pedra-branca-1512242264
+
+- **Terreno de**
+  - 💰 R$ 2.500.000 | 📐 720 m²
+  - 📍 Praia Brava — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-1512235726
+
+- **Imóvel - Chalé**
+  - 💰 R$ 159.000 | 📐 65 m²
+  - 📍 Distrito Industrial — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-chale-1512234574
+
+- **Jazigo lote Cemitério Jardim da Paz Florianópolis**
+  - 💰 R$ 8.000 | 📐 6 m²
+  - 📍 João Paulo — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/jazigo-lote-cemiterio-jardim-da-paz-florianopolis-1512232619
+
