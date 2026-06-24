@@ -114044,3 +114044,281 @@
   - 📍  — Imaruí
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-unica-em-imarui-sc-tipo-terreno-negociacao-venda-online-situacao-i-1512933373
 
+
+## 🆕 55 novos anúncios — 24/06/2026 17:19
+
+- **TERRENO a VENDA em CANELINHA SC**
+  - 💰 R$ 200.000 | 📐 ? m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-canelinha-sc-1513002839
+
+- **TERRENO a VENDA em CANELINHA SC**
+  - 💰 R$ 180.000 | 📐 ? m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-canelinha-sc-1513001437
+
+- **Sítio em Centro - Anitápolis**
+  - 💰 R$ 1.500.000 | 📐 300 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-centro-anitapolis-1512999184
+
+- **Lote / Terreno em Sertão do Maruim - São José, SC**
+  - 💰 R$ 288.000 | 📐 360 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-sertao-do-maruim-sao-jose-sc-1383303132
+
+- **Terreno área central do Campeche à venda com 22.323m²**
+  - 💰 R$ 28.000.000 | 📐 22323 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-area-central-do-campeche-a-venda-com-22-323m-1512985028
+
+- **TERRENO DE 650m² NA TRINDADE À 600 METROS DA UFSC**
+  - 💰 R$ 780.000 | 📐 650 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-650m-na-trindade-600-metros-da-ufsc-1512979553
+
+- **TERRENO CANELINHA  a VENDA**
+  - 💰 R$ 250.000 | 📐 ? m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-canelinha-a-venda-1512977021
+
+- **FKDS - 2 Hectares - Sítio 5km do centro de Rancho Queimado / SC**
+  - 💰 R$ 370.000 | 📐 20000 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fkds-2-hectares-sitio-5km-do-centro-de-rancho-queimado-sc-1512972374
+
+- **Loteamento à Venda no novo Jardim das Palmas**
+  - 💰 R$ 121.668 | 📐 399 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-a-venda-no-novo-jardim-das-palmas-1512680118
+
+- **VENDA  TERRENO  CANELINHA**
+  - 💰 R$ 298.000 | 📐 9523 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terreno-canelinha-1512970796
+
+- **Loteamento à Venda no novo Jardim das Palmas**
+  - 💰 R$ 184.968 | 📐 505 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-a-venda-no-novo-jardim-das-palmas-1512679900
+
+- **Vende-se ou troca, terreno em Tijucas SC**
+  - 💰 R$ 350.000 | 📐 4900 m²
+  - 📍 Área Rural de Tijucas — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-ou-troca-terreno-em-tijucas-sc-1512964110
+
+- **Sítio em Águas Mornas**
+  - 💰 R$ 690.000 | 📐 7000 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-aguas-mornas-1512956574
+
+- **Terreno para venda tem 362 metros quadrados em Barra do Aririú - Palho**
+  - 💰 R$ 315.000 | 📐 362 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-tem-362-metros-quadrados-em-barra-do-aririu-palhoca-sc-1512955216
+
+- **Terreno Villa da Imperatriz- Santo Amaro da Imperatriz**
+  - 💰 R$ 500.000 | 📐 914 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-villa-da-imperatriz-santo-amaro-da-imperatriz-1512951677
+
+- **Terreno em Ponta das Canas**
+  - 💰 R$ 175.000 | 📐 104 m²
+  - 📍 Ponta das Canas — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ponta-das-canas-1512947394
+
+- **Coqueiros terreno vende - Próximo ao Supermercado Imperatriz e ao Parq**
+  - 💰 R$ 780.000 | 📐 320 m²
+  - 📍 Coqueiros — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/coqueiros-terreno-vende-proximo-ao-supermercado-imperatriz-e-ao-parque-de-coqueiros-1512945027
+
+- **Sítio com 3 casas à venda - Fazenda Sacramento, Águas Mornas/SC**
+  - 💰 R$ 2.200.000 | 📐 430 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-3-casas-a-venda-fazenda-sacramento-aguas-mornas-sc-1512944253
+
+- **Terreno em Alto Biguaçu - Biguaçu**
+  - 💰 R$ 260.000 | 📐 361 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-alto-biguacu-biguacu-1512938942
+
+- **Terreno em Tijuquinhas - Biguaçu**
+  - 💰 R$ 130.000 | 📐 402 m²
+  - 📍 Tijuquinhas (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-tijuquinhas-biguacu-1512938933
+
+- **TERRENO PLANO COM 300m² À VENDA EM AREIAS  SÃO JOSÉ/SC**
+  - 💰 R$ 420.000 | 📐 300 m²
+  - 📍 Areias — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-com-300m-venda-em-areias-sao-jose-sc-1512937395
+
+- **Terreno à venda Loteamento Portal Europeu, Antônio Carlos/SC - 368m²**
+  - 💰 R$ 270.000 | 📐 368 m²
+  - 📍 Guiomar — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-portal-europeu-antonio-carlos-sc-368m-1512936902
+
+- **Terreno de esquina com potencial construtivo**
+  - 💰 R$ 790.000 | 📐 549 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-com-potencial-construtivo-1513013017
+
+- **Onde viver e investir é a escolha certa**
+  - 💰 R$ 84.690 | 📐 200 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/onde-viver-e-investir-e-a-escolha-certa-1513013042
+
+- **Terreno em Itapirubá  Perto da Praia e Pronto para Construir**
+  - 💰 R$ 690.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-itapiruba-perto-da-praia-e-pronto-para-construir-1513013027
+
+- **Lote com características comerciais em ITAPIRUBÁ.**
+  - 💰 R$ 295.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-com-caracteristicas-comerciais-em-itapiruba-1513013025
+
+- **Terreno Próximo ao Mar**
+  - 💰 R$ 392.000 | 📐 280 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-ao-mar-1513013194
+
+- **Terreno à Venda  Condomínio Quinta do Lago, Monte Castelo, Tubarão/SC**
+  - 💰 R$ 899.900 | 📐 750 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-condominio-quinta-do-lago-monte-castelo-tubarao-sc-1513013096
+
+- **Terreno à Venda  Loteamento Arino Bressan, Bairro Monte Castelo, Tubar**
+  - 💰 R$ 200.000 | 📐 406 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-arino-bressan-bairro-monte-castelo-tubarao-sc-1513013119
+
+- **Terreno à Venda  Parque das Palmeiras, Vila Esperança, Tubarão/SC**
+  - 💰 R$ 475.576 | 📐 324 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-parque-das-palmeiras-vila-esperanca-tubarao-sc-1513013125
+
+- **Seu destino ideal**
+  - 💰 R$ 580.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-destino-ideal-1513013109
+
+- **Loteamento Vale Azul**
+  - 💰 R$ 210.280 | 📐 360 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-vale-azul-1513013111
+
+- **Local ideal para a sua empresa**
+  - 💰 R$ 396.197 | 📐 426 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/local-ideal-para-a-sua-empresa-1513013112
+
+- **Ideal para Morar ou Investir  Próximo da Praia**
+  - 💰 R$ 525.000 | 📐 600 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/ideal-para-morar-ou-investir-proximo-da-praia-1513013114
+
+- **Terreno à Venda, Bairro Revoredo, Tubarão/SC**
+  - 💰 R$ 530.000 | 📐 360 m²
+  - 📍 Revoredo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-revoredo-tubarao-sc-1513013118
+
+- **Lote em Itapirubá, 300 metros da praia - Praia Sul**
+  - 💰 R$ 350.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-itapiruba-300-metros-da-praia-praia-sul-1513013123
+
+- **Terreno em Itapirubá  Perto da Praia e Pronto para Construir**
+  - 💰 R$ 420.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-itapiruba-perto-da-praia-e-pronto-para-construir-1513013072
+
+- **Tranquilidade e qualidade de vida,**
+  - 💰 R$ 490.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tranquilidade-e-qualidade-de-vida-1513013080
+
+- **Terreno Pronto parar Construir**
+  - 💰 R$ 115.000 | 📐 250 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-parar-construir-1513013090
+
+- **Terreno com Galpão em Humaitá, Tubarão/SC**
+  - 💰 R$ 750.000 | 📐 369 m²
+  - 📍 Humaitá — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-galpao-em-humaita-tubarao-sc-1513013095
+
+- **Lote à Venda  Bairro Congonhas, Tubarão/SC**
+  - 💰 R$ 690.000 | 📐 35000 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-bairro-congonhas-tubarao-sc-1513013069
+
+- **Terreno condomínio fechado**
+  - 💰 R$ 517.420 | 📐 531 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-fechado-1513013075
+
+- **Terreno à venda em Tubarão/SC**
+  - 💰 R$ 124.756 | 📐 288 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-tubarao-sc-1513013076
+
+- **Terreno em Condomínio, Criciúma SC**
+  - 💰 R$ 530.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-criciuma-sc-1513013084
+
+- **Terreno à Venda  Às Margens da BR-101, Pescaria Brava/SC (KM 37)**
+  - 💰 R$ 2.800.000 | 📐 4818 m²
+  - 📍  — Pescaria Brava
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-s-margens-da-br-101-pescaria-brava-sc-km-37-1513013101
+
+- **Terreno à venda no bairro Centro - Imbituba/SC**
+  - 💰 R$ 1.665.994 | 📐 812 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-centro-imbituba-sc-1513013091
+
+- **Lote pronto para construir**
+  - 💰 R$ 274.641 | 📐 422 m²
+  - 📍 Passagem — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-pronto-para-construir-1513013064
+
+- **Green Park**
+  - 💰 R$ 390.000 | 📐 655 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/green-park-1513013070
+
+- **Terreno condomínio fechado**
+  - 💰 R$ 713.183 | 📐 637 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-fechado-1513013066
+
+- **Terreno em ITAPIRUBÁ**
+  - 💰 R$ 180.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-itapiruba-1513013022
+
+- **Terreno, pronto para construir.**
+  - 💰 R$ 279.313 | 📐 375 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-1513013058
+
+- **Terreno à Venda  Loteamento Santa Marta, Bairro Congonhas, Tubarão/SC**
+  - 💰 R$ 135.000 | 📐 250 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-santa-marta-bairro-congonhas-tubarao-sc-1513013063
+
+- **Lote à Venda  Praia de Itapirubá Norte, Imbituba/SC**
+  - 💰 R$ 800.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-praia-de-itapiruba-norte-imbituba-sc-1513013026
+
+- **Terreno à Venda  Monte Castelo, Tubarão/SC**
+  - 💰 R$ 300.000 | 📐 714 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-monte-castelo-tubarao-sc-1513013021
+
+- **Chácara / sítio com 3 quartos à venda no Centro, Sombrio**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍 Centro — Sombrio
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-sombrio-centro-20000m2-RS450000/id-44018477/
+
