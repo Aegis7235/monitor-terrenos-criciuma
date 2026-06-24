@@ -114322,3 +114322,401 @@
   - 📍 Centro — Sombrio
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-sombrio-centro-20000m2-RS450000/id-44018477/
 
+
+## 🆕 79 novos anúncios — 24/06/2026 22:32
+
+- **Área com 38.621,14 m² de Natureza Intocada na Encantada**
+  - 💰 R$ 3.500.000 | 📐 38621 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-com-38-621-14-m-de-natureza-intocada-na-encantada-1513075642
+
+- **ÓTIMA OPORTUNIDADE DE TERRENO NO AMBRÓSIO EM GAROPABA/SC**
+  - 💰 R$ 370.000 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-terreno-no-ambrosio-em-garopaba-sc-1513075739
+
+- **TERRENO PRONTO PARA CONSTRUIR - JARDIM AMÉRICA - PASSO DE TORRES**
+  - 💰 R$ 130.000 | 📐 234 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-jardim-america-passo-de-torres-1513045052
+
+- **Sítio para Venda em Alfredo Wagner, Lomba alta, 3 dormitórios, 3 banhe**
+  - 💰 R$ 1.150.000 | 📐 145 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-alfredo-wagner-lomba-alta-3-dormitorios-3-banheiros-1513041073
+
+- **Terreno com mais de 7 hectares e amplo galpão em Morro da Fumaça**
+  - 💰 R$ 1.500.000 | 📐 74576 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-mais-de-7-hectares-e-amplo-galpao-em-morro-da-fumaca-1513026204
+
+- **Alugo casa/Sitio em Forquilha do Rio Duna**
+  - 💰 R$ 1.700 | 📐 1642 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alugo-casa-sitio-em-forquilha-do-rio-duna-1513023928
+
+- **Terreno à Venda  Green Park Residence, Termas do Gravatal/SC**
+  - 💰 R$ 320.000 | 📐 445 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-green-park-residence-termas-do-gravatal-sc-1513013955
+
+- **Terreno em ITAPIRUBÁ**
+  - 💰 R$ 185.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-itapiruba-1513013961
+
+- **Loteamento com vista para o mar em Imbituba**
+  - 💰 R$ 375.994 | 📐 307 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-com-vista-para-o-mar-em-imbituba-1513013741
+
+- **Terreno à Venda  Loteamento Três Caminhos, Santa Luzia, Tubarão/SC**
+  - 💰 R$ 108.000 | 📐 332 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-tres-caminhos-santa-luzia-tubarao-sc-1513013597
+
+- **Terreno à Venda  Loteamento Jardins, Praia Redonda, Tubarão/SC**
+  - 💰 R$ 125.000 | 📐 250 m²
+  - 📍 São Clemente — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-jardins-praia-redonda-tubarao-sc-1513013680
+
+- **Terreno à Venda  Loteamento Damian, Tubarão/SC**
+  - 💰 R$ 112.500 | 📐 323 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-damian-tubarao-sc-1513013595
+
+- **Terreno à venda em Capivari de Baixo/SC**
+  - 💰 R$ 267.000 | 📐 579 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-capivari-de-baixo-sc-1513013697
+
+- **Construa Seu Refúgio na Praia do Sol**
+  - 💰 R$ 180.000 | 📐 15 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/construa-seu-refugio-na-praia-do-sol-1513013691
+
+- **Um lugar rodeado de natureza e no caminho das praias**
+  - 💰 R$ 141.141 | 📐 264 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/um-lugar-rodeado-de-natureza-e-no-caminho-das-praias-1513013688
+
+- **Terreno à venda em Tubarão/SC**
+  - 💰 R$ 273.000 | 📐 400 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-tubarao-sc-1513013619
+
+- **Terreno Praia de Itapirubá**
+  - 💰 R$ 215.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-de-itapiruba-1513013670
+
+- **Terreno à venda em Tubarão/SC**
+  - 💰 R$ 159.490 | 📐 252 m²
+  - 📍 Passagem — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-tubarao-sc-1513013695
+
+- **Terreno condomínio fechado**
+  - 💰 R$ 619.709 | 📐 554 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-fechado-1513013681
+
+- **Terreno em condomínio fechado**
+  - 💰 R$ 95.000 | 📐 250 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-1513013666
+
+- **Aqui sua família vai construir memorias incríveis**
+  - 💰 R$ 327.803 | 📐 586 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aqui-sua-familia-vai-construir-memorias-incriveis-1513013668
+
+- **Terreno em ITAPIRUBÁ**
+  - 💰 R$ 180.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-itapiruba-1513013669
+
+- **Terreno à Venda  Condomínio Lagoa Azul, Jaguaruna/SC**
+  - 💰 R$ 490.000 | 📐 450 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-condominio-lagoa-azul-jaguaruna-sc-1513013663
+
+- **Lote em condomínio fechado**
+  - 💰 R$ 124.756 | 📐 336 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-fechado-1513013632
+
+- **Terreno à Venda  Loteamento Silvestre, São João (Margem Esquerda), Tub**
+  - 💰 R$ 265.000 | 📐 300 m²
+  - 📍 Morrotes — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-silvestre-sao-joao-margem-esquerda-tubarao-sc-1513013674
+
+- **Terreno Loteamento Jardins de Padova, Tubarão/SC**
+  - 💰 R$ 350.000 | 📐 493 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-jardins-de-padova-tubarao-sc-1513013633
+
+- **Lote de Esquina Condomínio Green Park**
+  - 💰 R$ 455.000 | 📐 609 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-condominio-green-park-1513013677
+
+- **Pronto para construí na Pescaria Brava**
+  - 💰 R$ 115.000 | 📐 360 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/pronto-para-construi-na-pescaria-brava-1513013630
+
+- **Terreno condomínio fechado**
+  - 💰 R$ 619.694 | 📐 639 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-fechado-1513013634
+
+- **Terreno Loteamento Jardins de Padova, Tubarão/SC**
+  - 💰 R$ 350.000 | 📐 448 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-jardins-de-padova-tubarao-sc-1513013583
+
+- **Loteamento Vale Azul**
+  - 💰 R$ 168.224 | 📐 288 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-vale-azul-1513013589
+
+- **Terreno à Venda  Humaitá de Cima, Tubarão/SC**
+  - 💰 R$ 250.000 | 📐 310 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-humaita-de-cima-tubarao-sc-1513013590
+
+- **Terreno na Praia de Itapirubá**
+  - 💰 R$ 540.000 | 📐 650 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-de-itapiruba-1513013594
+
+- **Lote a 195 metros da praia norte - Itapirubá.**
+  - 💰 R$ 634.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-195-metros-da-praia-norte-itapiruba-1513013603
+
+- **Terreno à Venda  Bairro São Martinho, Tubarão/SC**
+  - 💰 R$ 215.000 | 📐 857 m²
+  - 📍 São Martinho — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-sao-martinho-tubarao-sc-1513013561
+
+- **Terreno Imbituba**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-imbituba-1513013553
+
+- **Terreno Loteamento Jardins de Padova, Tubarão/SC**
+  - 💰 R$ 350.000 | 📐 656 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-jardins-de-padova-tubarao-sc-1513013571
+
+- **Terreno Ribanceira, Imbituba/SC**
+  - 💰 R$ 330.000 | 📐 312 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ribanceira-imbituba-sc-1513013572
+
+- **Terreno à Venda, Loteamento Vilaggio das Pedras, Humaitá de Cima, Tuba**
+  - 💰 R$ 289.000 | 📐 300 m²
+  - 📍 Humaitá de Cima — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-vilaggio-das-pedras-humaita-de-cima-tubarao-sc-1513013209
+
+- **Terreno à venda, Condomínio Fechado Aqualina Lake Club**
+  - 💰 R$ 530.000 | 📐 450 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-condominio-fechado-aqualina-lake-club-1513013225
+
+- **Terreno à venda Loteamento Nova Pescaria Brava/SC**
+  - 💰 R$ 115.200 | 📐 360 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-nova-pescaria-brava-sc-1513013229
+
+- **Terreno em Monte Castelo, Tubarão/SC**
+  - 💰 R$ 215.000 | 📐 435 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-monte-castelo-tubarao-sc-1513013210
+
+- **Terreno à venda no bairro São Clemente - Tubarão/SC**
+  - 💰 R$ 139.000 | 📐 279 m²
+  - 📍 São Clemente — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-sao-clemente-tubarao-sc-1513013216
+
+- **Terreno Loteamento Jardins de Padova, Tubarão/SC**
+  - 💰 R$ 300.000 | 📐 390 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-jardins-de-padova-tubarao-sc-1513013202
+
+- **Terreno Pronto parar Construir**
+  - 💰 R$ 115.000 | 📐 250 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-parar-construir-1513013204
+
+- **Terreno à Venda  Estrada Geral da Madre, Tubarão/SC**
+  - 💰 R$ 380.000 | 📐 791 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-estrada-geral-da-madre-tubarao-sc-1513013206
+
+- **Terreno à Venda  Bairro Vila Esperança, Tubarão/SC**
+  - 💰 R$ 350.000 | 📐 362 m²
+  - 📍 Vila Esperança — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-vila-esperanca-tubarao-sc-1513013207
+
+- **Terreno à venda em Tubarão/SC**
+  - 💰 R$ 130.000 | 📐 250 m²
+  - 📍 São Clemente — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-tubarao-sc-1513013219
+
+- **Terreno à Venda  Monte Castelo, Tubarão/SC**
+  - 💰 R$ 190.000 | 📐 238 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-monte-castelo-tubarao-sc-1513013187
+
+- **Reserva Revoredo, condomínio fechado**
+  - 💰 R$ 312.500 | 📐 250 m²
+  - 📍 Vila Esperança — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/reserva-revoredo-condominio-fechado-1513013199
+
+- **Terreno à Venda  Campestre, Tubarão/SC**
+  - 💰 R$ 115.000 | 📐 331 m²
+  - 📍 Campestre — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-campestre-tubarao-sc-1513013157
+
+- **Terreno à Venda  Morro do Canudo, Centro de Tubarão/SC**
+  - 💰 R$ 660.000 | 📐 519 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-morro-do-canudo-centro-de-tubarao-sc-1513013158
+
+- **Terreno à Venda  Condomínio Domus Vila Moema, Tubarão/SC**
+  - 💰 R$ 850.000 | 📐 450 m²
+  - 📍 Recife — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-condominio-domus-vila-moema-tubarao-sc-1513013162
+
+- **Lote em São João (Margem Esquerda), Tubarão/SC**
+  - 💰 R$ 320.000 | 📐 607 m²
+  - 📍 São João (Margem Esquerda) — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-sao-joao-margem-esquerda-tubarao-sc-1513013179
+
+- **Terreno à Venda  Condomínio Quinta do Lago, Monte Castelo, Tubarão/SC**
+  - 💰 R$ 640.000 | 📐 475 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-condominio-quinta-do-lago-monte-castelo-tubarao-sc-1513013149
+
+- **Lote a 160m da praia norte - Itapirubá/SC**
+  - 💰 R$ 570.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-160m-da-praia-norte-itapiruba-sc-1513013171
+
+- **Lote à Venda  Praia de Itapirubá Norte, Imbituba/SC**
+  - 💰 R$ 800.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-praia-de-itapiruba-norte-imbituba-sc-1513013178
+
+- **Terreno à venda no bairro Itapiruba - Laguna/SC**
+  - 💰 R$ 350.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-itapiruba-laguna-sc-1513013175
+
+- **Lote em Itapirubá, Laguna/SC**
+  - 💰 R$ 264.957 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-itapiruba-laguna-sc-1513013191
+
+- **Loteamento Ricardo Bressan**
+  - 💰 R$ 127.000 | 📐 252 m²
+  - 📍 Oficinas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-ricardo-bressan-1513013184
+
+- **Mais Perto do Mar, Mais Perto do que Importa**
+  - 💰 R$ 625.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/mais-perto-do-mar-mais-perto-do-que-importa-1513013148
+
+- **Terreno à Venda, Bairro Revoredo, Tubarão/SC**
+  - 💰 R$ 700.000 | 📐 665 m²
+  - 📍 Humaitá — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-revoredo-tubarao-sc-1513013161
+
+- **Terreno para venda na entrada norte de Tubarão, SC**
+  - 💰 R$ 750.000 | 📐 462 m²
+  - 📍 Revoredo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-na-entrada-norte-de-tubarao-sc-1513013166
+
+- **Terreno à Venda  Loteamento Jardins, Praia Redonda, Tubarão/SC**
+  - 💰 R$ 125.000 | 📐 250 m²
+  - 📍 São Clemente — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-jardins-praia-redonda-tubarao-sc-1513013174
+
+- **Terreno em Pescaria Brava**
+  - 💰 R$ 562.575 | 📐 1500 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-pescaria-brava-1513013138
+
+- **Terreno à Venda  Vila Moema, Tubarão/SC**
+  - 💰 R$ 1.600.000 | 📐 645 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-vila-moema-tubarao-sc-1513013146
+
+- **Terreno Industrial/Comercial proximo a BR 101**
+  - 💰 R$ 392.700 | 📐 462 m²
+  - 📍 São Cristóvão — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-comercial-proximo-a-br-101-1513013151
+
+- **Terreno à Venda  Loteamento Santo Antônio, Capivari de Baixo/SC**
+  - 💰 R$ 214.000 | 📐 348 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-santo-antonio-capivari-de-baixo-sc-1513013143
+
+- **Terreno à Venda, Bairro Revoredo, Tubarão/SC**
+  - 💰 R$ 540.000 | 📐 451 m²
+  - 📍 Humaitá — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-revoredo-tubarao-sc-1513013147
+
+- **Terreno Pronto parar Construir**
+  - 💰 R$ 115.000 | 📐 250 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-parar-construir-1513013139
+
+- **Terreno à Venda  Loteamento Silvestre, São João (Margem Esquerda), Tub**
+  - 💰 R$ 270.000 | 📐 375 m²
+  - 📍 Vila Moema — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-silvestre-sao-joao-margem-esquerda-tubarao-sc-1513013131
+
+- **Terreno à venda em Tubarão/SC**
+  - 💰 R$ 175.980 | 📐 252 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-tubarao-sc-1513013135
+
+- **Terreno à Venda na beira da Lagoa, bairro Cabeçuda, Laguna/SC**
+  - 💰 R$ 850.000 | 📐 2003 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-beira-da-lagoa-bairro-cabecuda-laguna-sc-1513013141
+
+- **Terreno à venda Loteamento Nova Pescaria Brava/SC**
+  - 💰 R$ 220.000 | 📐 720 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-nova-pescaria-brava-sc-1513013100
+
+- **Terreno à Venda  Loteamento Arino Bressan, Monte Castelo, Tubarão/SC**
+  - 💰 R$ 170.000 | 📐 252 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-arino-bressan-monte-castelo-tubarao-sc-1513013113
+
+- **Terreno condomínio fechado**
+  - 💰 R$ 530.504 | 📐 504 m²
+  - 📍 Monte Castelo — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-fechado-1513013117
+
+- **Pronto para construí na Pescaria Brava**
+  - 💰 R$ 115.000 | 📐 360 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/pronto-para-construi-na-pescaria-brava-1513013099
+
+- **Terreno à Venda  Loteamento Jardins, Praia Redonda, Tubarão/SC**
+  - 💰 R$ 125.000 | 📐 250 m²
+  - 📍 São Clemente — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-jardins-praia-redonda-tubarao-sc-1513013116
+
+- **Tranquilidade e qualidade de vida,**
+  - 💰 R$ 430.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tranquilidade-e-qualidade-de-vida-1513013122
+
