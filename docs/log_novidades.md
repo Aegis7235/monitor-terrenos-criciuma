@@ -115338,3 +115338,16 @@
   - 📍 São Bento Baixo — Nova Veneza
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-nova-veneza-sao-bento-baixo-30000m2-RS650000/id-43974191/
 
+
+## 🆕 2 novos anúncios — 25/06/2026 11:51
+
+- **Terreno à venda no bairro Praia do Siriú - Garopaba/SC**
+  - 💰 R$ 515.528 | 📐 360 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-praia-do-siriu-garopaba-sc-1513177433
+
+- **Terreno à venda no Siriú - Garopaba/SC | A apenas 400m da praia!**
+  - 💰 R$ 1.000.000 | 📐 546 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-siriu-garopaba-sc-a-apenas-400m-da-praia-1513173067
+
