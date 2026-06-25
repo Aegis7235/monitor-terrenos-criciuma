@@ -115894,3 +115894,31 @@
   - 📍 Pagani — Palhoça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-767m-pagani-imv-1513170380
 
+
+## 🆕 5 novos anúncios — 25/06/2026 22:30
+
+- **TERRENO ESCRITURADO PRÓXIMO AO MAR - BALNEÁRIO GAIVOTA/SC - R$ 99.900**
+  - 💰 R$ 99.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-proximo-ao-mar-balneario-gaivota-sc-r-99-900-1513325958
+
+- **TERRENO À VENDA EM CANELINHA - BAIRRO MOURA**
+  - 💰 R$ 230.000 | 📐 1600 m²
+  - 📍 Centro — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-em-canelinha-bairro-moura-1513343026
+
+- **TERRENO À VENDA EM ALFREDO WAGNER - SANTA BÁRBARA | IDEAL PARA LAZER O**
+  - 💰 R$ 90.000 | 📐 1928 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-em-alfredo-wagner-santa-barbara-ideal-para-lazer-ou-investimento-1513336625
+
+- **Área comercial 3.000 m2**
+  - 💰 R$ 3.500 | 📐 3000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-comercial-3-000-m2-1513290004
+
+- **Fazenda para Venda em Imaruí**
+  - 💰 R$ 8.500.000 | 📐 400 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-para-venda-em-imarui-1513279984
+
