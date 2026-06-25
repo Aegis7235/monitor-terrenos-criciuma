@@ -115351,3 +115351,546 @@
   - 📍  — Garopaba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-siriu-garopaba-sc-a-apenas-400m-da-praia-1513173067
 
+
+## 🆕 108 novos anúncios — 25/06/2026 17:27
+
+- **LOTE 300m2 GUARDA DO TABULEIRO atrás do posto de saúde**
+  - 💰 R$ 239.000 | 📐 300 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-300m2-guarda-do-tabuleiro-atras-do-posto-de-saude-1513270567
+
+- **Lote à venda em Antônio Carlos/SC**
+  - 💰 R$ 215.000 | 📐 360 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-em-antonio-carlos-sc-1513266823
+
+- **Terreno à venda no Centro de Antônio Carlos/SC**
+  - 💰 R$ 450.000 | 📐 622 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-antonio-carlos-sc-1513266906
+
+- **Lote à venda no Residencial Verde Vale  Antônio Carlos/SC**
+  - 💰 R$ 310.000 | 📐 450 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-residencial-verde-vale-antonio-carlos-sc-1513266876
+
+- **Sítio à venda, Guiomar de Dentro - Antônio Carlos/SC**
+  - 💰 R$ 950.000 | 📐 90000 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-guiomar-de-dentro-antonio-carlos-sc-1513266879
+
+- **Terreno à venda, Centro - Antônio Carlos/SC**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-centro-antonio-carlos-sc-1513266852
+
+- **Sítio à venda, Área Rural de Antônio Carlos - Antônio Carlos/SC**
+  - 💰 R$ 440.000 | 📐 40000 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-area-rural-de-antonio-carlos-antonio-carlos-sc-1513266854
+
+- **Terreno à venda, Canudos - Antônio Carlos/SC**
+  - 💰 R$ 460.000 | 📐 2000 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-canudos-antonio-carlos-sc-1513266776
+
+- **LOTE A VENDA NO CENTRO DE ANTÔNIO CARLOS-SC**
+  - 💰 R$ 380.000 | 📐 360 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-centro-de-antonio-carlos-sc-1513266764
+
+- **Terreno para venda no Condomínio Brisas no Deltaville, Biguaçu/SC**
+  - 💰 R$ 200.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-condominio-brisas-no-deltaville-biguacu-sc-1513266771
+
+- **Terreno para venda, Deltaville Industrial, Biguaçu**
+  - 💰 R$ 850.000 | 📐 900 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-deltaville-industrial-biguacu-1513266753
+
+- **Sítio à venda no Morro da Califórnia em Antônio Carlos/SC**
+  - 💰 R$ 1.750.000 | 📐 55000 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-morro-da-california-em-antonio-carlos-sc-1513265889
+
+- **Sítio à venda no bairro Usina, Antônio Carlos - SC**
+  - 💰 R$ 3.600.000 | 📐 100 m²
+  - 📍 Usina — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-bairro-usina-antonio-carlos-sc-1513265264
+
+- **Terreno à venda, Centro - Antônio Carlos/SC**
+  - 💰 R$ 365.000 | 📐 420 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-centro-antonio-carlos-sc-1513265830
+
+- **Lindo sítio na Guiomar De Baixo, na cidade de Antônio Carlos/SC**
+  - 💰 R$ 2.700.000 | 📐 330 m²
+  - 📍 Guiomar de Baixo — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-na-guiomar-de-baixo-na-cidade-de-antonio-carlos-sc-1513265901
+
+- **Terreno à venda no Centro de Antônio Carlos/SC**
+  - 💰 R$ 550.000 | 📐 818 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-antonio-carlos-sc-1513265881
+
+- **Lote à venda, Área Rural de Biguaçu - Biguaçu/SC**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-area-rural-de-biguacu-biguacu-sc-1513265896
+
+- **Lote comercial Loteamento nova governador.**
+  - 💰 R$ 270.000 | 📐 561 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-comercial-loteamento-nova-governador-1513265902
+
+- **Lote à venda no Residencial Bremen  Antônio Carlos/SC**
+  - 💰 R$ 342.000 | 📐 360 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-residencial-bremen-antonio-carlos-sc-1513265862
+
+- **Terreno para venda no Contorno Viário - Rodoanel, Biguaçu/SC**
+  - 💰 R$ 1.200.000 | 📐 6354 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-contorno-viario-rodoanel-biguacu-sc-1513265886
+
+- **Lote à venda no Loteamento Nova Governador, Governador Celso Ramos/SC**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍 Parque Industrial Sul — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-loteamento-nova-governador-governador-celso-ramos-sc-1513265844
+
+- **Terreno para venda, Centro, Antônio Carlos/SC**
+  - 💰 R$ 150.000 | 📐 540 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-centro-antonio-carlos-sc-1513265867
+
+- **O Seu Sítio está em Antônio Carlos!**
+  - 💰 R$ 680.000 | 📐 70000 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/o-seu-sitio-esta-em-antonio-carlos-1513265832
+
+- **Sítio para venda em Biguaçu, Alto Biguaçu**
+  - 💰 R$ 3.800.000 | 📐 150 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-em-biguacu-alto-biguacu-1513265859
+
+- **Sítio à Venda, Bairro Vila 12 em Antônio Carlos/SC**
+  - 💰 R$ 350.000 | 📐 2400 m²
+  - 📍 Vila Doze de Outubro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-bairro-vila-12-em-antonio-carlos-sc-1513265821
+
+- **Terreno para venda no Bairro Deltaville, Biguaçu/SC**
+  - 💰 R$ 1.800.000 | 📐 883 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-bairro-deltaville-biguacu-sc-1513265824
+
+- **Sítio para venda Rancho Miguel Antônio Carlos**
+  - 💰 R$ 860.000 | 📐 100 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-rancho-miguel-antonio-carlos-1513265845
+
+- **Conheça esse encanto de sítio em meio a natureza**
+  - 💰 R$ 3.800.000 | 📐 230 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/conheca-esse-encanto-de-sitio-em-meio-a-natureza-1513265852
+
+- **Terreno à venda no bairro Guiomar - Antônio Carlos/SC**
+  - 💰 R$ 600.000 | 📐 2000 m²
+  - 📍 Guiomar — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-guiomar-antonio-carlos-sc-1513265857
+
+- **Terreno para venda no bairro Usina, Antônio Carlos/SC**
+  - 💰 R$ 490.000 | 📐 5590 m²
+  - 📍 Usina — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-bairro-usina-antonio-carlos-sc-1513265836
+
+- **Lote à venda  Loteamento Santa Catarina, Biguaçu/SC  360 m²**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-loteamento-santa-catarina-biguacu-sc-360-m-1513265822
+
+- **Lindo sítio no bairro Guiomar De Baixo, Antônio Carlos/SC**
+  - 💰 R$ 2.900.000 | 📐 350 m²
+  - 📍 Guiomar de Baixo — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-no-bairro-guiomar-de-baixo-antonio-carlos-sc-1513265220
+
+- **Investidores: Área de 1.224 m² no Rio Vermelho - Aceita Permuta**
+  - 💰 R$ 1.000.000 | 📐 1224 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/investidores-area-de-1-224-m-no-rio-vermelho-aceita-permuta-1513265492
+
+- **Sitio em biguaçu**
+  - 💰 R$ 900.000 | 📐 3728 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-biguacu-1513265259
+
+- **Polo Empresarial da Grande Florianópolis com terrenos à venda em Gover**
+  - 💰 R$ 1.019.750 | 📐 1000 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/polo-empresarial-da-grande-florianopolis-com-terrenos-a-venda-em-governador-celso-ramos-1513265270
+
+- **Lote à venda, Centro - Antônio Carlos/SC**
+  - 💰 R$ 300.000 | 📐 375 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-centro-antonio-carlos-sc-1513265284
+
+- **Lote à venda, Loteamento Residencial Vila Germânia - Biguaçu/SC**
+  - 💰 R$ 250.000 | 📐 468 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-loteamento-residencial-vila-germania-biguacu-sc-1513265265
+
+- **Terreno para venda Loteamento Residencial Verde Vale, Centro, Antônio **
+  - 💰 R$ 270.000 | 📐 450 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-loteamento-residencial-verde-vale-centro-antonio-carlos-sc-1513265278
+
+- **Terreno à venda no Centro de Antônio Carlos/SC**
+  - 💰 R$ 360.000 | 📐 500 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-antonio-carlos-sc-1513265285
+
+- **Lote Residencial 360 m² à Venda em Loteamento Nova Governador, Governa**
+  - 💰 R$ 220.000 | 📐 360 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-residencial-360-m-a-venda-em-loteamento-nova-governador-governador-celso-ramos-1513265287
+
+- **Sítio de 5.000 m² à venda  Sossego e Natureza em Antônio Carlos/SC**
+  - 💰 R$ 190.000 | 📐 5000 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-5-000-m-a-venda-sossego-e-natureza-em-antonio-carlos-sc-1513265256
+
+- **Lote à venda no Centro, Antônio Carlos/SC**
+  - 💰 R$ 280.000 | 📐 390 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-centro-antonio-carlos-sc-1513265230
+
+- **Terreno as margens do Contorno Viário em Biguaçu/SC**
+  - 💰 R$ 4.000.000 | 📐 30000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-as-margens-do-contorno-viario-em-biguacu-sc-1513265240
+
+- **Lote à venda, Santa Barbara - Antônio Carlos/SC**
+  - 💰 R$ 330.000 | 📐 1950 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-santa-barbara-antonio-carlos-sc-1513264506
+
+- **Terreno para venda no bairro Usina, Antônio Carlos/SC**
+  - 💰 R$ 280.000 | 📐 1500 m²
+  - 📍 Usina — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-bairro-usina-antonio-carlos-sc-1513265223
+
+- **Terreno para venda no Contorno Viário - Rodoanel, Biguaçu**
+  - 💰 R$ 2.500.000 | 📐 12964 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-contorno-viario-rodoanel-biguacu-1513265236
+
+- **Terreno com 20.000 m² à venda - Próximo ao Rodoanel da Grande Florianó**
+  - 💰 R$ 2.700.000 | 📐 20000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-20-000-m-a-venda-proximo-ao-rodoanel-da-grande-florianopolis-1513265244
+
+- **Sítio para venda no bairro Vila Doze em Antônio Carlos/SC**
+  - 💰 R$ 500.000 | 📐 5000 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-no-bairro-vila-doze-em-antonio-carlos-sc-1513265239
+
+- **Lote Residencial de 360m² no Centro de Antônio Carlos/SC**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-residencial-de-360m-no-centro-de-antonio-carlos-sc-1513265201
+
+- **Sítio à venda em São Pedro de Alcântara**
+  - 💰 R$ 2.500.000 | 📐 348 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-sao-pedro-de-alcantara-1513265202
+
+- **Terreno à Venda no Loteamento Santa Catarina em Biguaçu/SC**
+  - 💰 R$ 230.000 | 📐 458 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-santa-catarina-em-biguacu-sc-1513265209
+
+- **Lote à venda, Canudos - Antônio Carlos/SC**
+  - 💰 R$ 183.859 | 📐 360 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-canudos-antonio-carlos-sc-1513265232
+
+- **Terreno para venda na beira do Contorno Vário sentido norte em Biguaçu**
+  - 💰 R$ 1.490.000 | 📐 20000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-na-beira-do-contorno-vario-sentido-norte-em-biguacu-sc-1513265224
+
+- **Terreno para venda no bairro Vila Doze De Outubro em Antônio Carlos**
+  - 💰 R$ 350.000 | 📐 1806 m²
+  - 📍 Vila Doze de Outubro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-bairro-vila-doze-de-outubro-em-antonio-carlos-1513265166
+
+- **Sítio Rural à venda em Antônio Carlos (Santa Bárbara)  13.412,41 m², R**
+  - 💰 R$ 2.550.000 | 📐 13412 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-rural-a-venda-em-antonio-carlos-santa-barbara-13-412-41-m-r-2-550-000-00-1513265181
+
+- **Lote à venda no Residencial Bremen - Antônio Carlos/SC**
+  - 💰 R$ 295.000 | 📐 462 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-residencial-bremen-antonio-carlos-sc-1513265212
+
+- **TERRENO A VENDA NA COMUNIDADE DE SÃO MARCOS NA CIDADE DE BIGUAÇU-SC**
+  - 💰 R$ 2.650.000 | 📐 60000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-comunidade-de-sao-marcos-na-cidade-de-biguacu-sc-1513265192
+
+- **Lote em Condomínio Residencial em Biguaçu/SC (150,50 m²)**
+  - 💰 R$ 250.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-residencial-em-biguacu-sc-150-50-m-1513265210
+
+- **Terreno à venda, Santa Barbara - Antônio Carlos/SC**
+  - 💰 R$ 650.000 | 📐 2801 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-santa-barbara-antonio-carlos-sc-1513265188
+
+- **Terreno à venda, Canudos - Antônio Carlos/SC**
+  - 💰 R$ 720.981 | 📐 3135 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-canudos-antonio-carlos-sc-1513265194
+
+- **Terreno à venda na cidade de Palhoça**
+  - 💰 R$ 530.000 | 📐 360 m²
+  - 📍 Centro — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-cidade-de-palhoca-1513265191
+
+- **Terreno à venda em Sorocaba de Fora  Biguaçu/SC**
+  - 💰 R$ 1.950.000 | 📐 50397 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sorocaba-de-fora-biguacu-sc-1513265169
+
+- **Terreno para venda no bairro Usina, Antônio Carlos/SC**
+  - 💰 R$ 320.000 | 📐 4000 m²
+  - 📍 Usina — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-bairro-usina-antonio-carlos-sc-1513265170
+
+- **Terreno para venda no Residencial Bremen em Antônio Carlos**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-no-residencial-bremen-em-antonio-carlos-1513264547
+
+- **O espaço para o seu Galpão está aqui! Conheça esse terreno à venda no **
+  - 💰 R$ 3.000.000 | 📐 6000 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/o-espaco-para-o-seu-galpao-esta-aqui-conheca-esse-terreno-a-venda-no-bairro-santa-catarin-1513264562
+
+- **Conheça esse encanto de sítio em meio a natureza**
+  - 💰 R$ 4.500.000 | 📐 230 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/conheca-esse-encanto-de-sitio-em-meio-a-natureza-1513264569
+
+- **Terreno para venda na área Rural De Biguaçu, Fazenda de Dentro**
+  - 💰 R$ 650.000 | 📐 24000 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-na-area-rural-de-biguacu-fazenda-de-dentro-1513264561
+
+- **Terreno à venda, Canudos - Antônio Carlos/SC**
+  - 💰 R$ 460.000 | 📐 2002 m²
+  - 📍 Canudos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-canudos-antonio-carlos-sc-1513264566
+
+- **Sítio à venda, Área Rural de Antônio Carlos - Antônio Carlos/SC**
+  - 💰 R$ 290.000 | 📐 20000 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-area-rural-de-antonio-carlos-antonio-carlos-sc-1513264582
+
+- **Lote à venda no Loteamento Bremen  Antônio Carlos/SC**
+  - 💰 R$ 300.000 | 📐 381 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-loteamento-bremen-antonio-carlos-sc-1513264503
+
+- **Conheça o seu Sítio na Fazenda de Dentro, Biguaçu/SC**
+  - 💰 R$ 750.000 | 📐 14870 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/conheca-o-seu-sitio-na-fazenda-de-dentro-biguacu-sc-1513264554
+
+- **Terreno para venda Área Rural de Biguaçu Biguaçu**
+  - 💰 R$ 1.350.000 | 📐 16400 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-area-rural-de-biguacu-biguacu-1513264572
+
+- **Terreno à venda, Santa Barbara - Antônio Carlos/SC**
+  - 💰 R$ 200.000 | 📐 759 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-santa-barbara-antonio-carlos-sc-1513264581
+
+- **Terreno à Venda no Residencial Vila Germânia  Bairro Santa Catarina, B**
+  - 💰 R$ 285.000 | 📐 434 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-residencial-vila-germania-bairro-santa-catarina-biguacu-sc-1513264565
+
+- **Chácara Rural à Venda em Biguaçu (Três Riachos)  Aceita Permuta**
+  - 💰 R$ 1.100.000 | 📐 180 m²
+  - 📍 Área Rural de Biguaçu — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-rural-a-venda-em-biguacu-tres-riachos-aceita-permuta-1513264570
+
+- **Terreno à venda Loteamento Portal Europeu, Antônio Carlos/SC - 368m²**
+  - 💰 R$ 270.000 | 📐 368 m²
+  - 📍 Guiomar — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-portal-europeu-antonio-carlos-sc-368m-1513264551
+
+- **Sítio à venda em Antônio Carlos no bairro Braço do Norte  20.000 m² (2**
+  - 💰 R$ 650.000 | 📐 20000 m²
+  - 📍 Santa Maria — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-antonio-carlos-no-bairro-braco-do-norte-20-000-m-2-hectares-1513264545
+
+- **Sítio à venda no Egito, um refúgio em meio à natureza!**
+  - 💰 R$ 220.000 | 📐 2000 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-no-egito-um-refugio-em-meio-a-natureza-1513264532
+
+- **Sítios à venda no Bairro Usina**
+  - 💰 R$ 570.000 | 📐 20000 m²
+  - 📍 Usina — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitios-a-venda-no-bairro-usina-1513264548
+
+- **Terreno à venda, no bairro Louro, Antônio Carlos/SC**
+  - 💰 R$ 980.000 | 📐 10000 m²
+  - 📍 Louro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-louro-antonio-carlos-sc-1513264553
+
+- **Lote Residencial 369 m² à venda em Loteamento Nova Governador, Governa**
+  - 💰 R$ 230.000 | 📐 370 m²
+  - 📍  — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-residencial-369-m-a-venda-em-loteamento-nova-governador-governador-celso-ramos-sc-1513264534
+
+- **Sítio à venda, 4 quartos, 1 suíte, 2 vagas, Área Rural de Antônio Carl**
+  - 💰 R$ 890.000 | 📐 171 m²
+  - 📍 Área Rural de Antônio Carlos — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-4-quartos-1-suite-2-vagas-area-rural-de-antonio-carlos-antonio-carlos-1513264514
+
+- **Sítio para venda, Santa Bárbara, Antônio Carlos - SC**
+  - 💰 R$ 2.200.000 | 📐 195 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-santa-barbara-antonio-carlos-sc-1513264498
+
+- **Terreno para venda o bairro Rio Farias, Antônio Carlos**
+  - 💰 R$ 400.000 | 📐 1800 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-o-bairro-rio-farias-antonio-carlos-1513264501
+
+- **Lote à venda, Loteamento Nova Governador - Governador Celso Ramos/SC**
+  - 💰 R$ 205.000 | 📐 360 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-loteamento-nova-governador-governador-celso-ramos-sc-1513264504
+
+- **Terreno à venda no Loteamento Bremen, no Centro de Antônio Carlos/SC**
+  - 💰 R$ 315.000 | 📐 360 m²
+  - 📍 Centro — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-bremen-no-centro-de-antonio-carlos-sc-1513263663
+
+- **Sítio Rural à Venda em Antônio Carlos - Bairro Usina | 30.000 m²**
+  - 💰 R$ 980.000 | 📐 30000 m²
+  - 📍 Usina — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-rural-a-venda-em-antonio-carlos-bairro-usina-30-000-m-1513263593
+
+- **Sítio de 11 Hectares com Escritura Pública em Imaruí  SC**
+  - 💰 R$ 3.000.000 | 📐 110000 m²
+  - 📍 Distrito Rio D'Una — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-de-11-hectares-com-escritura-publica-em-imarui-sc-1513263596
+
+- **Terreno para venda, Condomínio Blue no Deltaville.**
+  - 💰 R$ 280.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-condominio-blue-no-deltaville-1513263616
+
+- **Sítio para venda no Rio Farias, Antônio Carlos/SC**
+  - 💰 R$ 550.000 | 📐 2900 m²
+  - 📍 Santa Barbara — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-para-venda-no-rio-farias-antonio-carlos-sc-1513263603
+
+- **SUPER OPORTUNIDADE NO DELTAVILLE - LOTE EM CONDOMINIO CLUBE**
+  - 💰 R$ 188.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/super-oportunidade-no-deltaville-lote-em-condominio-clube-1513248001
+
+- **Terreno de 312 m² Forquilhas - São José**
+  - 💰 R$ 255.000 | 📐 312 m²
+  - 📍 Forquilhas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-312-m-forquilhas-sao-jose-1513247981
+
+- **Vendo terreno em Florianópolis**
+  - 💰 R$ 120.000 | 📐 70 m²
+  - 📍 Costeira do Pirajubaé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-florianopolis-1513243869
+
+- **Imóvel para venda possui 300 metros quadrados em Pedra Branca - Palhoç**
+  - 💰 R$ 949.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-300-metros-quadrados-em-pedra-branca-palhoca-sc-1513242754
+
+- **Terreno à Venda com 301 m² na Ponte do Imaruim - Palhoça/SC**
+  - 💰 R$ 480.000 | 📐 301 m²
+  - 📍 Ponte do Imaruim — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-301-m-na-ponte-do-imaruim-palhoca-sc-1513231649
+
+- **Terreno para Venda em Florianópolis, RATONES, 1 dormitório, 1 suíte, 1**
+  - 💰 R$ 750.000 | 📐 60 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ratones-1-dormitorio-1-suite-1-banheiro-1-vaga-1459161395
+
+- **Terreno na Praia da Caçamba - Balneário Arroio do Silva/SC**
+  - 💰 R$ 50.000 | 📐 ? m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-da-cacamba-balneario-arroio-do-silva-sc-1513216465
+
+- **Vendo sítio em São Bonifácio**
+  - 💰 R$ 90.000 | 📐 3000 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-sao-bonifacio-1513212423
+
+- **Terreno bairro Primeira Linha**
+  - 💰 R$ 180.000 | 📐 354 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-primeira-linha-1513199922
+
+- **Terreno Alfredo Wagner**
+  - 💰 R$ 50.000 | 📐 1000 m²
+  - 📍 Saveiro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-alfredo-wagner-1513198927
+
+- **Terreno de esquina em Laguna/SC, na Praia do Sol, medindo 390m2**
+  - 💰 R$ 150.000 | 📐 390 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-laguna-sc-na-praia-do-sol-medindo-390m2-1513196081
+
+- **Terreno à venda, 360 m² - Rio Tavares - Florianópolis/SC**
+  - 💰 R$ 790.000 | 📐 360 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-rio-tavares-florianopolis-sc-1513189827
+
+- **Terreno/Lote Residencial no Jardim Campeche à Venda no Campeche**
+  - 💰 R$ 1.300.000 | 📐 360 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-residencial-no-jardim-campeche-a-venda-no-campeche-1513189687
+
+- **Sítio com casa em Urubici**
+  - 💰 R$ 280.000 | 📐 2300 m²
+  - 📍 Sambaqui — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-em-urubici-1513181923
+
+- **Terreno de 457m2 à venda no Campeche**
+  - 💰 R$ 900.000 | 📐 458 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-457m2-a-venda-no-campeche-1513181440
+
+- **Terreno com 997m² à venda no Campeche**
+  - 💰 R$ 3.200.000 | 📐 997 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-997m-a-venda-no-campeche-1513181211
+
+- **Terreno à venda, 360 m² por R$ 525.000,00 - Canasvieiras - Florianópol**
+  - 💰 R$ 525.000 | 📐 360 m²
+  - 📍 Vargem Pequena — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-525-000-00-canasvieiras-florianopolis-sc-1513170397
+
+- **Terreno 767m² - Pagani - imv**
+  - 💰 R$ 4.999.997 | 📐 767 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-767m-pagani-imv-1513170380
+
