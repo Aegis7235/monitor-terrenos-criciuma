@@ -114720,3 +114720,621 @@
   - 📍  — Laguna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tranquilidade-e-qualidade-de-vida-1513013122
 
+
+## 🆕 123 novos anúncios — 25/06/2026 07:03
+
+- **Terreno no Loteamento Aeropark em São José/SC!**
+  - 💰 R$ 1.100.000 | 📐 695 m²
+  - 📍 Sertão do Maruim — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-aeropark-em-sao-jose-sc-1513162879
+
+- **Área à venda no bairro Ingleses Norte - Florianópolis/SC**
+  - 💰 R$ 4.790.000 | 📐 1048 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-a-venda-no-bairro-ingleses-norte-florianopolis-sc-1513160264
+
+- **Terreno para Venda em Florianópolis, Ingleses do Rio Vermelho**
+  - 💰 R$ 1.700.000 | 📐 650 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ingleses-do-rio-vermelho-1513158088
+
+- **Terreno para Venda em Florianópolis, Ingleses do Rio Vermelho**
+  - 💰 R$ 610.000 | 📐 444 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ingleses-do-rio-vermelho-1513158092
+
+- **Terreno para Venda em Florianópolis, São João do Rio Vermelho**
+  - 💰 R$ 450.000 | 📐 440 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sao-joao-do-rio-vermelho-1513158085
+
+- **Terreno para Venda em Florianópolis, Ingleses do Rio Vermelho**
+  - 💰 R$ 1.000.000 | 📐 770 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ingleses-do-rio-vermelho-1513158040
+
+- **Terreno para Venda em Florianópolis, São João do Rio Vermelho**
+  - 💰 R$ 1.060.000 | 📐 1224 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sao-joao-do-rio-vermelho-1513157739
+
+- **Terreno para Venda em Florianópolis, São João do Rio Vermelho**
+  - 💰 R$ 250.000 | 📐 196 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sao-joao-do-rio-vermelho-1513157737
+
+- **Terreno para Venda em Florianópolis, Ingleses do Rio Vermelho**
+  - 💰 R$ 650.000 | 📐 420 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ingleses-do-rio-vermelho-1513157687
+
+- **Terreno para Venda em Florianópolis, Ingleses do Rio Vermelho**
+  - 💰 R$ 1.400.000 | 📐 460 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ingleses-do-rio-vermelho-1513157626
+
+- **Terreno para Venda em Florianópolis, São João do Rio Vermelho**
+  - 💰 R$ 495.396 | 📐 375 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-sao-joao-do-rio-vermelho-1513157620
+
+- **Terreno para Venda em Florianópolis, Ingleses do Rio Vermelho, 1 dormi**
+  - 💰 R$ 7.420.000 | 📐 135 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-ingleses-do-rio-vermelho-1-dormitorio-1-suite-1-ba-1513157616
+
+- **Oportunidade! Terreno de 1.500m² com Escritura em Vargem Grande - Flor**
+  - 💰 R$ 538.000 | 📐 1500 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-de-1-500m-com-escritura-em-vargem-grande-florianopolis-1513154539
+
+- **Terreno 511m² à venda na Vargem Grande, póximo a SC-406- Florianópolis**
+  - 💰 R$ 500.000 | 📐 350 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-511m-a-venda-na-vargem-grande-poximo-a-sc-406-florianopolis-1513154507
+
+- **Lindo terreno de 1.009,36m², com Escritura no bairro São João do Rio V**
+  - 💰 R$ 750.000 | 📐 1000 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-de-1-009-36m-com-escritura-no-bairro-sao-joao-do-rio-vermelho-proximo-ao-1513154478
+
+- **Terreno / Lote / Condomínio em Sul do Rio - Santo Amaro da Imperatriz**
+  - 💰 R$ 450.000 | 📐 1515 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-condominio-em-sul-do-rio-santo-amaro-da-imperatriz-1513154382
+
+- **LOTEAMENTO PREMIUM - TERRENO COM ESCRITURA PÚBLICA**
+  - 💰 R$ 792.000 | 📐 600 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-premium-terreno-com-escritura-publica-1513154326
+
+- **TERRENO RESIDENCIAL em FLORIANÓPOLIS - SC, CACHOEIRA DO BOM JESUS**
+  - 💰 R$ 1.100.000 | 📐 575 m²
+  - 📍 Cachoeira do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-em-florianopolis-sc-cachoeira-do-bom-jesus-1513153083
+
+- **Terreno de 476 metros a venda Corrego grande**
+  - 💰 R$ 2.200.000 | 📐 477 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-476-metros-a-venda-corrego-grande-1513153214
+
+- **Terreno Lote em Oficinas, Tubarão/SC**
+  - 💰 R$ 1.290.000 | 📐 728 m²
+  - 📍 Santo Antônio de Pádua — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-em-oficinas-tubarao-sc-1513152699
+
+- **Flores de Sal - Lotes à venda em Tijucas SC**
+  - 💰 R$ 522.778 | 📐 464 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/flores-de-sal-lotes-a-venda-em-tijucas-sc-1513152381
+
+- **LOTEAMENTO PREMIUM - TERRENO COM ESCRITURA PÚBLICA**
+  - 💰 R$ 476.652 | 📐 360 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-premium-terreno-com-escritura-publica-1513152357
+
+- **Terreno no Real Parque de 450m²**
+  - 💰 R$ 605.000 | 📐 450 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-real-parque-de-450m-1513152318
+
+- **LOTEAMENTO PREMIUM - TERRENO COM ESCRITURA PÚBLICA**
+  - 💰 R$ 495.396 | 📐 375 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-premium-terreno-com-escritura-publica-1513152313
+
+- **Sítio à Venda  Congonhas, Tubarão/SC**
+  - 💰 R$ 1.000.000 | 📐 88900 m²
+  - 📍 Centro — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-congonhas-tubarao-sc-1513151999
+
+- **Condomínio Residencial Por do Sol, Garopaba/SC**
+  - 💰 R$ 530.000 | 📐 453 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-residencial-por-do-sol-garopaba-sc-1513151860
+
+- **Invista no seu futuro neste terreno em uma das regiões mais valorizada**
+  - 💰 R$ 399.000 | 📐 630 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/invista-no-seu-futuro-neste-terreno-em-uma-das-regioes-mais-valorizadas-de-florianopolis-1513151868
+
+- **Flores de Sal - Lotes à venda em Tijucas SC**
+  - 💰 R$ 604.759 | 📐 537 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/flores-de-sal-lotes-a-venda-em-tijucas-sc-1513150988
+
+- **Flores de Sal - Lotes à venda em Tijucas SC**
+  - 💰 R$ 287.278 | 📐 255 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/flores-de-sal-lotes-a-venda-em-tijucas-sc-1513150979
+
+- **TERRENO DE ESQUINA EM OTIMA LOCALIZAÇÃO NOS INGLESES**
+  - 💰 R$ 2.770.000 | 📐 640 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-otima-localizacao-nos-ingleses-1513151011
+
+- **Terreno à venda na Estrada Dário Manoel Cardoso - Ingleses, Florianópo**
+  - 💰 R$ 660.000 | 📐 364 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-estrada-dario-manoel-cardoso-ingleses-florianopolis-1513151043
+
+- **Terreno com 360 m², Escritura Pública. Financiamento no Rio Vermelho, **
+  - 💰 R$ 377.920 | 📐 360 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360-m-escritura-publica-financiamento-no-rio-vermelho-florianopolis-1513150998
+
+- **LOTEAMENTO PREMIUM - TERRENO COM ESCRITURA PÚBLICA**
+  - 💰 R$ 475.332 | 📐 360 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-premium-terreno-com-escritura-publica-1513151018
+
+- **LOTEAMENTO PREMIUM - TERRENO COM ESCRITURA PÚBLICA**
+  - 💰 R$ 495.396 | 📐 375 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-premium-terreno-com-escritura-publica-1513151023
+
+- **Sítio a Venda em Florianópolis Vargem do Bom Jesus**
+  - 💰 R$ 3.500.000 | 📐 159942 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-florianopolis-vargem-do-bom-jesus-1513150948
+
+- **Flores de Sal - Lotes à venda em Tijucas SC**
+  - 💰 R$ 522.778 | 📐 464 m²
+  - 📍  — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/flores-de-sal-lotes-a-venda-em-tijucas-sc-1513150875
+
+- **Terreno no Real Parque de 450m²**
+  - 💰 R$ 605.000 | 📐 450 m²
+  - 📍 Vargem Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-real-parque-de-450m-1513150892
+
+- **Terreno à Venda no Loteamento Quinta da Luz Premium**
+  - 💰 R$ 433.200 | 📐 361 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-quinta-da-luz-premium-1513150894
+
+- **Terreno amplo no Condomínio Jardim dos Ingleses em Florianópolis.**
+  - 💰 R$ 730.000 | 📐 435 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-no-condominio-jardim-dos-ingleses-em-florianopolis-1513150813
+
+- **Terreno com 33.044m2 , ideal para predio residencial - Norte da Ilha d**
+  - 💰 R$ 26.600.000 | 📐 33044 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-33-044m2-ideal-para-predio-residencial-norte-da-ilha-de-santa-catarina-1513150800
+
+- **Terreno com 360 m², Escritura Pública. Financiamento no Rio Vermelho, **
+  - 💰 R$ 377.836 | 📐 360 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360-m-escritura-publica-financiamento-no-rio-vermelho-florianopolis-1513150797
+
+- **Terreno Real Parque a venda**
+  - 💰 R$ 548.000 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-real-parque-a-venda-1513150792
+
+- **Terreno espetacular no Condomínio Jardim Ingleses - Florianópolis!**
+  - 💰 R$ 700.000 | 📐 488 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-espetacular-no-condominio-jardim-ingleses-florianopolis-1513150798
+
+- **LOTEAMENTO PREMIUM - TERRENO COM ESCRITURA PÚBLICA**
+  - 💰 R$ 495.818 | 📐 376 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-premium-terreno-com-escritura-publica-1513150721
+
+- **SITIO RECANTO JARDIM**
+  - 💰 R$ 1.500.000 | 📐 20000 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-recanto-jardim-1513150742
+
+- **LOTEAMENTO PREMIUM - TERRENO COM ESCRITURA PÚBLICA**
+  - 💰 R$ 509.124 | 📐 386 m²
+  - 📍 Ingleses do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-premium-terreno-com-escritura-publica-1513150720
+
+- **Terreno a venda Avenida do Antao Florianopolis**
+  - 💰 R$ 2.200.000 | 📐 852 m²
+  - 📍 Centro — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-avenida-do-antao-florianopolis-1513150466
+
+- **Terreno à venda, 360 m² por R$ 530.000,00 - Carianos - Florianópolis/S**
+  - 💰 R$ 530.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-530-000-00-carianos-florianopolis-sc-1513145985
+
+- **Lote / Terreno em Jardim Janaina - Biguaçu, SC**
+  - 💰 R$ 260.000 | 📐 360 m²
+  - 📍 Bom Viver — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-jardim-janaina-biguacu-sc-1370498419
+
+- **Lote / Terreno em Pagani - Palhoça**
+  - 💰 R$ 850.000 | 📐 562 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-em-pagani-palhoca-1370498473
+
+- **Terreno com Escritura pública à venda, 360 m² por R$ 510.000 - Cariano**
+  - 💰 R$ 510.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-escritura-publica-a-venda-360-m-por-r-510-000-carianos-florianopolis-sc-1513145334
+
+- **Imóvel 91640**
+  - 💰 R$ 1.060.000 | 📐 190 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-91640-1513139873
+
+- **Terreno em condomínio fechado de alto padrão no Bairro Beira Rio/Delta**
+  - 💰 R$ 360.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-de-alto-padrao-no-bairro-beira-rio-delta-ville-em-biguacu-1513133101
+
+- **terreno com viabilidade em Barreiros**
+  - 💰 R$ 900.000 | 📐 300 m²
+  - 📍 Barreiros — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-em-barreiros-1513128212
+
+- **Lotes em Tijucas**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Joáia — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-em-tijucas-1513126965
+
+- **Terreno à venda, 600 m² por R$ 1.043.000,00 - Trindade - Florianópolis**
+  - 💰 R$ 1.043.000 | 📐 600 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-1-043-000-00-trindade-florianopolis-sc-1513124073
+
+- **Terreno 360m | Em Guaporanga ( Tijuquinhas ) - Biguaçu**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍 Tijuquinhas (Guaporanga) — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-em-guaporanga-tijuquinhas--biguacu-1513121659
+
+- **Terreno à venda Rio Caveiras Biguaçu/SC**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍 Rio Caveiras — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-rio-caveiras-biguacu-sc-1513121616
+
+- **Terreno em Canajurê**
+  - 💰 R$ 14.000.000 | 📐 23725 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-canajure-1513112222
+
+- **Terreno Próximo ao Mar em Jurerê Internacional**
+  - 💰 R$ 8.000.000 | 📐 600 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-ao-mar-em-jurere-internacional-1513112206
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 2.750.000 | 📐 450 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513112224
+
+- **Terreno em Jurerê Internacional no Bosque Amoraeville**
+  - 💰 R$ 4.200.000 | 📐 635 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-no-bosque-amoraeville-1513112208
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 2.870.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513112166
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 4.500.000 | 📐 775 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513112171
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 5.300.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513112124
+
+- **Oportunidade exclusiva de investimento em Jurerê Internacional**
+  - 💰 R$ 6.915.000 | 📐 600 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-exclusiva-de-investimento-em-jurere-internacional-1513112130
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 3.500.000 | 📐 659 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513112131
+
+- **Terreno em Jurerê Internacional, ao lado do Open Shopping**
+  - 💰 R$ 3.650.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-ao-lado-do-open-shopping-1513112123
+
+- **Terreno em Jurerê**
+  - 💰 R$ 2.120.000 | 📐 540 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-1513112112
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 5.500.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513112072
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 3.200.000 | 📐 750 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513112063
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 3.800.000 | 📐 700 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513112089
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 2.700.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513112064
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 3.000.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513112069
+
+- **Oportunidade na Vargem do Bom Jesus  3.243 m² com Viabilidade 4.5**
+  - 💰 R$ 1.370.000 | 📐 2800 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-na-vargem-do-bom-jesus-3-243-m-com-viabilidade-4-5-1513111729
+
+- **Terreno em Jurerê Internacional no Bosque Amoraeville**
+  - 💰 R$ 3.680.000 | 📐 651 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-no-bosque-amoraeville-1513111705
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 3.200.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513111708
+
+- **Terreno na Praia do Forte, Florianópolis/SC**
+  - 💰 R$ 18.000.000 | 📐 15000 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-do-forte-florianopolis-sc-1513111672
+
+- **Ótimo Terreno para construção**
+  - 💰 R$ 2.400.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-para-construcao-1513111712
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 8.000.000 | 📐 591 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513111669
+
+- **Terreno em Canasvieiras, Florianópolis/SC**
+  - 💰 R$ 990.000 | 📐 600 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-canasvieiras-florianopolis-sc-1513111693
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 2.450.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513111681
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 2.700.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513111663
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 2.750.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513111665
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 2.900.000 | 📐 450 m²
+  - 📍 Jurerê — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513111643
+
+- **Terreno à venda em Jurerê Internacional no Bosque Amoraeville**
+  - 💰 R$ 3.700.000 | 📐 600 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-jurere-internacional-no-bosque-amoraeville-1513111656
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 4.120.000 | 📐 775 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513111631
+
+- **Terreno com Vista Mar em Canajurê  Excelente para Incorporação**
+  - 💰 R$ 6.000.000 | 📐 980 m²
+  - 📍 Canasvieiras — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-mar-em-canajure-excelente-para-incorporacao-1513111607
+
+- **Terreno em Jurerê Internacional**
+  - 💰 R$ 4.000.000 | 📐 450 m²
+  - 📍 Jurerê Internacional — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jurere-internacional-1513111629
+
+- **Terreno 767m² - Pagani - imv**
+  - 💰 R$ 4.999.997 | 📐 767 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-767m-pagani-imv-1513107863
+
+- **Terreno no Reserva da Pedra com 300m2 - imv**
+  - 💰 R$ 965.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-reserva-da-pedra-com-300m2-imv-1513105784
+
+- **Terreno Carianos**
+  - 💰 R$ 478.800 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-carianos-1513105461
+
+- **Terreno para vender em condomínio fechado Canto da Lagoa, Florianópoli**
+  - 💰 R$ 2.500.000 | 📐 750 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-vender-em-condominio-fechado-canto-da-lagoa-florianopolis-sc-1513105518
+
+- **Terreno Carianos**
+  - 💰 R$ 630.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-carianos-1513105455
+
+- **Terreno para Venda em Florianópolis, Canto**
+  - 💰 R$ 1.420.000 | 📐 200 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-canto-1513101098
+
+- **Terreno para Venda em Florianópolis, Canto**
+  - 💰 R$ 1.215.000 | 📐 171 m²
+  - 📍 Canto — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-florianopolis-canto-1513100791
+
+- **Terreno à venda com 300m² na Pedra Branca - Palhoça/SC**
+  - 💰 R$ 987.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-300m-na-pedra-branca-palhoca-sc-1513099360
+
+- **Terreno a 300 m do Mar na Praia da Ribanceira - Imbituba (SC)**
+  - 💰 R$ 450.000 | 📐 516 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-300-m-do-mar-na-praia-da-ribanceira-imbituba-sc-1513098815
+
+- **Terreno à venda no Condomínio Lagoa Cortada**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-lagoa-cortada-1513097200
+
+- **VENDO SÍTIO EM RIO MIGUEL - ÁGUAS MORNAS/SC  Com escritura pública   3**
+  - 💰 R$ 2.300.000 | 📐 110 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-rio-miguel-aguas-mornas-sc-com-escritura-publica-36-hectares-1513091971
+
+- **Terreno na Guarda do Cubatão Palhoça**
+  - 💰 R$ 150.000 | 📐 200 m²
+  - 📍 Guarda do Cubatão — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-guarda-do-cubatao-palhoca-1513091665
+
+- **Vendo sítio em rancho queimado/sc    Localidade morro chato    3,3 Hec**
+  - 💰 R$ 1.700.000 | 📐 100 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-em-rancho-queimado-sc-localidade-morro-chato-3-3-hectares-1513090202
+
+- **Terreno 486m² - Roçado**
+  - 💰 R$ 690.000 | 📐 486 m²
+  - 📍 Roçado — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-486m-rocado-1513088415
+
+- **Terreno no Parque São Jorge - 370m²**
+  - 💰 R$ 1.290.000 | 📐 360 m²
+  - 📍 Itacorubi — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-parque-sao-jorge-370m-1423307231
+
+- **Terreno com vista para as Pontes de Floripa!**
+  - 💰 R$ 699.000 | 📐 426 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-vista-para-as-pontes-de-floripa-1415304222
+
+- **Terreno com viabilidade comercial e residencial**
+  - 💰 R$ 1.790.000 | 📐 305 m²
+  - 📍 Trindade — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-viabilidade-comercial-e-residencial-1415303533
+
+- **Terreno à venda no Loteamento Bosque Residence**
+  - 💰 R$ 1.290.000 | 📐 378 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-bosque-residence-1513084219
+
+- **Terreno 767m² - Pagani - mrt**
+  - 💰 R$ 4.999.997 | 📐 767 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-767m-pagani-mrt-1513083788
+
+- **Terreno no Reserva da Pedra com 300m2 - mrt**
+  - 💰 R$ 965.000 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-reserva-da-pedra-com-300m2-mrt-1513083776
+
+- **Terreno / Lote / Condomínio em Sul do Rio - Santo Amaro da Imperatriz**
+  - 💰 R$ 450.000 | 📐 1515 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-condominio-em-sul-do-rio-santo-amaro-da-imperatriz-1513083469
+
+- **Terreno para vender em condomínio fechado Canto da Lagoa, Florianópoli**
+  - 💰 R$ 2.500.000 | 📐 750 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-vender-em-condominio-fechado-canto-da-lagoa-florianopolis-sc-1513081543
+
+- **Terreno Carianos**
+  - 💰 R$ 478.800 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-carianos-1513081210
+
+- **Terreno Carianos**
+  - 💰 R$ 630.000 | 📐 360 m²
+  - 📍 Carianos — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-carianos-1513081162
+
+- **Vendo lote Guiomar de dentro**
+  - 💰 R$ 140.000 | 📐 1440 m²
+  - 📍  — Antônio Carlos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-guiomar-de-dentro-1513063458
+
+- **Terreno com 16.900,00 m² privativos, em localização privilegiada no ba**
+  - 💰 R$ 20.000.000 | 📐 16900 m²
+  - 📍 Monte Verde — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-16-900-00-m-privativos-em-localizacao-privilegiada-no-bairro-monte-verde-em-1513060913
+
+- **Locação Terreno São José SC**
+  - 💰 R$ 8.000 | 📐 1800 m²
+  - 📍 Fazenda Santo Antônio — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/locacao-terreno-sao-jose-sc-1513060468
+
+- **Locação Terreno São José SC**
+  - 💰 R$ 9.000 | 📐 1050 m²
+  - 📍 Real Parque — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/locacao-terreno-sao-jose-sc-1513059145
+
+- **Lote Terrá Golden Resort 132m2**
+  - 💰 R$ 265.000 | 📐 132 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terra-golden-resort-132m2-1513043547
+
+- **Terreno à venda - Rancho Queimado/SC**
+  - 💰 R$ 190.000 | 📐 400 m²
+  - 📍  — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-rancho-queimado-sc-1513042874
+
+- **Condominio Rural Vale do Sol - lote 1011m2 Santo Amaro da Imperatriz -**
+  - 💰 R$ 260.000 | 📐 1011 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/condominio-rural-vale-do-sol-lote-1011m2-santo-amaro-da-imperatriz-sc-1513039348
+
+- **Lotes EXCLUSIVOS Norte da ilha 180m2**
+  - 💰 R$ 190.000 | 📐 180 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-exclusivos-norte-da-ilha-180m2-1513026348
+
+- **Terreno rural com 6.200 metros quadrados no Bairro Rio do Poncho em Sã**
+  - 💰 R$ 270.000 | 📐 6200 m²
+  - 📍  — São Bonifácio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-com-6-200-metros-quadrados-no-bairro-rio-do-poncho-em-sao-bonifacio-sc-1513022735
+
+- **Chácara / sítio à venda no São Bento Baixo, Nova Veneza**
+  - 💰 R$ 650.000 | 📐 30000 m²
+  - 📍 São Bento Baixo — Nova Veneza
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-sc-nova-veneza-sao-bento-baixo-30000m2-RS650000/id-43974191/
+
