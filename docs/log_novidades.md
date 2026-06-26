@@ -116340,3 +116340,6 @@
   - 📍 Caverazinho — Araranguá
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-3-quartos-com-garagem-sc-ararangua-caverazinho-744m2-RS380000/id-44071601/
 
+
+## ✅ Sem novidades — 26/06/2026 11:50
+
