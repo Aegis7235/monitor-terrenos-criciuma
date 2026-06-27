@@ -117703,3 +117703,21 @@
   - 📍 Ingleses do Rio Vermelho — Florianópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-ingleses-do-rio-vermelho-1513042865
 
+
+## 🆕 3 novos anúncios — 27/06/2026 22:15
+
+- **PARAISO - Sitio 13mil m² c/ Casa, Açudes, Garagens. PRONTO. - Terreno**
+  - 💰 R$ 699.000 | 📐 13000 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/paraiso-sitio-13mil-m-c-casa-acudes-garagens-pronto-terreno-1513825371
+
+- **SÍTIO Á VENDA CIRENÁICA TREVISO-SC**
+  - 💰 R$ 387.000 | 📐 15000 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-cirenaica-treviso-sc-1513811745
+
+- **Áreas para compensação Ambiental**
+  - 💰 R$ 40.000 | 📐 1520000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/areas-para-compensacao-ambiental-1513807870
+
