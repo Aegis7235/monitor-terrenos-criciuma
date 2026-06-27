@@ -117349,3 +117349,31 @@
   - 📍 Lagoa da Serra — Araranguá
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-2-quartos-com-garagem-sc-ararangua-lagoa-da-serra-484m2-RS400000/id-44107107/
 
+
+## 🆕 5 novos anúncios — 27/06/2026 06:40
+
+- **Terreno arroio do Silva**
+  - 💰 R$ 75.000 | 📐 338 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-arroio-do-silva-1513623907
+
+- **Terreno Arroio do Silva /SC**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Balneário Arroio do Silva
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-arroio-do-silva-sc-1513665051
+
+- **BARBADA EM PAULO LOPES! TERRENO 12x30 NO BAIRRO AREIAS POR APENAS R$ 1**
+  - 💰 R$ 149.999 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-em-paulo-lopes-terreno-12x30-no-bairro-areias-por-apenas-r-149-999-1513662028
+
+- **Vendo terreno no loteamento Bosque Imbituba**
+  - 💰 R$ 69.000 | 📐 312 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-loteamento-bosque-imbituba-1513650188
+
+- **BARBADA EM PAULO LOPES! TERRENO 12x30 NO BAIRRO AREIAS POR APENAS R$ 1**
+  - 💰 R$ 149.999 | 📐 360 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-em-paulo-lopes-terreno-12x30-no-bairro-areias-por-apenas-r-149-999-1513640000
+
