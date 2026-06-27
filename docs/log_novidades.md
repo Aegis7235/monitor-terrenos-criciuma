@@ -117377,3 +117377,51 @@
   - 📍  — Paulo Lopes
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-em-paulo-lopes-terreno-12x30-no-bairro-areias-por-apenas-r-149-999-1513640000
 
+
+## 🆕 9 novos anúncios — 27/06/2026 11:08
+
+- **Área com 57.750 m² - Colônia Nova Itália - São João Batista - SC**
+  - 💰 R$ 384.000 | 📐 57750 m²
+  - 📍  — São João Batista
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-com-57-750-m-colonia-nova-italia-sao-joao-batista-sc-1513690832
+
+- **Terreno à venda, 300 m² por R$ 90.000 - Santa Catarina - Araranguá/SC**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍 Sanga da Areia — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-90-000-santa-catarina-ararangua-sc-1513689961
+
+- **Terreno à venda, 300 m² por R$ 90.000 - Santa Catarina - Araranguá/SC**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍 Sanga da Areia — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-90-000-santa-catarina-ararangua-sc-1513689938
+
+- **Loteamento Quinta dos Açores.**
+  - 💰 R$ 155.800 | 📐 339 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-quinta-dos-acores-1513689943
+
+- **Terreno Loteamento Cidade Universitária**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍 Santa Catarina — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-cidade-universitaria-1513689922
+
+- **Terreno à venda, 343 m² por R$ 250.000 - Coloninha - Araranguá/SC**
+  - 💰 R$ 250.000 | 📐 343 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-343-m-por-r-250-000-coloninha-ararangua-sc-1513689893
+
+- **Loteamento Quinta dos Açores.**
+  - 💰 R$ 155.800 | 📐 339 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-quinta-dos-acores-1513689904
+
+- **Loteamento Quinta dos Açores.**
+  - 💰 R$ 155.800 | 📐 339 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-quinta-dos-acores-1513689881
+
+- **Terrenos muito bem localizados no bairro Boa Esperança, Sombrio/SC**
+  - 💰 R$ 89.000 | 📐 350 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-muito-bem-localizados-no-bairro-boa-esperanca-sombrio-sc-1513684069
+
