@@ -117957,3 +117957,91 @@
 
 ## ✅ Sem novidades — 28/06/2026 11:17
 
+
+## 🆕 17 novos anúncios — 28/06/2026 16:25
+
+- **TERRENO DE ESQUINA - LOT. PARQUE NOVO RINCÃO - DIRETO COM O PROPRIETÁR**
+  - 💰 R$ 130.000 | 📐 380 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-lot-parque-novo-rincao-direto-com-o-proprietario-1513935544
+
+- **Vendo citio**
+  - 💰 R$ 450.000 | 📐 3450 m²
+  - 📍 Estreito — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-citio-1513906469
+
+- **Sítio em Alfredo Wagner, com lago e queda d'água**
+  - 💰 R$ 350.000 | 📐 35000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-com-lago-e-queda-d-agua-1513922354
+
+- **Sítio das cachoeiras em Alfredo Wagner**
+  - 💰 R$ 500.000 | 📐 30000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-das-cachoeiras-em-alfredo-wagner-1513915834
+
+- **Terreno à venda no Campeche**
+  - 💰 R$ 383.000 | 📐 360 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-campeche-1513915338
+
+- **TERRENO DELTA VILE**
+  - 💰 R$ 110.000 | 📐 184 m²
+  - 📍 Centro — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-delta-vile-1513914340
+
+- **VENDO LINDO TERRENO 30x70**
+  - 💰 R$ 130.000 | 📐 2100 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lindo-terreno-30x70-1513908993
+
+- **TERRENO GRANDE COM 565mtrs**
+  - 💰 R$ 700.000 | 📐 565 m²
+  - 📍 Centro — Tijucas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-grande-com-565mtrs-1513907638
+
+- **Terreno no Ribeirão da Ilha**
+  - 💰 R$ 890.000 | 📐 461 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-ribeirao-da-ilha-1417443766
+
+- **Ótimo terreno para construtores/investidores de frente pra SC405.**
+  - 💰 R$ 585.000 | 📐 528 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-para-construtores-investidores-de-frente-pra-sc405-1513900696
+
+- **TERRENO - RATONES - SC**
+  - 💰 R$ 2.500.000 | 📐 100 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ratones-sc-1513897999
+
+- **AREA - CAMPECHE - SC**
+  - 💰 R$ 1.700.000 | 📐 536 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-campeche-sc-1513896778
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 2.500.000 | 📐 750 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1513896677
+
+- **TERRENO - RATONES - SC**
+  - 💰 R$ 2.500.000 | 📐 100 m²
+  - 📍 Ratones — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-ratones-sc-1513883705
+
+- **AREA - CAMPECHE - SC**
+  - 💰 R$ 1.700.000 | 📐 536 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-campeche-sc-1513883452
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 2.500.000 | 📐 750 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1513883272
+
+- **Chácara / sítio com 4 quartos à venda na Avenida Sete de Setembro, 180**
+  - 💰 Não informado | 📐 285 m²
+  - 📍 Morro Grande — Sangão
+  - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-4-quartos-com-garagem-sc-sangao-morro-grande-701m2/id-44155437/
+
