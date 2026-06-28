@@ -117954,3 +117954,6 @@
   - 📍 Vila Brasília — Urussanga
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-urussanga-vila-brasilia-120m2-RS477000/id-44130411/
 
+
+## ✅ Sem novidades — 28/06/2026 11:17
+
