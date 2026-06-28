@@ -118045,3 +118045,16 @@
   - 📍 Morro Grande — Sangão
   - 🔗 https://www.chavesnamao.com.br/imovel/chacara-a-venda-4-quartos-com-garagem-sc-sangao-morro-grande-701m2/id-44155437/
 
+
+## 🆕 2 novos anúncios — 28/06/2026 22:09
+
+- **Lote rural Urussanga velha**
+  - 💰 R$ 45.000 | 📐 375 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-rural-urussanga-velha-1513992030
+
+- **Terreno  particular 360m² na Barra de Ibiraquera: 97m da Lagoa e 400m **
+  - 💰 R$ 387.000 | 📐 360 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-particular-360m-na-barra-de-ibiraquera-97m-da-lagoa-e-400m-do-mar-aterrado-1513939946
+
