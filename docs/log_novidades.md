@@ -118058,3 +118058,156 @@
   - 📍  — Imbituba
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-particular-360m-na-barra-de-ibiraquera-97m-da-lagoa-e-400m-do-mar-aterrado-1513939946
 
+
+## 🆕 30 novos anúncios — 29/06/2026 08:27
+
+- **TERRENO DE ESQUINA COM 798M² EM LOTEAMENTO PARQUE DA VILAS EM GOV. CEL**
+  - 💰 R$ 500.000 | 📐 798 m²
+  - 📍 Centro — Governador Celso Ramos
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-com-798m-em-loteamento-parque-da-vilas-em-gov-celso-ramos-1514054458
+
+- **Terreno deltaville**
+  - 💰 R$ 180.000 | 📐 360 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-deltaville-1514054297
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 1.850.000 | 📐 20 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1514051672
+
+- **Lote na Praia de Itapirubá em ITAPIRUBÁ**
+  - 💰 R$ 250.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-praia-de-itapiruba-em-itapiruba-1514046537
+
+- **Lote na Praia de Itapirubá em ITAPIRUBÁ**
+  - 💰 R$ 250.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-praia-de-itapiruba-em-itapiruba-1514046488
+
+- **Lote na Praia de Itapirubá em ITAPIRUBÁ**
+  - 💰 R$ 200.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-praia-de-itapiruba-em-itapiruba-1514046487
+
+- **Terreno à Venda  Rua Antônio Manoel dos Santos, Caçador, Capivari de B**
+  - 💰 R$ 225.000 | 📐 387 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-rua-antonio-manoel-dos-santos-cacador-capivari-de-baixo-sc-1514046445
+
+- **Lote na Praia de Itapirubá em ITAPIRUBÁ**
+  - 💰 R$ 250.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-praia-de-itapiruba-em-itapiruba-1514046447
+
+- **Terreno à Venda  Loteamento Santa Marta, Congonhas, Tubarão/SC**
+  - 💰 R$ 149.000 | 📐 275 m²
+  - 📍 Congonhas — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-santa-marta-congonhas-tubarao-sc-1514046446
+
+- **Sítio beira da lagoa**
+  - 💰 R$ 1.850.000 | 📐 26299 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-beira-da-lagoa-1514046414
+
+- **Lote à Venda  Loteamento Garden Rose, Lomba, Gravatal/SC**
+  - 💰 R$ 150.000 | 📐 370 m²
+  - 📍  — Gravatal
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-loteamento-garden-rose-lomba-gravatal-sc-1514046415
+
+- **Terreno à venda, Itapirubá Praia Sul**
+  - 💰 R$ 530.000 | 📐 375 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-itapiruba-praia-sul-1514046418
+
+- **Lote na Praia de Itapirubá em ITAPIRUBÁ**
+  - 💰 R$ 190.000 | 📐 375 m²
+  - 📍  — Laguna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-praia-de-itapiruba-em-itapiruba-1514046406
+
+- **Terreno em Centro, Tubarão/SC - Comercial**
+  - 💰 R$ 3.000.000 | 📐 1286 m²
+  - 📍 Recife — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-centro-tubarao-sc-comercial-1514046384
+
+- **Lançamento em Capivari de Baixo - loteamento Recantos da Colina**
+  - 💰 R$ 131.549 | 📐 277 m²
+  - 📍  — Capivari de Baixo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lancamento-em-capivari-de-baixo-loteamento-recantos-da-colina-1514046362
+
+- **Sitio em Alfredo Wagner-Serra Catarinense**
+  - 💰 R$ 650.000 | 📐 74000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-alfredo-wagner-serra-catarinense-1020609312
+
+- **Serra Catarinense - Alfredo Wagner- Sitio 64.800,00 m²**
+  - 💰 R$ 800.000 | 📐 64800 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/serra-catarinense-alfredo-wagner-sitio-64-800-00-m-1268008791
+
+- **Lote Jardim Angélica**
+  - 💰 R$ 400.000 | 📐 225 m²
+  - 📍 Universitário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-jardim-angelica-1514031544
+
+- **Terreno a venda - imarui sc**
+  - 💰 R$ 78.000 | 📐 463 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-imarui-sc-1514031494
+
+- **TERRENO EM CONDOMÍNIO FECHADO NO CÓRREGO GRANDE - FLORIANÓPOLIS**
+  - 💰 R$ 1.150.000 | 📐 700 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-no-corrego-grande-florianopolis-1514029972
+
+- **terreno 120m no rio vermelho**
+  - 💰 R$ 100.000 | 📐 120 m²
+  - 📍 São João do Rio Vermelho — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-120m-no-rio-vermelho-1514024582
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 1.850.000 | 📐 20 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1514024219
+
+- **Terreno à venda, 300 m² por R$ 380.000,00 - Vila Esperança - Imbituba/**
+  - 💰 R$ 380.000 | 📐 300 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-380-000-00-vila-esperanca-imbituba-sc-1514021394
+
+- **Terreno no bairro Rio do Sul, em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 7.500.000 | 📐 44913 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-rio-do-sul-em-santo-amaro-da-imperatriz-sc-1514017243
+
+- **Terreno Av Principal Nova Congonhas início do lo**
+  - 💰 R$ 210.000 | 📐 300 m²
+  - 📍 Recife — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-av-principal-nova-congonhas-inicio-do-lo-1514012691
+
+- **Terreno plano, murado, aterrado, pronto para construir, Ribeirão**
+  - 💰 R$ 280.000 | 📐 211 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-murado-aterrado-pronto-para-construir-ribeirao-1513993710
+
+- **Lote com casa a venda  em área rural**
+  - 💰 R$ 160.000 | 📐 ? m²
+  - 📍 Encruzilhada — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-com-casa-a-venda-em-area-rural-1513991972
+
+- **Vendo terreno de 1035 M2 (23 x45), no Campeche - Florianópolis -SC .**
+  - 💰 R$ 3.200.000 | 📐 1035 m²
+  - 📍 Campeche — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-de-1035-m2-23-x45-no-campeche-florianopolis-sc-1513975465
+
+- **Terreno em Forquilhinha, com área de 541,45**
+  - 💰 R$ 600.000 | 📐 541 m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-forquilhinha-com-area-de-541-45-1513958607
+
+- **Oportunidade Única em MORRO DA FUMACA - SC | Tipo: Casa | Negociação: **
+  - 💰 R$ 930.000 | 📐 2074 m²
+  - 📍 Estação Cocal — Morro da Fumaça
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-morro-da-fumaca-estacao-cocal-127m2-RS930000/id-44159384/
+
