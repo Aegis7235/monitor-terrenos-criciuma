@@ -118229,3 +118229,176 @@
   - 📍  — Treviso
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-fazenda-no-paraiso-13-hectares-1514086809
 
+
+## 🆕 34 novos anúncios — 29/06/2026 17:51
+
+- **TERRENO À VENDA  LOTEAMENTO VILA NOVA**
+  - 💰 R$ 640.000 | 📐 600 m²
+  - 📍 Barra do Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-loteamento-vila-nova-1514154235
+
+- **Terreno 760m² em Condomínio - Bosque das Mansões - PLC**
+  - 💰 R$ 2.997.000 | 📐 760 m²
+  - 📍 Bosque das Mansões — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-760m-em-condominio-bosque-das-mansoes-plc-1514147521
+
+- **Terreno a venda em anitápolis**
+  - 💰 R$ 820.000 | 📐 12000 m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-anitapolis-1514146743
+
+- **"Terreno 450m² à Venda em Florianopolis - Imperdível!"**
+  - 💰 R$ 474.900 | 📐 450 m²
+  - 📍 Vargem do Bom Jesus — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-450m-a-venda-em-florianopolis-imperdivel-1514143671
+
+- **Vendo um lote 12x30 = 360m²**
+  - 💰 R$ 235.000 | 📐 360 m²
+  - 📍 Ribeirão da Ilha — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-um-lote-12x30-360m-1514138139
+
+- **Belo Sitio em Anitápolis - SC**
+  - 💰 R$ 220.000 | 📐 20000 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-anitapolis-sc-1514128072
+
+- **Otimo Terreno Comercial em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 1.300.000 | 📐 1600 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-comercial-em-santo-amaro-da-imperatriz-sc-1514126163
+
+- **Chácara proximo do Centro de Anitápolis - SC**
+  - 💰 R$ 460.000 | 📐 5800 m²
+  - 📍 Centro — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-proximo-do-centro-de-anitapolis-sc-1514122425
+
+- **Terreno no Deltaville - Brisas condomínio Park**
+  - 💰 R$ 194.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-deltaville-brisas-condominio-park-1514120281
+
+- **Casa com linda vista em Santa Isabel - Águas Mornas - SC**
+  - 💰 R$ 470.000 | 📐 700 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-com-linda-vista-em-santa-isabel-aguas-mornas-sc-1514119076
+
+- **Terreno à venda, 506 m² por R$ 499.000,00 - Mro Bina - Biguaçu/SC**
+  - 💰 R$ 499.000 | 📐 506 m²
+  - 📍 Morro da Bina — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-506-m-por-r-499-000-00-mro-bina-biguacu-sc-1514114992
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 280.000 | 📐 10000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1514112809
+
+- **Terreno de Esquina com 519m² no Loteamento Maria Honorata - São José/S**
+  - 💰 R$ 350.000 | 📐 520 m²
+  - 📍 Potecas — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-com-519m-no-loteamento-maria-honorata-sao-jose-sc-1514112190
+
+- **OPORTUNIDADE DE INVESTIMENTO EM ALFREDO WAGNER**
+  - 💰 R$ 1.190.000 | 📐 33176 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-em-alfredo-wagner-1514111079
+
+- **Terreno amplo, de 600 m² Córrego Grande - Florianópolis**
+  - 💰 R$ 1.000.000 | 📐 600 m²
+  - 📍 Córrego Grande — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-de-600-m-corrego-grande-florianopolis-1514111448
+
+- **Sitio com escritura publica em Águas Mornas - SC**
+  - 💰 R$ 380.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-publica-em-aguas-mornas-sc-1514108432
+
+- **Belo Sitio na Geral de Caldas da Imperatriz!**
+  - 💰 R$ 950.000 | 📐 28700 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-na-geral-de-caldas-da-imperatriz-1514107798
+
+- **Sitio com escritura Santo Amaro da Imperatriz - SC!**
+  - 💰 R$ 380.000 | 📐 6000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-escritura-santo-amaro-da-imperatriz-sc-1514104919
+
+- **Terreno à Venda -R$ 265.000,00**
+  - 💰 R$ 265.000 | 📐 490 m²
+  - 📍 Alto Aririú — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-r-265-000-00-1514103438
+
+- **Lote no centro Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 160.000 | 📐 380 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-centro-santo-amaro-da-imperatriz-sc-1514103068
+
+- **Terreno em Caldas da Imperatriz - Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 340.000 | 📐 1000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-caldas-da-imperatriz-santo-amaro-da-imperatriz-sc-1514102090
+
+- **Tereno em Águas Mornas Rio Miguel**
+  - 💰 R$ 370.000 | 📐 3700 m²
+  - 📍 Área Rural — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/tereno-em-aguas-mornas-rio-miguel-1450113225
+
+- **Sitio com linda vista perto de Rancho Queimado!**
+  - 💰 R$ 700.000 | 📐 38000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-perto-de-rancho-queimado-1514098415
+
+- **Sitio com linda vista panoramica proximo de Rancho Queimado!**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-panoramica-proximo-de-rancho-queimado-1514096325
+
+- **Lote em Caldas da Imperatriz - Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 320.000 | 📐 375 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-caldas-da-imperatriz-santo-amaro-da-imperatriz-sc-1514094822
+
+- **Chácara em Rancho Queimado - SC**
+  - 💰 R$ 750.000 | 📐 2000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-rancho-queimado-sc-1514094208
+
+- **Belo sitio em Águas Mornas - SC**
+  - 💰 R$ 1.500.000 | 📐 210000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-aguas-mornas-sc-1514090866
+
+- **Área/Terreno à venda de 2.200m2 em Condomínio Residencial - apenas 10 **
+  - 💰 R$ 800.000 | 📐 2200 m²
+  - 📍 Universitário — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-terreno-a-venda-de-2-200m2-em-condominio-residencial-apenas-10-familias-alto-bigu-1514077336
+
+- **AREA - LAGOA DA CONCEIÇÃO - SC**
+  - 💰 R$ 1.850.000 | 📐 20 m²
+  - 📍 Lagoa da Conceição — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-lagoa-da-conceicao-sc-1514076848
+
+- **TERRENO EXCLUSIVO À VENDA | CACUPÉ  FLORIANÓPOLIS/SC**
+  - 💰 R$ 1.690.000 | 📐 513 m²
+  - 📍 Cacupé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-exclusivo-venda-cacupe-florianopolis-sc-1513891298
+
+- **Sitio com linda vista em Águas Mornas - SC**
+  - 💰 R$ 680.000 | 📐 20000 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-linda-vista-em-aguas-mornas-sc-1513601732
+
+- **Sitios em São Pedro de Alcântara - SC**
+  - 💰 R$ 450.000 | 📐 20000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitios-em-sao-pedro-de-alcantara-sc-1513600473
+
+- **Chácara em Rancho Queimado - SC**
+  - 💰 R$ 650.000 | 📐 1000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-rancho-queimado-sc-1513598831
+
+- **Belo sitio em Angelina - SC**
+  - 💰 R$ 530.000 | 📐 20000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-angelina-sc-1513585354
+
