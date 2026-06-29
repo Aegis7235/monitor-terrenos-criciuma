@@ -118402,3 +118402,36 @@
   - 📍  — Angelina
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-angelina-sc-1513585354
 
+
+## 🆕 6 novos anúncios — 29/06/2026 22:19
+
+- **Vendo lindo Sitio**
+  - 💰 R$ 420.000 | 📐 3600 m²
+  - 📍  — Canelinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lindo-sitio-1514197811
+
+- **Terreno no desejado bairro Raichaski parcelado no boleto - Alto do niv**
+  - 💰 R$ 182.900 | 📐 425 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-desejado-bairro-raichaski-parcelado-no-boleto-alto-do-nivel-da-estrada-e-com-1514186951
+
+- **SÍTIO À VENDA EM IMARUÍ COM 5.000 METROS.**
+  - 💰 R$ 320.000 | 📐 80 m²
+  - 📍  — Imaruí
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-venda-em-imarui-com-5-000-metros-1514179429
+
+- **? Seu refúgio no campo está aqui!**
+  - 💰 R$ 400.000 | 📐 20000 m²
+  - 📍  — Major Gercino
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-refugio-no-campo-esta-aqui-1514177415
+
+- **Sitio Riverside REF: S360-463898**
+  - 💰 R$ 1.890.000 | 📐 7524 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-riverside-ref-s360-463898-1514169665
+
+- **Vendo sítio Garopaba/terreno**
+  - 💰 R$ 850.000 | 📐 16645 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-garopaba-terreno-1514156323
+
