@@ -118211,3 +118211,21 @@
   - 📍 Estação Cocal — Morro da Fumaça
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-morro-da-fumaca-estacao-cocal-127m2-RS930000/id-44159384/
 
+
+## 🆕 3 novos anúncios — 29/06/2026 13:19
+
+- **Terreno 4.700 m² com Cachoeira, Nascente e Escritura - Alfredo Wagner/**
+  - 💰 R$ 680.000 | 📐 4700 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-4-700-m-com-cachoeira-nascente-e-escritura-alfredo-wagner-sc-1514101469
+
+- **Terreno 470m2 Com escritura**
+  - 💰 R$ 180.000 | 📐 470 m²
+  - 📍  — Paulo Lopes
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-470m2-com-escritura-1514097589
+
+- **Linda fazenda no paraíso 13 Hectares**
+  - 💰 R$ 1.500.000 | 📐 130000 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/linda-fazenda-no-paraiso-13-hectares-1514086809
+
