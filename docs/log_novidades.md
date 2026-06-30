@@ -119044,3 +119044,31 @@
   - 📍 Balneário Rosa do Mar — Passo de Torres
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-passo-de-torres-balneario-rosa-do-mar-169m2-RS1100000/id-44174309/
 
+
+## 🆕 5 novos anúncios — 30/06/2026 22:21
+
+- **Casa com 2 quartos à venda na Rua Raymundo Pucher, São Luiz, Criciúma**
+  - 💰 R$ 400.000 | 📐 68 m²
+  - 📍 São Luiz — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-criciuma-sao-luiz-426m2-RS400000/id-32591626/
+
+- **Casa com 3 quartos à venda na Rua Divo Rodrigues Cardoso, Archimedes N**
+  - 💰 R$ 550.000 | 📐 220 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-criciuma-archimedes-naspolini-300m2-RS550000/id-33753022/
+
+- **Casa à venda no bairro Village Dunas 1 - Balneário Gaivota/SC**
+  - 💰 R$ 320.000 | 📐 70 m²
+  - 📍 Village Dunas II — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-village-dunas-ii-150m2-RS320000/id-36389812/
+
+- **Casa com 2 quartos à venda na 1, 1, Village Dunas Norte, Balneário Gai**
+  - 💰 R$ 320.000 | 📐 44 m²
+  - 📍 Village Dunas Norte — Balneário Gaivota
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-balneario-gaivota-village-dunas-norte-75m2-RS320000/id-42883985/
+
+- **Casa com 3 quartos à venda na Rua Olindina Felisbina Rocha, Zona Sul, **
+  - 💰 R$ 480.000 | 📐 90 m²
+  - 📍 Zona Sul — Balneário Rincão
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-balneario-rincao-zona-sul-288m2-RS480000/id-43817683/
+
