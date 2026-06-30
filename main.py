@@ -5,7 +5,6 @@ Roda no GitHub Actions a cada 6h. Salva mapa + log em /docs (GitHub Pages).
 import os
 from datetime import datetime
 from scrapers.olx_scraper        import scrape_olx
-from scrapers.chavesnamao_scraper import scrape_chavesnamao
 from utils.database import (
     init_db, salvar_anuncios, carregar_todos,
     carregar_sem_coordenadas, atualizar_coordenadas, total_no_banco
@@ -24,8 +23,7 @@ APENAS_MAPA      = False # True = pula scraping e geocodificação, só gera o m
 
 # Fontes ativas — comente a linha ou mude para False para desativar
 FONTES = {
-    "olx":         True,
-    "chavesnamao": True,
+    "olx": True,
 }
 # ─────────────────────────────────────────────────────────────────────────────
 
@@ -105,13 +103,6 @@ def main():
                 olx = scrape_olx()
                 print(f"  OLX: {len(olx)} anúncios")
                 todos_coletados.extend(olx)
-
-            # 4. Coleta Chaves na Mão
-            if FONTES.get("chavesnamao"):
-                print("\n▶ Coletando Chaves na Mão...")
-                cnm = scrape_chavesnamao()
-                print(f"  ChavesNaMão: {len(cnm)} anúncios")
-                todos_coletados.extend(cnm)
 
             print(f"\n  Total coletado: {len(todos_coletados)} anúncios")
 
