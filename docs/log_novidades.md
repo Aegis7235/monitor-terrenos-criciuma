@@ -118881,3 +118881,166 @@
   - 📍  — Alfredo Wagner
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-lomba-alta-em-alfredo-wagner-sc-1389421909
 
+
+## 🆕 32 novos anúncios — 30/06/2026 17:19
+
+- **TERRENO PRONTO PARA CONSTRUIR - 1.070m2**
+  - 💰 R$ 335.000 | 📐 1070 m²
+  - 📍  — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-1-070m2-1514364478
+
+- **Fazenda dos sonhos em Rancho Queimado - SC!**
+  - 💰 R$ 21.000.000 | 📐 630000 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-dos-sonhos-em-rancho-queimado-sc-1514362049
+
+- **Excelente terreno à venda com 534m² na geral do Bairro Vendaval/ Bigua**
+  - 💰 R$ 530.000 | 📐 534 m²
+  - 📍 Vendaval — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-a-venda-com-534m-na-geral-do-bairro-vendaval-biguacu-1514361920
+
+- **Excelente terreno a venda, para indústrias, chácaras, sítios ou loteam**
+  - 💰 R$ 3.000.000 | 📐 53000 m²
+  - 📍  — Nova Trento
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-a-venda-para-industrias-chacaras-sitios-ou-loteamento-1514361470
+
+- **Barbada - Chácara**
+  - 💰 R$ 160.000 | 📐 1100 m²
+  - 📍 Costeira do Pirajubaé — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-chacara-1514349734
+
+- **Terreno no Bairro Rio Tavares frente para a Rodovia**
+  - 💰 R$ 3.500.000 | 📐 810 m²
+  - 📍 Rio Tavares — Florianópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-rio-tavares-frente-para-a-rodovia-1514333039
+
+- **Belo sitio em Angelina e proximo de Rancho Queimado!**
+  - 💰 R$ 530.000 | 📐 20000 m²
+  - 📍  — Angelina
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-sitio-em-angelina-e-proximo-de-rancho-queimado-1514331771
+
+- **Lindo Sitio em Santo Amaro da Imperatriz!**
+  - 💰 R$ 2.800.000 | 📐 70000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-em-santo-amaro-da-imperatriz-1514331506
+
+- **Sítio completo com casa de alvenaria, nascente e frutiferas em Águas M**
+  - 💰 R$ 330.000 | 📐 2401 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-completo-com-casa-de-alvenaria-nascente-e-frutiferas-em-aguas-mornas-1514331429
+
+- **Chacara com casa 02 quartos e diversas frutíferas em Águas Mornas**
+  - 💰 R$ 170.000 | 📐 1200 m²
+  - 📍  — Águas Mornas
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-casa-02-quartos-e-diversas-frutiferas-em-aguas-mornas-1514330559
+
+- **Terreno em santo Amaro**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-santo-amaro-1514329883
+
+- **Vendo terreno na palhoça**
+  - 💰 R$ 90.000 | 📐 ? m²
+  - 📍 Forquilhinha — São José
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-palhoca-1514328462
+
+- **Sitio com casa e duas cabanas!**
+  - 💰 R$ 980.000 | 📐 11000 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-e-duas-cabanas-1514328372
+
+- **Vendo sítio com casa em anitápolis estrada geral Rio da Prata**
+  - 💰 R$ 250.000 | 📐 ? m²
+  - 📍  — Anitápolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-casa-em-anitapolis-estrada-geral-rio-da-prata-1514328327
+
+- **Chácara com Água e Luz na Região de São Pedro de Alcântara - SC**
+  - 💰 R$ 230.000 | 📐 3000 m²
+  - 📍 Centro — São Pedro de Alcântara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-agua-e-luz-na-regiao-de-sao-pedro-de-alcantara-sc-1514326006
+
+- **Terreno no Centro de Rancho Queimado - SC**
+  - 💰 R$ 4.500.000 | 📐 8600 m²
+  - 📍 Centro — Rancho Queimado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-rancho-queimado-sc-1514323100
+
+- **Terreno Industrial em Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 4.000.000 | 📐 8615 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-industrial-em-santo-amaro-da-imperatriz-sc-1514322212
+
+- **Terreno à venda na Avenida XV de Novembro**
+  - 💰 R$ 3.200.000 | 📐 2795 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-avenida-xv-de-novembro-1514318086
+
+- **Terreno no Mato Alto com incríveis 1920m² - Araranguá - SC**
+  - 💰 R$ 1.160.000 | 📐 1920 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-mato-alto-com-incriveis-1920m-ararangua-sc-1514317688
+
+- **Terreno Praia do Rosa  Ibiraquera**
+  - 💰 R$ 300.000 | 📐 455000 m²
+  - 📍  — Imbituba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-do-rosa-ibiraquera-1514314297
+
+- **Chácara com escritura Santo Amaro da Imperatriz - SC**
+  - 💰 R$ 370.000 | 📐 2500 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-escritura-santo-amaro-da-imperatriz-sc-1514310261
+
+- **Terreno no Reserva da Pedra com fundos para lago - Pedra Branca**
+  - 💰 R$ 980.000 | 📐 318 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-reserva-da-pedra-com-fundos-para-lago-pedra-branca-1514305191
+
+- **Barbada! TERRENO EM TUBARÃO**
+  - 💰 R$ 350.000 | 📐 450 m²
+  - 📍 Recife — Tubarão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-em-tubarao-1514290355
+
+- **Terreno à venda no Mato Alto - Araranguá/SC**
+  - 💰 R$ 3.620.000 | 📐 3653 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-mato-alto-ararangua-sc-1514318024
+
+- **Casa com 3 quartos à venda na Rodovia Pedro Manoel Pereira, Linha Bati**
+  - 💰 R$ 380.000 | 📐 93 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-criciuma-linha-batista-300m2-RS380000/id-43537949/
+
+- **Casa com 2 quartos à venda na Rodovia Pedro Manoel Pereira, Linha Bati**
+  - 💰 R$ 350.000 | 📐 83 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-criciuma-linha-batista-300m2-RS350000/id-43537948/
+
+- **Casa com 2 quartos à venda na Rua Benevenuto Cardoso, Vila Nova, Içara**
+  - 💰 R$ 700.000 | 📐 82 m²
+  - 📍 Vila Nova — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-icara-vila-nova-418m2-RS700000/id-44088271/
+
+- **Casa com 4 quartos à venda no Jardim Silvana, Içara**
+  - 💰 R$ 1.990.000 | 📐 440 m²
+  - 📍 Jardim Silvana — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-4-quartos-com-garagem-sc-icara-jardim-silvana-440m2-RS1990000/id-34458184/
+
+- **Casa com 3 quartos à venda no Nossa Senhora De Fátima, Içara**
+  - 💰 R$ 500.000 | 📐 219 m²
+  - 📍 Nossa Senhora De Fátima — Içara
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-icara-nossa-senhora-de-fatima-375m2-RS500000/id-28806656/
+
+- **Casa com 3 quartos à venda na Avenida Getúlio Vargas, 001, Caverazinho**
+  - 💰 R$ 285.000 | 📐 64 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-ararangua-caverazinho-168m2-RS285000/id-42836858/
+
+- **Casa com 2 quartos à venda no Lagoão, Araranguá**
+  - 💰 R$ 140.000 | 📐 45 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-2-quartos-com-garagem-sc-ararangua-lagoao-RS140000/id-40611357/
+
+- **Casa com 3 quartos à venda na Da Lagosta, 86, Balneário Rosa do Mar, P**
+  - 💰 R$ 1.100.000 | 📐 375 m²
+  - 📍 Balneário Rosa do Mar — Passo de Torres
+  - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-sc-passo-de-torres-balneario-rosa-do-mar-169m2-RS1100000/id-44174309/
+
