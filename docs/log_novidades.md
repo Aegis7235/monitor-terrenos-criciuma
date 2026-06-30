@@ -118773,3 +118773,111 @@
   - 📍 Campo Bom — Jaguaruna
   - 🔗 https://www.chavesnamao.com.br/imovel/casa-a-venda-3-quartos-com-garagem-sc-jaguaruna-campo-bom-217m2-RS900000/id-44160318/
 
+
+## 🆕 21 novos anúncios — 30/06/2026 11:57
+
+- **Amplo Terreno com uma Edícula - Santo Amaro da Imperatriz/SC**
+  - 💰 R$ 300.000 | 📐 520 m²
+  - 📍  — Santo Amaro da Imperatriz
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-com-uma-edicula-santo-amaro-da-imperatriz-sc-1514273645
+
+- **Excelente Terreno no Pagani em Palhoça/SC: 309m² e Pertinho de TUDO!**
+  - 💰 R$ 560.000 | 📐 309 m²
+  - 📍 Pagani — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-no-pagani-em-palhoca-sc-309m-e-pertinho-de-tudo-1514273606
+
+- **Terreno  o Deltaville - Condomínio Brisas**
+  - 💰 R$ 190.000 | 📐 150 m²
+  - 📍 Beira Rio — Biguaçu
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-o-deltaville-condominio-brisas-1514269356
+
+- **Terreno em Condomínio Aqualina**
+  - 💰 R$ 510.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-aqualina-1514269288
+
+- **Terreno em Condomínio Aqualina**
+  - 💰 R$ 670.212 | 📐 600 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-aqualina-1514269259
+
+- **Terreno em Garopaba, bairro Pinguirito**
+  - 💰 R$ 450.000 | 📐 265 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-garopaba-bairro-pinguirito-1514269191
+
+- **Terreno em Condomínio Aqualina**
+  - 💰 R$ 617.000 | 📐 450 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-aqualina-1514269142
+
+- **Terreno em Condomínio para Venda em Campo Duna Imbituba-SC**
+  - 💰 R$ 559.000 | 📐 451 m²
+  - 📍  — Garopaba
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-para-venda-em-campo-duna-imbituba-sc-1514269128
+
+- **Lote de 390m² à venda no Reserva da Pedra**
+  - 💰 R$ 1.100.000 | 📐 391 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-390m-a-venda-no-reserva-da-pedra-1514268427
+
+- **Lote de 321m² à venda no Reserva da Pedra**
+  - 💰 R$ 920.000 | 📐 321 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-321m-a-venda-no-reserva-da-pedra-1514268433
+
+- **Lote de 301m² à venda no Reserva da Pedra**
+  - 💰 R$ 1.150.000 | 📐 301 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-301m-a-venda-no-reserva-da-pedra-1514268422
+
+- **Lote de 365m² à venda no Reserva da Pedra**
+  - 💰 R$ 1.200.000 | 📐 366 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-365m-a-venda-no-reserva-da-pedra-1514268377
+
+- **Lote de 360m² à venda no Reserva da Pedra**
+  - 💰 R$ 1.200.000 | 📐 366 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-360m-a-venda-no-reserva-da-pedra-1514268356
+
+- **Lote de 300m² à venda no Reserva da Pedra**
+  - 💰 R$ 1.384.900 | 📐 300 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-300m-a-venda-no-reserva-da-pedra-1514268343
+
+- **Lote de 312m² à venda no Reserva da Pedra**
+  - 💰 R$ 1.480.000 | 📐 312 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-312m-a-venda-no-reserva-da-pedra-1514268332
+
+- **Lote de 320m² à venda no Reserva da Pedra**
+  - 💰 R$ 900.000 | 📐 321 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-320m-a-venda-no-reserva-da-pedra-1514268325
+
+- **Lote de 423m² à venda no Reserva da Pedra**
+  - 💰 R$ 1.700.000 | 📐 424 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-423m-a-venda-no-reserva-da-pedra-1514268317
+
+- **Lote de 375m² à venda no Reserva da Pedra**
+  - 💰 R$ 1.380.000 | 📐 375 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-375m-a-venda-no-reserva-da-pedra-1514268307
+
+- **Lote de 303m² à venda no Reserva da Pedra**
+  - 💰 R$ 1.000.000 | 📐 304 m²
+  - 📍 Pedra Branca — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-303m-a-venda-no-reserva-da-pedra-1514268293
+
+- **Terreno Urbano à Venda na Praia da Pinheira - Palhoça/SC**
+  - 💰 R$ 651.000 | 📐 445 m²
+  - 📍 Pinheira — Palhoça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-a-venda-na-praia-da-pinheira-palhoca-sc-1514267544
+
+- **Terreno no bairro Lomba Alta, em Alfredo Wagner- SC**
+  - 💰 R$ 650.000 | 📐 34000 m²
+  - 📍  — Alfredo Wagner
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-lomba-alta-em-alfredo-wagner-sc-1389421909
+
