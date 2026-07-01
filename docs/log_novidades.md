@@ -132400,3 +132400,11 @@
   - 📍 Santa Augusta — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-santa-augusta-1514750885
 
+
+## 🆕 1 novos anúncios — 01/07/2026 22:24
+
+- **Casa às margens do Rio Mampituba**
+  - 💰 R$ 1.490.000 | 📐 ? m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-as-margens-do-rio-mampituba-1514757136
+
