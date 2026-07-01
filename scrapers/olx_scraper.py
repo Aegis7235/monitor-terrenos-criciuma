@@ -16,46 +16,13 @@ except ImportError:
 
 import requests
 
+from scrapers.cidades import CIDADES
+
 SCRAPERAPI_KEY = os.environ.get("SCRAPERAPI_KEY", "")
 
 BASE = "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao"
 
-OLX_URLS = [
-    # ── Criciúma e região da Carbonífera ───────────────────────────────────────
-    f"{BASE}/outras-cidades/criciuma",
-    f"{BASE}/outras-cidades/icara",
-    f"{BASE}/outras-cidades/urussanga",
-    f"{BASE}/outras-cidades/cocal-do-sul",
-    f"{BASE}/outras-cidades/morro-da-fumaca",
-    f"{BASE}/outras-cidades/treviso",
-    f"{BASE}/outras-cidades/lauro-muller",
-    f"{BASE}/outras-cidades/sideropolis",
-    f"{BASE}/outras-cidades/nova-veneza",
-    f"{BASE}/outras-cidades/forquilhinha",
-
-    # ── Litoral Sul ───────────────────────────────────────────────────────────
-    f"{BASE}/outras-cidades/ararangua",
-    f"{BASE}/outras-cidades/balneario-rincao",
-    f"{BASE}/outras-cidades/jaguaruna",
-    f"{BASE}/outras-cidades/sangao",
-    f"{BASE}/outras-cidades/maracaja",
-
-    # ── Região de Turvo e entorno ─────────────────────────────────────────────
-    f"{BASE}/outras-cidades/turvo",
-    f"{BASE}/outras-cidades/meleiro",
-    f"{BASE}/outras-cidades/ermo",
-    f"{BASE}/outras-cidades/morro-grande",
-
-    # ── Extremo Sul SC (até a divisa com Torres/RS) ───────────────────────────
-    f"{BASE}/outras-cidades/sombrio",
-    f"{BASE}/outras-cidades/santa-rosa-do-sul",
-    f"{BASE}/outras-cidades/sao-joao-do-sul",
-    f"{BASE}/outras-cidades/passo-de-torres",
-    f"{BASE}/outras-cidades/balneario-gaivota",
-    f"{BASE}/outras-cidades/praia-grande",
-    f"{BASE}/outras-cidades/timbe-do-sul",
-    f"{BASE}/outras-cidades/jacinto-machado",
-]
+OLX_URLS = [f"{BASE}/outras-cidades/{cidade}" for cidade in CIDADES]
 
 HEADERS = {
     "User-Agent": (
