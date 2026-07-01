@@ -132324,3 +132324,71 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-180-000-bellatorres-passo-de-torres-sc-1493382084
 
+
+## 🆕 13 novos anúncios — 01/07/2026 17:26
+
+- **Loteamento à Venda no novo Jardim das Palmas**
+  - 💰 R$ 121.668 | 📐 399 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-a-venda-no-novo-jardim-das-palmas-1512680118
+
+- **Terreno no Solar das Avenidas**
+  - 💰 R$ 140.000 | 📐 346 m²
+  - 📍 Nova Divinéia — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-solar-das-avenidas-1503247143
+
+- **CASA DE SÍTIO NO BAIRRO STA CATARINA**
+  - 💰 R$ 265.000 | 📐 60 m²
+  - 📍 Santa Catarina — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-sitio-no-bairro-sta-catarina-1501912110
+
+- **Terreno Amplo com 2.204m² no Golden Park  Araranguá/ Balneário Arroio **
+  - 💰 R$ 300.000 | 📐 2204 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-com-2-204m-no-golden-park-ararangua-balneario-arroio-do-silva-sc-1501912002
+
+- **Belo terreno frente norte no loteamento Primavera - Araranguá - SC**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/belo-terreno-frente-norte-no-loteamento-primavera-ararangua-sc-1501618427
+
+- **TERRENO NO JARDIM CIBELE, COM POTENCIAL DE VALORIZAÇÃO**
+  - 💰 R$ 85.000 | 📐 336 m²
+  - 📍 Jardim Cibeli — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-cibele-com-potencial-de-valorizacao-1499668098
+
+- **Terreno à Venda no Loteamento Paiquerê - Araranguá/SC**
+  - 💰 R$ 284.000 | 📐 442 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-paiquere-ararangua-sc-1465504665
+
+- **Seu lote em Araranguá -localização super tranquila - caverazinho próxi**
+  - 💰 R$ 130.000 | 📐 360 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-lote-em-ararangua-localizacao-super-tranquila-caverazinho-proximo-a-ufsc-1453873129
+
+- **Terreno à venda em Araranguá (Urussanguinha)  Residencial/Comercial | **
+  - 💰 R$ 560.000 | 📐 552 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-ararangua-urussanguinha-residencial-comercial-financiamento-e-perm-1448695397
+
+- **Sítio à venda em Araranguá, 6,5 hectares de terra para plantio e morad**
+  - 💰 R$ 2.800.000 | 📐 240 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-ararangua-6-5-hectares-de-terra-para-plantio-e-moradia-1445078050
+
+- **Lote à Venda de frente para a Avenida no Loteamento Flamboyant  Araran**
+  - 💰 R$ 400.000 | 📐 630 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-de-frente-para-a-avenida-no-loteamento-flamboyant-ararangua-1436652230
+
+- **Terreno em balneário gaivota**
+  - 💰 R$ 199.000 | 📐 312 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-gaivota-1242298002
+
+- **Terreno pertinho do mar**
+  - 💰 R$ 290.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pertinho-do-mar-1501619294
+
