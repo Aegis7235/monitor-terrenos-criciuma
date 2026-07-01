@@ -132392,3 +132392,11 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pertinho-do-mar-1501619294
 
+
+## 🆕 1 novos anúncios — 01/07/2026 20:48
+
+- **Terreno bairro Santa Augusta**
+  - 💰 R$ 250.000 | 📐 464 m²
+  - 📍 Santa Augusta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-santa-augusta-1514750885
+
