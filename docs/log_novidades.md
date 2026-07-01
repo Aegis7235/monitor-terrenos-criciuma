@@ -132256,3 +132256,71 @@
 
 ## ✅ Sem novidades — 01/07/2026 12:21
 
+
+## 🆕 13 novos anúncios — 01/07/2026 14:08
+
+- **Lote com Entrada R$ 5.355,00** em Içara/SC**
+  - 💰 R$ 107.000 | 📐 360 m²
+  - 📍 Aurora — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-com-entrada-r-5-355-00-em-icara-sc-1514524274
+
+- **Terreno de esquina à venda, 375 m² por R$ 110.000 - Coloninha - Araran**
+  - 💰 R$ 110.000 | 📐 375 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-375-m-por-r-110-000-coloninha-ararangua-sc-1511678233
+
+- **Terreno à venda, 468 m² por R$ 95.000 - Arapongas - Araranguá/SC**
+  - 💰 R$ 95.000 | 📐 468 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-468-m-por-r-95-000-arapongas-ararangua-sc-1511383182
+
+- **Vende-se terreno no Lagoão, Araranguá SC**
+  - 💰 R$ 90.000 | 📐 391 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-no-lagoao-ararangua-sc-1505960812
+
+- **Magnífico terreno à venda em Araranguá SC**
+  - 💰 R$ 500.000 | 📐 900 m²
+  - 📍 Vila São José — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/magnifico-terreno-a-venda-em-ararangua-sc-1409531965
+
+- **Terreno loteamento Santa Otília**
+  - 💰 R$ 140.000 | 📐 600 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-santa-otilia-1408549135
+
+- **Terreno Bairro Policia Rodoviária**
+  - 💰 R$ 75.000 | 📐 253 m²
+  - 📍 Polícia Rodoviária — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-policia-rodoviaria-1390596198
+
+- **Terreno para alugar, 550 m² por R$ 3.000/mês - Cidade Alta - Araranguá**
+  - 💰 R$ 3.000 | 📐 550 m²
+  - 📍 Cidade Alta — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-alugar-550-m-por-r-3-000-mes-cidade-alta-ararangua-sc-1347206642
+
+- **Vende-se Área para Sítio em Araranguá SC**
+  - 💰 R$ 1.200.000 | 📐 5038 m²
+  - 📍 Lagoa da Serra — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-area-para-sitio-em-ararangua-sc-1333483759
+
+- **Terreno à venda, 312 m² por R$ 110.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 110.000 | 📐 312 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-312-m-por-r-110-000-00-caverazinho-ararangua-sc-1101200657
+
+- **Terreno à venda, 300 m² por R$ 75.000 - Capão Do Cravo - Passo de Torr**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-75-000-capao-do-cravo-passo-de-torres-sc-1514571863
+
+- **Terreno para alugar, 372 m² por R$ 1.000/mês - São Luiz - Sombrio/SC**
+  - 💰 R$ 1.000 | 📐 372 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-alugar-372-m-por-r-1-000-mes-sao-luiz-sombrio-sc-1429723018
+
+- **Terreno à venda, 300 m² por R$ 180.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-180-000-bellatorres-passo-de-torres-sc-1493382084
+
