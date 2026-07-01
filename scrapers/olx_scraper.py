@@ -2,7 +2,7 @@
 OLX Scraper — Sul Catarinense
 cloudscraper com fallback ScraperAPI. Logs explícitos de custo por página.
 """
-import time, re, os
+import time, re, os, unicodedata
 from bs4 import BeautifulSoup
 from datetime import datetime
 
@@ -23,6 +23,19 @@ SCRAPERAPI_KEY = os.environ.get("SCRAPERAPI_KEY", "")
 BASE = "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao"
 
 OLX_URLS = [f"{BASE}/outras-cidades/{cidade}" for cidade in CIDADES]
+
+
+def _normalizar(texto):
+    """Remove acentos, espaços e maiúsculas pra comparar nomes de cidade com segurança."""
+    if not texto:
+        return ""
+    texto = unicodedata.normalize("NFKD", texto).encode("ascii", "ignore").decode("ascii")
+    texto = texto.lower().strip()
+    texto = re.sub(r"[^a-z0-9]+", "-", texto).strip("-")
+    return texto
+
+
+CIDADES_PERMITIDAS = {_normalizar(c) for c in CIDADES}
 
 HEADERS = {
     "User-Agent": (
@@ -214,9 +227,25 @@ def scrape_olx():
     vistos = set()
     unicos = [a for a in anuncios if a["id"] not in vistos and not vistos.add(a["id"])]
 
+    # ── Filtro de segurança: descarta qualquer anúncio de cidade fora da lista ──
+    # (a OLX às vezes preenche a última página com "recomendados" de outras cidades)
+    permitidos, descartados = [], []
+    for a in unicos:
+        if _normalizar(a.get("cidade", "")) in CIDADES_PERMITIDAS:
+            permitidos.append(a)
+        else:
+            descartados.append(a)
+
+    if descartados:
+        cidades_fora = sorted({a.get("cidade") or "(sem cidade)" for a in descartados})
+        print(f"\n[OLX] 🚫 {len(descartados)} anúncio(s) descartado(s) por cidade fora da lista:")
+        for c in cidades_fora:
+            qtd = sum(1 for a in descartados if (a.get("cidade") or "(sem cidade)") == c)
+            print(f"[OLX]    - {c}: {qtd}")
+
     print(f"\n[OLX] ── Resumo ──")
     print(f"[OLX] ✅ Grátis (cloudscraper): {_stats['cloudscraper']} páginas")
     print(f"[OLX] ⚠️  Pago  (ScraperAPI):   {_stats['scraperapi']} páginas")
     print(f"[OLX] ❌ Falhou:                {_stats['falhou']} páginas")
-    print(f"[OLX] Total: {len(unicos)} anúncios únicos")
-    return unicos
+    print(f"[OLX] Total: {len(permitidos)} anúncios únicos (dentro das cidades configuradas)")
+    return permitidos
