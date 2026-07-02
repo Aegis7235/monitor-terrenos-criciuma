@@ -132501,3 +132501,11 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-balneario-gaivota-no-bairro-itapua-1514880808
 
+
+## 🆕 1 novos anúncios — 02/07/2026 11:40
+
+- **Chácara à venda, 8000 m² por R$ 500.000,00 - Beatrz - Maracajá/SC**
+  - 💰 R$ 500.000 | 📐 8000 m²
+  - 📍  — Maracajá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-8000-m-por-r-500-000-00-beatrz-maracaja-sc-1514896161
+
