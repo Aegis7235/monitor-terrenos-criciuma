@@ -132408,3 +132408,96 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-as-margens-do-rio-mampituba-1514757136
 
+
+## 🆕 18 novos anúncios — 02/07/2026 06:49
+
+- **Terreno à venda no Monte Dei Fiore, Criciúma**
+  - 💰 R$ 210.000 | 📐 462 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-monte-dei-fiore-criciuma-1514874319
+
+- **Oportunidade**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-1514784558
+
+- **Terreno à venda em Sombrio no bairro Parque das Avenidas**
+  - 💰 R$ 350.000 | 📐 465 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sombrio-no-bairro-parque-das-avenidas-1514880796
+
+- **Terreno à venda em Sombrio no bairro São Pedro**
+  - 💰 R$ 198.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sombrio-no-bairro-sao-pedro-1514880807
+
+- **Terreno para construção residencial/comercial na Avenida Nereu Ramos**
+  - 💰 R$ 1.200.000 | 📐 1270 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-construcao-residencial-comercial-na-avenida-nereu-ramos-1514880810
+
+- **Para investimento comercial/residencial, lote com mais de 400m²!**
+  - 💰 R$ 320.000 | 📐 417 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/para-investimento-comercial-residencial-lote-com-mais-de-400m-1514880769
+
+- **Terreno à venda, 360 m² por R$ 310.000 - Miratorres - Passo de Torres/**
+  - 💰 R$ 310.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-310-000-miratorres-passo-de-torres-sc-1514882066
+
+- **Sítio à venda em São João do Sul no bairro Vila Santa Catarina**
+  - 💰 R$ 950.000 | 📐 90 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-sao-joao-do-sul-no-bairro-vila-santa-catarina-1514881341
+
+- **Terreno para construção residencial/comercial na Avenida Nereu Ramos**
+  - 💰 R$ 600.000 | 📐 534 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-construcao-residencial-comercial-na-avenida-nereu-ramos-1514881306
+
+- **Terreno à venda em Sombrio no bairro Parque das Avenidas**
+  - 💰 R$ 348.500 | 📐 630 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sombrio-no-bairro-parque-das-avenidas-1514881133
+
+- **Quadra a venda as margens da BR101!**
+  - 💰 R$ 1.950.000 | 📐 4360 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/quadra-a-venda-as-margens-da-br101-1514881098
+
+- **Terreno à venda em Balneário Gaivota no bairro Lagoa Cortada**
+  - 💰 R$ 210.000 | 📐 354 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-balneario-gaivota-no-bairro-lagoa-cortada-1514881014
+
+- **Terreno à venda em Balneário Gaivota no bairro Lagoa Cortada**
+  - 💰 R$ 210.000 | 📐 354 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-balneario-gaivota-no-bairro-lagoa-cortada-1514881012
+
+- **Terreno à venda em Santa Rosa do Sul no bairro Centro**
+  - 💰 R$ 390.000 | 📐 1704 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-santa-rosa-do-sul-no-bairro-centro-1514880959
+
+- **Terreno à venda em Sombrio no bairro Raizeira**
+  - 💰 R$ 160.000 | 📐 500 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sombrio-no-bairro-raizeira-1514880918
+
+- **Terrenos no bairro Guarita em Sombrio - Loteamento Portal do Sol!**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-bairro-guarita-em-sombrio-loteamento-portal-do-sol-1514880820
+
+- **Terreno para construção residencial/comercial em Nova Brasília!**
+  - 💰 R$ 270.000 | 📐 488 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-construcao-residencial-comercial-em-nova-brasilia-1514880806
+
+- **Terreno à venda em Balneário Gaivota no bairro itapuã**
+  - 💰 R$ 400.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-balneario-gaivota-no-bairro-itapua-1514880808
+
