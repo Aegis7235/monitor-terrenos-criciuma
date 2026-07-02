@@ -132515,3 +132515,21 @@
 
 ## ✅ Sem novidades — 02/07/2026 16:57
 
+
+## 🆕 3 novos anúncios — 02/07/2026 22:16
+
+- **Terreno na Praia Areias Claras em Balneário Gaivota SC**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-areias-claras-em-balneario-gaivota-sc-1515085156
+
+- **Terreno no bairro Nova Brasília - Sombrio SC**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-nova-brasilia-sombrio-sc-1515046938
+
+- **Terreno no bairro Nova Brasília - Sombrio SC**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-nova-brasilia-sombrio-sc-1515045846
+
