@@ -132533,3 +132533,11 @@
   - 📍  — Sombrio
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-nova-brasilia-sombrio-sc-1515045846
 
+
+## 🆕 1 novos anúncios — 03/07/2026 06:39
+
+- **Terreno à venda em Içara/SC - Loteamento Novak III**
+  - 💰 R$ 146.000 | 📐 369 m²
+  - 📍 Poço Um — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-sc-loteamento-novak-iii-1515117586
+
