@@ -132541,3 +132541,16 @@
   - 📍 Poço Um — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-sc-loteamento-novak-iii-1515117586
 
+
+## 🆕 2 novos anúncios — 03/07/2026 11:40
+
+- **Chácara à venda, 8000 m² por R$ 500.000 - Vila Beatriz - Maracajá/SC**
+  - 💰 R$ 500.000 | 📐 8000 m²
+  - 📍  — Maracajá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-a-venda-8000-m-por-r-500-000-vila-beatriz-maracaja-sc-1515194507
+
+- **Terreno de 465 m² - Pronto para Construir**
+  - 💰 R$ 254.500 | 📐 450 m²
+  - 📍 Operária Nova — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-465-m-pronto-para-construir-1515191628
+
