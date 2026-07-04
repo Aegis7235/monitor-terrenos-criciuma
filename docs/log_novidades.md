@@ -132560,3 +132560,66 @@
 
 ## ✅ Sem novidades — 03/07/2026 22:06
 
+
+## 🆕 12 novos anúncios — 04/07/2026 06:29
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro Sangão em Criciúma**
+  - 💰 R$ 126.015 | 📐 360 m²
+  - 📍 Primeira Linha Pontilhão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-sangao-em-criciuma-1515337998
+
+- **Terreno ( Em loteamento) à Venda, 256m² - Bairro Vila Nova Esperança e**
+  - 💰 R$ 113.500 | 📐 256 m²
+  - 📍 Vila Nova Esperança — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-256m-bairro-vila-nova-esperanca-em-criciuma-1515337973
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.599.550 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1515296770
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro AURORA em Içara**
+  - 💰 R$ 97.451 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-aurora-em-icara-1515337984
+
+- **Terreno a 350 metros do mar na Praia Sumaré em Balneário Gaivota - SC**
+  - 💰 R$ 65.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-350-metros-do-mar-na-praia-sumare-em-balneario-gaivota-sc-1515330930
+
+- **Terreno de esquina na Praia Sumaré em Balneário Gaivota -SC**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-na-praia-sumare-em-balneario-gaivota-sc-1515329290
+
+- **TERRENO NA PRAIA BALNEARIO RINCÃO**
+  - 💰 R$ 215.000 | 📐 420 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-balneario-rincao-1515328247
+
+- **Terreno a 50 metros da lagoa do Rio Novo em Balneário Gaivota -SC**
+  - 💰 R$ 64.900 | 📐 285 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-50-metros-da-lagoa-do-rio-novo-em-balneario-gaivota-sc-1515327644
+
+- **Lote em condomínio em Rod. Pref. João Luiz da Silva - Costa do Rio Man**
+  - 💰 R$ 399.880 | 📐 445 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-condominio-em-rod-pref-joao-luiz-da-silva-costa-do-rio-manpituba-passo-de-to-1515307287
+
+- **Lote em Rua Antônio Dal Farra - Vila São Jorge - Siderópolis/SC**
+  - 💰 R$ 319.470 | 📐 4008 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1515304585
+
+- **Lote em Avenida das Figueiras - Bosque das Figueiras - Passo de Torres**
+  - 💰 R$ 269.109 | 📐 420 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-avenida-das-figueiras-bosque-das-figueiras-passo-de-torres-sc-1515297523
+
+- **Áreá de 3 Hectares para loteamento as margens da lagoa do Rio Novo**
+  - 💰 R$ 1.200.000 | 📐 30000 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-de-3-hectares-para-loteamento-as-margens-da-lagoa-do-rio-novo-1502997023
+
