@@ -132623,3 +132623,11 @@
   - 📍  — Sombrio
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-de-3-hectares-para-loteamento-as-margens-da-lagoa-do-rio-novo-1502997023
 
+
+## 🆕 1 novos anúncios — 04/07/2026 11:03
+
+- **OPORTUNIDADE DE INVESTIMENTO, A 100M DA PRAIA**
+  - 💰 R$ 456.950 | 📐 590 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-a-100m-da-praia-1481185909
+
