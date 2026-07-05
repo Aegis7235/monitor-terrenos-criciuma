@@ -132637,3 +132637,36 @@
 
 ## ✅ Sem novidades — 04/07/2026 22:00
 
+
+## 🆕 6 novos anúncios — 05/07/2026 06:50
+
+- **Terreno à venda no Condomínio Reserva 3 Ribeirões**
+  - 💰 R$ 515.000 | 📐 581 m²
+  - 📍 Bosque do Repouso — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-reserva-3-ribeiroes-1515643369
+
+- **ATENÇÃO - Vendo Terreno Comercial 495m2**
+  - 💰 R$ 280.000 | 📐 495 m²
+  - 📍 Maria Céu — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/atencao-vendo-terreno-comercial-495m2-1489564183
+
+- **Terreno loteamento Félix Macarini - Próximo a Lá moda - 435m2**
+  - 💰 R$ 220.000 | 📐 435 m²
+  - 📍 Vila Macarini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-felix-macarini-proximo-a-la-moda-435m2-1515535049
+
+- **Terreno comercial com AMPLA frente de 54m rodovia bastante fluxo bairr**
+  - 💰 R$ 1.350.000 | 📐 1958 m²
+  - 📍 dos Imigrantes — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-com-ampla-frente-de-54m-rodovia-bastante-fluxo-bairro-imigrantes-cricium-1495729932
+
+- **Amplos terrenos PLANOS com acesso PRIVATIVO a lagoa dos esteves, um ve**
+  - 💰 R$ 1.100.000 | 📐 1400 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplos-terrenos-planos-com-acesso-privativo-a-lagoa-dos-esteves-um-verdadeiro-privilegio-1477960853
+
+- **Terreno em Balneário Gaivota**
+  - 💰 R$ 60.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-gaivota-1515649498
+
