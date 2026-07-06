@@ -132697,3 +132697,11 @@
   - 📍  — Jaguaruna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-melhor-regiao-do-balneario-esplanada-proximo-de-comercios-da-igreja-e-do-mar-1515781616
 
+
+## 🆕 1 novos anúncios — 06/07/2026 12:55
+
+- **Terreno Bairro Lagoão**
+  - 💰 R$ 81.000 | 📐 312 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-lagoao-1515829873
+
