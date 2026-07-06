@@ -132679,3 +132679,21 @@
 
 ## ✅ Sem novidades — 05/07/2026 22:04
 
+
+## 🆕 3 novos anúncios — 06/07/2026 07:21
+
+- **Terreno com 750m2 no centro da cidade**
+  - 💰 R$ 390.000 | 📐 750 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-750m2-no-centro-da-cidade-1515684445
+
+- **Terreno na Praia Pérola (Passo de Torres) 11x25 - Próximo ao Mar - Ace**
+  - 💰 R$ 100.000 | 📐 275 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-perola-passo-de-torres-11x25-proximo-ao-mar-aceito-carro-no-negocio-1515771505
+
+- **Terreno PLANO melhor região do balneário Esplanada próximo de comércio**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-melhor-regiao-do-balneario-esplanada-proximo-de-comercios-da-igreja-e-do-mar-1515781616
+
