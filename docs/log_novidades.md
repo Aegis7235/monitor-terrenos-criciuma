@@ -132713,3 +132713,16 @@
   - 📍 Jardim Angélica — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lotes-no-jardim-angelica-em-criciuma-sc-1465165587
 
+
+## 🆕 2 novos anúncios — 06/07/2026 22:22
+
+- **Terreno (Em condomínio) à Venda, 361m² - Bairro Archimedes Naspolini e**
+  - 💰 R$ 29.000 | 📐 361 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-361m-bairro-archimedes-naspolini-em-criciuma-1515962294
+
+- **Terreno ( Em loteamento) à Venda, 364m² - Bairro Primeira Linha em Cri**
+  - 💰 R$ 15.000 | 📐 364 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-364m-bairro-primeira-linha-em-criciuma-1515961362
+
