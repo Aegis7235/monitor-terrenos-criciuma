@@ -132705,3 +132705,11 @@
   - 📍 Lagoão — Araranguá
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-lagoao-1515829873
 
+
+## 🆕 1 novos anúncios — 06/07/2026 17:50
+
+- **Vendo lotes no jardim Angélica em Criciúma SC**
+  - 💰 R$ 140.000 | 📐 537 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lotes-no-jardim-angelica-em-criciuma-sc-1465165587
+
