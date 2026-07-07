@@ -132755,3 +132755,41 @@
 
 ## ✅ Sem novidades — 07/07/2026 17:18
 
+
+## 🆕 7 novos anúncios — 07/07/2026 22:17
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro Jardim Silvana em Iça**
+  - 💰 R$ 15.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-jardim-silvana-em-icara-1516248861
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro Mina do Mato em Crici**
+  - 💰 R$ 39.000 | 📐 360 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-mina-do-mato-em-criciuma-1516249833
+
+- **Terreno escriturado com 375 m² no bairro Encruzo em Jaguaruna**
+  - 💰 R$ 80.000 | 📐 375 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-com-375-m-no-bairro-encruzo-em-jaguaruna-1516226535
+
+- **Área urbana com quase 2 hectares em Maracajá  localização estratégica **
+  - 💰 R$ 600.000 | 📐 18026 m²
+  - 📍  — Maracajá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-urbana-com-quase-2-hectares-em-maracaja-localizacao-estrategica-e-grande-potencial-d-1516178394
+
+- **Lote no loteamento oliveira**
+  - 💰 R$ 73.332 | 📐 300 m²
+  - 📍  — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-loteamento-oliveira-1516269057
+
+- **TERRENO URBANO   ***   LOTEAMENTO ARAPONGAS   ***   ARARANGUÁ / SC**
+  - 💰 R$ 115.000 | 📐 360 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano--loteamento-arapongas--ararangua-sc-1516265321
+
+- **Terreno Criciuma**
+  - 💰 R$ 193.000 | 📐 303 m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-criciuma-1516255564
+
