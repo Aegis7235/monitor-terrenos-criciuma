@@ -132726,3 +132726,26 @@
   - 📍 Primeira Linha — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-364m-bairro-primeira-linha-em-criciuma-1515961362
 
+
+## 🆕 4 novos anúncios — 07/07/2026 06:54
+
+- **Ótimo terreno, ótima localização**
+  - 💰 R$ 2.150.000 | 📐 15000 m²
+  - 📍 dos Imigrantes — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-otima-localizacao-1516040130
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro ESPLANADA em Içara**
+  - 💰 R$ 10.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-esplanada-em-icara-1516102505
+
+- **Terreno ( Em loteamento) à Venda, 446m² - Bairro Jardim Angélica em Cr**
+  - 💰 R$ 32.000 | 📐 446 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-446m-bairro-jardim-angelica-em-criciuma-1516102863
+
+- **Terreno à venda, 300 m² por R$ 95.000,00 - Bellatorres - Passo de Torr**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-95-000-00-bellatorres-passo-de-torres-sc-1487354916
+
