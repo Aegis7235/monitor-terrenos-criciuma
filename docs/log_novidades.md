@@ -132793,3 +132793,11 @@
   - 📍 Vila Floresta — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-criciuma-1516255564
 
+
+## 🆕 1 novos anúncios — 08/07/2026 05:59
+
+- **Terreno  de 441m2 pronto para construir em Criciúma-SC**
+  - 💰 R$ 147.900 | 📐 441 m²
+  - 📍 Primeira Linha Pontilhão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-441m2-pronto-para-construir-em-criciuma-sc-1516453673
+
