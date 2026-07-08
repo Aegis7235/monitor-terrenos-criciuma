@@ -132807,3 +132807,11 @@
 
 ## ✅ Sem novidades — 08/07/2026 16:43
 
+
+## 🆕 1 novos anúncios — 08/07/2026 22:14
+
+- **Terreno em Criciuma - Otimo para empresas**
+  - 💰 R$ 2.800.000 | 📐 10000 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-criciuma-otimo-para-empresas-1516630503
+
