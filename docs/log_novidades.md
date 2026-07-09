@@ -132815,3 +132815,16 @@
   - 📍 Pinheirinho — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-criciuma-otimo-para-empresas-1516630503
 
+
+## 🆕 2 novos anúncios — 09/07/2026 06:52
+
+- **Terreno em Jaguaruna (Dunas do sul)**
+  - 💰 R$ 40.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jaguaruna-dunas-do-sul-1516705646
+
+- **Sítio com 4 hectares 2 casas, lugar ALTO bem reservado em rua com fim,**
+  - 💰 R$ 690.000 | 📐 275 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-4-hectares-2-casas-lugar-alto-bem-reservado-em-rua-com-fim-lauro-m-ller-sc-1383324452
+
