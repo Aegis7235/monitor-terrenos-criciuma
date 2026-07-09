@@ -132828,3 +132828,21 @@
   - 📍  — Treviso
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-4-hectares-2-casas-lugar-alto-bem-reservado-em-rua-com-fim-lauro-m-ller-sc-1383324452
 
+
+## 🆕 3 novos anúncios — 09/07/2026 12:13
+
+- **Terreno ( Em loteamento) à Venda, 362m² - Bairro LARANJINHA em Criciúm**
+  - 💰 R$ 150.000 | 📐 362 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-362m-bairro-laranjinha-em-criciuma-1516777208
+
+- **Terreno à venda, 20000 m² por R$ 480.000,00 - Volta Curta - Araranguá/**
+  - 💰 R$ 480.000 | 📐 20000 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-20000-m-por-r-480-000-00-volta-curta-ararangua-sc-1413207197
+
+- **Terreno à venda, 228 m² por R$ 130.000 - Jardim America - Passo de Tor**
+  - 💰 R$ 130.000 | 📐 228 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-228-m-por-r-130-000-jardim-america-passo-de-torres-sc-1385809551
+
