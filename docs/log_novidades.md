@@ -132849,3 +132849,31 @@
 
 ## ✅ Sem novidades — 09/07/2026 17:29
 
+
+## 🆕 5 novos anúncios — 09/07/2026 22:27
+
+- **Terreno para investimento loteamento Village Dunas II**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-investimento-loteamento-village-dunas-ii-1516948295
+
+- **Terreno ( Em loteamento) à Venda, 402m² - Bairro Centro em Nova Veneza**
+  - 💰 R$ 26.460 | 📐 402 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-402m-bairro-centro-em-nova-veneza-1516913701
+
+- **Terreno ( Em loteamento) à Venda, 387m² - Bairro TERESA CRISTINA em Iç**
+  - 💰 R$ 14.000 | 📐 387 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-387m-bairro-teresa-cristina-em-icara-1516913670
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro SEGUNDA LINHA em Içar**
+  - 💰 R$ 20.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-segunda-linha-em-icara-1516913630
+
+- **Terreno ( Em loteamento) à Venda, 445m² - Bairro Primeira Linha em Cri**
+  - 💰 R$ 16.000 | 📐 445 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-445m-bairro-primeira-linha-em-criciuma-1516913597
+
