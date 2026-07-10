@@ -132877,3 +132877,16 @@
   - 📍 Primeira Linha — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-445m-bairro-primeira-linha-em-criciuma-1516913597
 
+
+## 🆕 2 novos anúncios — 10/07/2026 06:53
+
+- **Chácara escriturada com casa de alto padrão e piscina no centro de San**
+  - 💰 R$ 1.400.000 | 📐 239 m²
+  - 📍  — Sangão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-escriturada-com-casa-de-alto-padrao-e-piscina-no-centro-de-sangao-1517036077
+
+- **Terreno pronto para construir no Rio Maina**
+  - 💰 R$ 150.000 | 📐 461 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-no-rio-maina-1517038970
+
