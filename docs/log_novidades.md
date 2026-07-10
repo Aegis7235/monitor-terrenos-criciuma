@@ -132890,3 +132890,16 @@
   - 📍 Rio Maina — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-pronto-para-construir-no-rio-maina-1517038970
 
+
+## 🆕 2 novos anúncios — 10/07/2026 11:59
+
+- **Terreno ( Em loteamento) à Venda, 1005m² - Bairro Quarta Linha em Cric**
+  - 💰 R$ 447.020 | 📐 1005 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-1005m-bairro-quarta-linha-em-criciuma-1517040024
+
+- **Terreno (Em condomínio) à Venda, 588m² - Bairro Primeira Linha em Cric**
+  - 💰 R$ 523.999 | 📐 588 m²
+  - 📍 Jardim das Paineiras — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-588m-bairro-primeira-linha-em-criciuma-1517040003
+
