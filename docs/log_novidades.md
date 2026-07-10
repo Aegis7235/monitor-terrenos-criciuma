@@ -132906,3 +132906,96 @@
 
 ## ✅ Sem novidades — 10/07/2026 17:03
 
+
+## 🆕 18 novos anúncios — 10/07/2026 22:06
+
+- **Terreno em Praia Grande divisa mampituba**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Praia Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-praia-grande-divisa-mampituba-1517188669
+
+- **ÓTIMO TERRENO   ***   POSICIONADO COM FRENTE NORTE   ***   ACEITA FINA**
+  - 💰 R$ 70.000 | 📐 324 m²
+  - 📍 Operária — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno--posicionado-com-frente-norte--aceita-financiamento-1517179830
+
+- **TERRENO MORRO DOS CONVENTOS   ***   PRAIA DO PAIQUERE   ***   A POUCOS**
+  - 💰 R$ 279.000 | 📐 450 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-morro-dos-conventos--praia-do-paiquere--a-poucos-metros-da-praia-1517178158
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro SANTA CRUZ em Forquil**
+  - 💰 R$ 146.077 | 📐 360 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-santa-cruz-em-forquilhinha-1517164677
+
+- **Terreno ( Em loteamento) à Venda, 299m² - Bairro Vila Nova Esperança e**
+  - 💰 R$ 12.000 | 📐 299 m²
+  - 📍 Vila Nova Esperança — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-299m-bairro-vila-nova-esperanca-em-criciuma-1517163711
+
+- **Terreno ( Em loteamento) à Venda, 379m² - Bairro Santa Luzia em Criciú**
+  - 💰 R$ 123.500 | 📐 379 m²
+  - 📍 Santa Luzia — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-379m-bairro-santa-luzia-em-criciuma-1517163714
+
+- **Terreno ( Em loteamento) à Venda, 395m² - Bairro Menino Jesus em Morro**
+  - 💰 R$ 12.500 | 📐 395 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-395m-bairro-menino-jesus-em-morro-da-fumaca-1517163704
+
+- **Casa na mata**
+  - 💰 R$ 274.000 | 📐 2000 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-na-mata-1517139085
+
+- **Lote no Cristo Rei**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-cristo-rei-1305000361
+
+- **Lote em Balneário Arroio Corrente**
+  - 💰 R$ 220.000 | 📐 315 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-balneario-arroio-corrente-1382107964
+
+- **Lote no Arroio Corrente**
+  - 💰 R$ 180.000 | 📐 280 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-arroio-corrente-1346282558
+
+- **Lote de esquina - Balneário Arroio Corrente**
+  - 💰 R$ 200.000 | 📐 315 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-balneario-arroio-corrente-1382108386
+
+- **Lote no centro de Jaguaruna**
+  - 💰 R$ 250.000 | 📐 457 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-centro-de-jaguaruna-1476133432
+
+- **Terreno à venda no Cristo Rei**
+  - 💰 R$ 150.000 | 📐 350 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-cristo-rei-1344335302
+
+- **Lote no Arroio Corrente**
+  - 💰 R$ 210.000 | 📐 280 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-arroio-corrente-1439952060
+
+- **Lote de esquina no Arroio Corrente**
+  - 💰 R$ 220.000 | 📐 315 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-no-arroio-corrente-1439952589
+
+- **Lotes no Arroio Corrente**
+  - 💰 R$ 200.000 | 📐 315 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-no-arroio-corrente-1439953617
+
+- **Terreno de 18 hectares com frente para BR101**
+  - 💰 R$ 2.500.000 | 📐 180000 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-18-hectares-com-frente-para-br101-1138426330
+
