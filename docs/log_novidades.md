@@ -132999,3 +132999,26 @@
   - 📍  — Jaguaruna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-18-hectares-com-frente-para-br101-1138426330
 
+
+## 🆕 4 novos anúncios — 11/07/2026 05:48
+
+- **Terreno à venda, 425 m² por R$ 402.000,00 - Zona Sul - Balneário Rincã**
+  - 💰 R$ 402.000 | 📐 425 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-425-m-por-r-402-000-00-zona-sul-balneario-rincao-sc-1517249242
+
+- **Sítio com casa de 2 dormitórios à venda, 85000 m² por R$ 1.350.000 - I**
+  - 💰 R$ 1.350.000 | 📐 100 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-de-2-dormitorios-a-venda-85000-m-por-r-1-350-000-icara-icara-sc-1517249161
+
+- **Terreno Xangrila Dos Mares**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-xangrila-dos-mares-1517222776
+
+- **Terreno em Praia grande SC Divisa com Mampituba! Troco por carro**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Praia Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-praia-grande-sc-divisa-com-mampituba-troco-por-carro-1517217954
+
