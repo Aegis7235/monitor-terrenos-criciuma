@@ -133022,3 +133022,11 @@
   - 📍  — Praia Grande
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-praia-grande-sc-divisa-com-mampituba-troco-por-carro-1517217954
 
+
+## 🆕 1 novos anúncios — 11/07/2026 10:23
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro Catarinense em Criciú**
+  - 💰 R$ 193.540 | 📐 360 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-catarinense-em-criciuma-1517280041
+
