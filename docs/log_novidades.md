@@ -133033,3 +133033,21 @@
 
 ## ✅ Sem novidades — 11/07/2026 16:03
 
+
+## 🆕 3 novos anúncios — 11/07/2026 21:58
+
+- **3 Terrenos juntos em Bela Torres - 1100m2**
+  - 💰 R$ 650.000 | 📐 1100 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/3-terrenos-juntos-em-bela-torres-1100m2-1517379615
+
+- **Terreno próximo a Avenidas Interpraias no Bairro Village Dunas!**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-avenidas-interpraias-no-bairro-village-dunas-1517391680
+
+- **Terreno à venda em Sombrio no bairro São Luiz**
+  - 💰 R$ 720.000 | 📐 1205 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sombrio-no-bairro-sao-luiz-1517391621
+
