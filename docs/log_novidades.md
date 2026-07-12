@@ -133075,3 +133075,16 @@
 
 ## ✅ Sem novidades — 12/07/2026 16:09
 
+
+## 🆕 2 novos anúncios — 12/07/2026 21:58
+
+- **Oportunidade Lote Comercial**
+  - 💰 R$ 170.000 | 📐 380 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-lote-comercial-1517588983
+
+- **Vendo terreno 559m² valor abaixo mercado para vender rapido**
+  - 💰 R$ 170.000 | 📐 559 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-559m-valor-abaixo-mercado-para-vender-rapido-1517547294
+
