@@ -133051,3 +133051,21 @@
   - 📍  — Sombrio
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sombrio-no-bairro-sao-luiz-1517391621
 
+
+## 🆕 3 novos anúncios — 12/07/2026 06:12
+
+- **Terreno 1.402m² de área privativa em condomínio fechado TOTAL PRIVACID**
+  - 💰 R$ 1.200.000 | 📐 1402 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1-402m-de-area-privativa-em-condominio-fechado-total-privacidade-bairro-sao-simao-1498363218
+
+- **Lote no Village Dunas próximo a Av. Interpraias**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-village-dunas-proximo-a-av-interpraias-1517442293
+
+- **Terreno em balneário gaivota SC bairro tropical**
+  - 💰 R$ 53.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-gaivota-sc-bairro-tropical-1517469612
+
