@@ -133091,3 +133091,11 @@
 
 ## ✅ Sem novidades — 13/07/2026 06:28
 
+
+## 🆕 1 novos anúncios — 13/07/2026 12:11
+
+- **Lindo terreno quadra mar bal.Dunas do Sul com escritura**
+  - 💰 R$ 350.000 | 📐 350 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-quadra-mar-bal-dunas-do-sul-com-escritura-1517670281
+
