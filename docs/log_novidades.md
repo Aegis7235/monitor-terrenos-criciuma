@@ -133117,3 +133117,41 @@
   - 📍  — Jaguaruna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-refugio-na-praia-do-camacho-terreno-em-area-residencial-de-375m-1517754514
 
+
+## 🆕 7 novos anúncios — 13/07/2026 22:05
+
+- **Terreno ( Em loteamento) à Venda, 1005m² - Bairro Quarta Linha em Cric**
+  - 💰 R$ 389.000 | 📐 1005 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-1005m-bairro-quarta-linha-em-criciuma-1517811177
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro Linha Batista em Cric**
+  - 💰 R$ 114.000 | 📐 360 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-linha-batista-em-criciuma-1517810978
+
+- **Terreno ( Em loteamento) à Venda, 102m² - Bairro São Defende em Criciú**
+  - 💰 R$ 28.094 | 📐 102 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-102m-bairro-sao-defende-em-criciuma-1517810930
+
+- **Terreno (Em rua) à Venda, 678m² - Bairro Linha Anta em Criciúma**
+  - 💰 R$ 389.000 | 📐 678 m²
+  - 📍 Vila Selinger — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-rua-a-venda-678m-bairro-linha-anta-em-criciuma-1517810813
+
+- **Terreno (Em condomínio) à Venda, 420m² - Bairro DUNAS em Balneário Rin**
+  - 💰 R$ 450.000 | 📐 420 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-420m-bairro-dunas-em-balneario-rincao-1517811258
+
+- **Terreno ( Em loteamento) à Venda, 457m² - Bairro BAIRRO DA FIGUEIRA em**
+  - 💰 R$ 45.864 | 📐 457 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-457m-bairro-bairro-da-figueira-em-urussanga-1517810795
+
+- **Parcelo Direto.**
+  - 💰 R$ 18.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parcelo-direto-1517795799
+
