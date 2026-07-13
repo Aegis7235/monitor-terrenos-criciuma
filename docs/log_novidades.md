@@ -133099,3 +133099,21 @@
   - 📍  — Jaguaruna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-quadra-mar-bal-dunas-do-sul-com-escritura-1517670281
 
+
+## 🆕 3 novos anúncios — 13/07/2026 17:20
+
+- **Terreno a 350 do mar na Praia Turimar em Balneário Gaivota**
+  - 💰 R$ 259.000 | 📐 400 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-350-do-mar-na-praia-turimar-em-balneario-gaivota-1517710409
+
+- **Terreno com 300m² a venda em Balneário Gaivota SC**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-300m-a-venda-em-balneario-gaivota-sc-1517758385
+
+- **Seu Refúgio na Praia do Camacho: Terreno em Área Residencial de 375m²**
+  - 💰 R$ 210.000 | 📐 375 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-refugio-na-praia-do-camacho-terreno-em-area-residencial-de-375m-1517754514
+
