@@ -133158,3 +133158,11 @@
 
 ## ✅ Sem novidades — 14/07/2026 05:33
 
+
+## 🆕 1 novos anúncios — 14/07/2026 10:49
+
+- **Terreno de Esquina próximo ao Mar e a Lagoa Cortada**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-proximo-ao-mar-e-a-lagoa-cortada-1517875566
+
