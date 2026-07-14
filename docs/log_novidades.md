@@ -133349,3 +133349,21 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-90-000-00-porto-do-sol-passo-de-torres-sc-1385809520
 
+
+## 🆕 3 novos anúncios — 14/07/2026 22:06
+
+- **Terrenos no Bairro Linha Anta - Içara e Criciúma - SC**
+  - 💰 R$ 75.000 | 📐 360 m²
+  - 📍 Linha Anta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-bairro-linha-anta-icara-e-criciuma-sc-1518111452
+
+- **Terreno ( Em loteamento) à Venda, 367m² - Bairro Jardim das Palmeiras **
+  - 💰 R$ 198.000 | 📐 367 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-367m-bairro-jardim-das-palmeiras-em-cocal-do-sul-1518091624
+
+- **Terreno ( Em loteamento) à Venda, 368m² - Bairro Vila Nova em Içara**
+  - 💰 R$ 144.256 | 📐 368 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-368m-bairro-vila-nova-em-icara-1518091646
+
