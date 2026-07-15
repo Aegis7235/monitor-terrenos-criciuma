@@ -133367,3 +133367,16 @@
   - 📍  — Cocal do Sul
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-368m-bairro-vila-nova-em-icara-1518091646
 
+
+## 🆕 2 novos anúncios — 15/07/2026 05:40
+
+- **TERRENO DE ESQUINA ESCRITURADO E REGISTRADO EM BALNEÁRIO GAIVOTA**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-escriturado-e-registrado-em-balneario-gaivota-1518155933
+
+- **Imóvel Rural em Leilão - Zona Rural - Santa Rosa do Sul - SC**
+  - 💰 R$ 288.000 | 📐 9 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-rural-em-leilao-zona-rural-santa-rosa-do-sul-sc-1518217482
+
