@@ -133396,3 +133396,86 @@
 
 ## ✅ Sem novidades — 15/07/2026 16:30
 
+
+## 🆕 16 novos anúncios — 15/07/2026 22:10
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro São Defende em Criciú**
+  - 💰 R$ 127.986 | 📐 360 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-sao-defende-em-criciuma-1518380072
+
+- **Terreno (Em rua) à Venda, 1001m² - Bairro Vila Floresta em Criciúma**
+  - 💰 R$ 2.054.025 | 📐 1001 m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-rua-a-venda-1001m-bairro-vila-floresta-em-criciuma-1518380071
+
+- **Parcelado em até 60x**
+  - 💰 R$ 188.370 | 📐 383 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/parcelado-em-ate-60x-989455532
+
+- **Terreno com entrada de 12.000 a venda em Passo de Torres - SC**
+  - 💰 R$ 12.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-entrada-de-12-000-a-venda-em-passo-de-torres-sc-1456973585
+
+- **Terreno com entrada de 12.000,00  a venda em Passo de Torres - SC**
+  - 💰 R$ 14.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-entrada-de-12-000-00-a-venda-em-passo-de-torres-sc-1397181448
+
+- **Praia Tapera, proximo ao mar e Lagoa.**
+  - 💰 R$ 420.000 | 📐 845 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/praia-tapera-proximo-ao-mar-e-lagoa-1001945466
+
+- **Terreno proximo ao comércio, Bellatorres.**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-ao-comercio-bellatorres-990115729
+
+- **51.948 de Entrada**
+  - 💰 R$ 51.948 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/51-948-de-entrada-1017162467
+
+- **30.000,00 entrada + 100x.**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/30-000-00-entrada-100x-1085258691
+
+- **Terreno de esquina abaixo do valor na praia Sumaré, Baln. Gaivota SC**
+  - 💰 R$ 49.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-abaixo-do-valor-na-praia-sumare-baln-gaivota-sc-1461478835
+
+- **Loteamento a beira mar, Capão Bonito - Balneário Gaivota - SC**
+  - 💰 R$ 17.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-a-beira-mar-capao-bonito-balneario-gaivota-sc-1451039897
+
+- **Terreno a venda no bairro Miraflores, em Arroio do Silva SC**
+  - 💰 R$ 38.000 | 📐 324 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-miraflores-em-arroio-do-silva-sc-1443734275
+
+- **Terreno a venda no bairro Sumaré em Balneário Gaivota - SC**
+  - 💰 R$ 45.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-sumare-em-balneario-gaivota-sc-1404122873
+
+- **Terreno a 50 metros do mar, bairro Santa Fé em Balneário Gaivota/SC.**
+  - 💰 R$ 350.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-50-metros-do-mar-bairro-santa-fe-em-balneario-gaivota-sc-949217112
+
+- **Vendo terreno em Balneario Gaivota Lagoa Cortada**
+  - 💰 R$ 99.500 | 📐 ? m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-em-balneario-gaivota-lagoa-cortada-1025066734
+
+- **Terreno de esquina a 200 metros do mar a venda em Balneário Gaivota**
+  - 💰 R$ 195.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-200-metros-do-mar-a-venda-em-balneario-gaivota-1026647348
+
