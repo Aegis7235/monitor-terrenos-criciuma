@@ -133380,3 +133380,16 @@
   - 📍  — Santa Rosa do Sul
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-rural-em-leilao-zona-rural-santa-rosa-do-sul-sc-1518217482
 
+
+## 🆕 2 novos anúncios — 15/07/2026 10:58
+
+- **Terreno ( Em loteamento) à Venda, 362m² - Bairro Bortolotto em Nova Ve**
+  - 💰 R$ 147.591 | 📐 362 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-362m-bairro-bortolotto-em-nova-veneza-1518224467
+
+- **Terreno ( Em loteamento) à Venda, 375m² - Bairro São Defende em Criciú**
+  - 💰 R$ 5.000 | 📐 375 m²
+  - 📍 São Defende — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-375m-bairro-sao-defende-em-criciuma-1518224351
+
