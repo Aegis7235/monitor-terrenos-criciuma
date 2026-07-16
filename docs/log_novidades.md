@@ -133479,3 +133479,11 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-200-metros-do-mar-a-venda-em-balneario-gaivota-1026647348
 
+
+## 🆕 1 novos anúncios — 16/07/2026 05:49
+
+- **Terreno em Jaguaruna Sc**
+  - 💰 R$ 90.000 | 📐 360 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jaguaruna-sc-1518458068
+
