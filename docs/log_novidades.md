@@ -133490,3 +133490,16 @@
 
 ## ✅ Sem novidades — 16/07/2026 11:01
 
+
+## 🆕 2 novos anúncios — 16/07/2026 16:24
+
+- **Terreno à venda, 306 m² por R$ 120.900 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 120.900 | 📐 306 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-306-m-por-r-120-900-caverazinho-ararangua-sc-1518512149
+
+- **Terreno para alugar, 450 m² por R$ 2.500,00/mês - Cidade Alta - Araran**
+  - 💰 R$ 2.500 | 📐 450 m²
+  - 📍 Cidade Alta — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-alugar-450-m-por-r-2-500-00-mes-cidade-alta-ararangua-sc-1518512125
+
