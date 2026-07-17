@@ -133617,3 +133617,26 @@
   - 📍 Centro — Araranguá
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-28-x-80-metros-no-centro-de-ararangua-sc-1442866921
 
+
+## 🆕 4 novos anúncios — 17/07/2026 16:21
+
+- **Lote industrial 378m2 a poucos metros da BR-101**
+  - 💰 R$ 150.000 | 📐 378 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-industrial-378m2-a-poucos-metros-da-br-101-1518800035
+
+- **Terreno - Vila Lourdes Forquilhinha**
+  - 💰 R$ 110.000 | 📐 302 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-vila-lourdes-forquilhinha-1518807150
+
+- **Lindo Sitio em AMPLO terreno Morro Grande SC**
+  - 💰 R$ 1.250.000 | 📐 72000 m²
+  - 📍  — Morro Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-em-amplo-terreno-morro-grande-sc-1373594594
+
+- **Lote a venda condomínio Fechado na grande Prospera**
+  - 💰 R$ 299.000 | 📐 539 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-condominio-fechado-na-grande-prospera-1518830051
+
