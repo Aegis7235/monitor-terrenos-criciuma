@@ -133599,3 +133599,21 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/melhor-lugar-para-viver-1195336250
 
+
+## 🆕 3 novos anúncios — 17/07/2026 10:53
+
+- **Chácara com 3 quartos à Venda, 4960 m² em Nova Veneza/SC**
+  - 💰 R$ 661.783 | 📐 4960 m²
+  - 📍 São Bento Baixo — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-com-3-quartos-a-venda-4960-m-em-nova-veneza-sc-1518773605
+
+- **ÓTIMO TERRENO, Á VENDA**
+  - 💰 R$ 195.000 | 📐 360 m²
+  - 📍 Vila São José — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-a-venda-1518779382
+
+- **Terreno 28 x 80 metros no Centro de Araranguá-SC**
+  - 💰 R$ 5.492.000 | 📐 2120 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-28-x-80-metros-no-centro-de-ararangua-sc-1442866921
+
