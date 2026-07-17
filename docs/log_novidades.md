@@ -133506,3 +133506,96 @@
 
 ## ✅ Sem novidades — 16/07/2026 22:04
 
+
+## 🆕 18 novos anúncios — 17/07/2026 05:51
+
+- **Vendo terreno Jaguaruna Dunas do Sul**
+  - 💰 R$ 40.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-jaguaruna-dunas-do-sul-1518695637
+
+- **Terreno ( Em loteamento) à Venda, 387m² - Bairro VILA SÃO JORGE em Sid**
+  - 💰 R$ 131.108 | 📐 387 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-387m-bairro-vila-sao-jorge-em-sideropolis-1518649100
+
+- **Terreno a venda em Balneário Gaivota - SC**
+  - 💰 R$ 36.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-balneario-gaivota-sc-1518635906
+
+- **Terreno a 200 metros do mar a venda em Balneario Gaivota - SC**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-200-metros-do-mar-a-venda-em-balneario-gaivota-sc-1518627742
+
+- **Sitio 100% aproveitável, APROVEITE,  fazenda 4 hectares, sitio rural n**
+  - 💰 R$ 2.000.000 | 📐 40000 m²
+  - 📍 Boa Vista — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-100-aproveitavel-aproveite-fazenda-4-hectares-sitio-rural-na-beira-da-rodovia-1489491204
+
+- **Loteamento com pequena entrada, em Santa Rosa do Sul - SC**
+  - 💰 R$ 7.665 | 📐 300 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-com-pequena-entrada-em-santa-rosa-do-sul-sc-1442051546
+
+- **Loteamento Planejado a Beira-mar - Passo de Torres - SC**
+  - 💰 R$ 56.665 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-planejado-a-beira-mar-passo-de-torres-sc-1394018595
+
+- **Terrenos com entrada de R$ 25 mil e restante em até 120x na Praia Arei**
+  - 💰 R$ 25.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-com-entrada-de-r-25-mil-e-restante-em-ate-120x-na-praia-areias-claras-balneario-1447369644
+
+- **Terrenos parcelados na praia, em Balneário Gaivota - SC**
+  - 💰 R$ 14.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-na-praia-em-balneario-gaivota-sc-1441810890
+
+- **Terreno a poucos metros do mar na Praia Areias Claras - Balneário Gaiv**
+  - 💰 R$ 83.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-poucos-metros-do-mar-na-praia-areias-claras-balneario-gaivota-sc-1418632519
+
+- **Terreno prontinho para construir na Praia Areias Claras - Balneário Ga**
+  - 💰 R$ 68.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-prontinho-para-construir-na-praia-areias-claras-balneario-gaivota-sc-1418629878
+
+- **Terreno na praia ValVerde, em Balneário Gaivota - SC**
+  - 💰 R$ 45.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-valverde-em-balneario-gaivota-sc-1405156028
+
+- **Terreno no Bairro Fernão Capello, próximo a área central da cidade, em**
+  - 💰 R$ 75.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-fernao-capello-proximo-a-area-central-da-cidade-em-balneario-gaivota-1394725412
+
+- **Terreno a venda com parcelamento em Balneário Gaivota - SC**
+  - 💰 R$ 29.900 | 📐 325 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-parcelamento-em-balneario-gaivota-sc-1380555661
+
+- **Loteamento Jardim Novo, com terrenos a a partir de R$ 19.800,00 de ent**
+  - 💰 R$ 19.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-jardim-novo-com-terrenos-a-a-partir-de-r-19-800-00-de-entrada-parcelas-1360628695
+
+- **Terreno a venda no bairro Santa Fé - Balneário Gaivota - SC**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-santa-fe-balneario-gaivota-sc-1301469267
+
+- **Terreno barato venda na praia Village Dunas 2 - Balneário Gaivota - SC**
+  - 💰 R$ 20.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-barato-venda-na-praia-village-dunas-2-balneario-gaivota-sc-1207185081
+
+- **melhor lugar para viver!**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/melhor-lugar-para-viver-1195336250
+
