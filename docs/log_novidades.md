@@ -133643,3 +133643,46 @@
 
 ## ✅ Sem novidades — 17/07/2026 21:55
 
+
+## 🆕 8 novos anúncios — 18/07/2026 05:35
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.599.440 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1518940616
+
+- **Terreno de esquina - 516 m2 - Bairro Pinheirinho, Criciúma - SC**
+  - 💰 R$ 300.000 | 📐 516 m²
+  - 📍 Imperatriz — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-516-m2-bairro-pinheirinho-criciuma-sc-1518913264
+
+- **Terreno (Em condomínio) à Venda, 810m² - Bairro Argentina em Criciúma**
+  - 💰 R$ 495.000 | 📐 810 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-810m-bairro-argentina-em-criciuma-1518904324
+
+- **Lote em Rua Antônio Dal Farra - Vila São Jorge - Siderópolis/SC**
+  - 💰 R$ 319.060 | 📐 4008 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1518943711
+
+- **Terreno na Praia Caravelle - Passo de Torres - SC**
+  - 💰 R$ 90.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-caravelle-passo-de-torres-sc-1518912784
+
+- **Lote/Terreno para venda com 34200 metros quadrados em Rio Maior - Urus**
+  - 💰 R$ 579.000 | 📐 34200 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-venda-com-34200-metros-quadrados-em-rio-maior-urussanga-santa-catari-1518911805
+
+- **Imóvel *LEILÃO CEF* TERRENO 390m² em Morro Maccari - Morro da Fumaça -**
+  - 💰 R$ 117.702 | 📐 390 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-leilao-cef-terreno-390m-em-morro-maccari-morro-da-fumaca-sc-1518889493
+
+- **Chácara 5.280m² em Nova Veneza-SC | Escriturada, Cabana, Energia Solar**
+  - 💰 R$ 525.000 | 📐 5280 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-5-280m-em-nova-veneza-sc-escriturada-cabana-energia-solar-e-tecnologia-ev-1518865832
+
