@@ -133694,3 +133694,11 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-caravelle-passo-de-torres-sc-1519042277
 
+
+## 🆕 1 novos anúncios — 18/07/2026 16:06
+
+- **Loteamento Líbero de Bona - Santa Cruz - Forquilhinha**
+  - 💰 R$ 95.000 | 📐 364 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-libero-de-bona-santa-cruz-forquilhinha-1519078625
+
