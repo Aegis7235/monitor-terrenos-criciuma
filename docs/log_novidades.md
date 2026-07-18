@@ -133686,3 +133686,11 @@
   - 📍  — Nova Veneza
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-5-280m-em-nova-veneza-sc-escriturada-cabana-energia-solar-e-tecnologia-ev-1518865832
 
+
+## 🆕 1 novos anúncios — 18/07/2026 10:25
+
+- **Terreno na Praia Caravelle - Passo de Torres - SC**
+  - 💰 R$ 90.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-caravelle-passo-de-torres-sc-1519042277
+
