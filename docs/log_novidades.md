@@ -133708,3 +133708,76 @@
 
 ## ✅ Sem novidades — 19/07/2026 05:56
 
+
+## 🆕 14 novos anúncios — 19/07/2026 10:41
+
+- **Terreno à venda, 360 m² por R$ 130.188,00 - Santa Cruz - Forquilhinha/**
+  - 💰 R$ 130.188 | 📐 360 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-130-188-00-santa-cruz-forquilhinha-sc-1519214921
+
+- **Terreno para Venda em Içara, Aririu**
+  - 💰 R$ 1.599.900 | 📐 600 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-icara-aririu-1519218472
+
+- **Terreno para Venda em Balneário Rincão, Aririu**
+  - 💰 R$ 2.999.990 | 📐 600 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-rincao-aririu-1519218476
+
+- **Terreno para Venda em Içara, Aririu**
+  - 💰 R$ 580.000 | 📐 370 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-icara-aririu-1519218383
+
+- **Terreno à venda, 360 m² por R$ 135.000,00 - Linha Batista - Criciúma/S**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-135-000-00-linha-batista-criciuma-sc-1519214995
+
+- **Terreno à venda, 800 m² por R$ 548.000,00 - Argentina - Criciúma/SC**
+  - 💰 R$ 548.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-800-m-por-r-548-000-00-argentina-criciuma-sc-1519214955
+
+- **Terreno à venda, 457 m² por R$ 175.000,00 - Coloninha Zilli - Criciúma**
+  - 💰 R$ 175.000 | 📐 457 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-457-m-por-r-175-000-00-coloninha-zilli-criciuma-sc-1519214945
+
+- **Terreno à venda, 604 m² por R$ 488.000,00 - Primeira Linha - Criciúma/**
+  - 💰 R$ 488.000 | 📐 604 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-604-m-por-r-488-000-00-primeira-linha-criciuma-sc-1519214922
+
+- **Terreno à venda, 606 m² por R$ 552.000,00 - Faxinal - Balneário Rincão**
+  - 💰 R$ 552.000 | 📐 606 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-606-m-por-r-552-000-00-faxinal-balneario-rincao-sc-1519214795
+
+- **Terreno à venda, 360 m² por R$ 215.684,41 - Gov. Celso Ramos - Governa**
+  - 💰 R$ 215.684 | 📐 360 m²
+  - 📍 Metropol — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-215-684-41-gov-celso-ramos-governador-celso-ramos-sc-1519214832
+
+- **Terreno à venda, 1012 m² por R$ 709.000,00 - São Simão - Criciúma/SC**
+  - 💰 R$ 709.000 | 📐 1012 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1012-m-por-r-709-000-00-sao-simao-criciuma-sc-1519214741
+
+- **Terreno a venda | Sombrio SC**
+  - 💰 R$ 320.000 | 📐 521 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-sombrio-sc-1519209420
+
+- **Sítio 2 hequitar. Morro albino próximo Br 101 .**
+  - 💰 R$ 550.000 | 📐 20000 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-2-hequitar-morro-albino-proximo-br-101-1519200056
+
+- **Lote na beira mar Sul BALNEÁRIO ESPLANADA**
+  - 💰 R$ 300.000 | 📐 375 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-beira-mar-sul-balneario-esplanada-1519193519
+
