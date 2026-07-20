@@ -135712,3 +135712,41 @@
 
 ## ✅ Sem novidades — 20/07/2026 20:18
 
+
+## 🆕 7 novos anúncios — 20/07/2026 22:09
+
+- **Lote em Rua Noel Rosa - Lote Seis - Criciúma/SC**
+  - 💰 R$ 324.530 | 📐 390 m²
+  - 📍 Lote Seis — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-noel-rosa-lote-seis-criciuma-sc-1519596230
+
+- **Terreno ( Em loteamento) à Venda, 391m² - Bairro Primeira Linha em Cri**
+  - 💰 R$ 219.000 | 📐 391 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-391m-bairro-primeira-linha-em-criciuma-1519546668
+
+- **Terreno ( Em loteamento) à Venda, 362m² - Bairro Mina Brasil em Criciú**
+  - 💰 R$ 440.148 | 📐 362 m²
+  - 📍 Mina Brasil — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-362m-bairro-mina-brasil-em-criciuma-1519545167
+
+- **TERRENO MEDINDO 1.978,50 m2 NO BAIRRO RIO MAINA em CRICIÚMA/SC**
+  - 💰 R$ 699.000 | 📐 1978 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-medindo-1-978-50-m2-no-bairro-rio-maina-em-criciuma-sc-1519536403
+
+- **TERRENO À VENDA 400 METROS DO MAR, Condomínio fechado Águas do Atlânti**
+  - 💰 R$ 340.000 | 📐 420 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-400-metros-do-mar-condominio-fechado-aguas-do-atlantico-em-balneario-rinc-1519569198
+
+- **Vendo terreno  Balneário Rincão...**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-balneario-rincao-1519596009
+
+- **Terreno em condominio fechado de alto padrão á venda no Passo de Torre**
+  - 💰 R$ 360.024 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-de-alto-padrao-a-venda-no-passo-de-torres-sc-1448795959
+
