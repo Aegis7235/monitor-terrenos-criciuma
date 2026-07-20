@@ -133787,3 +133787,16 @@
 
 ## ✅ Sem novidades — 19/07/2026 22:00
 
+
+## 🆕 2 novos anúncios — 20/07/2026 06:26
+
+- **Terreno no Rio Maina - Criciúma**
+  - 💰 R$ 55.000 | 📐 360 m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-maina-criciuma-1519345998
+
+- **Alugo pavilhão novo de 360 metros em Forquilhinha SC**
+  - 💰 R$ 4.900 | 📐 360 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/alugo-pavilhao-novo-de-360-metros-em-forquilhinha-sc-1519360794
+
