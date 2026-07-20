@@ -16,13 +16,17 @@ except ImportError:
 
 import requests
 
-from scrapers.cidades import CIDADES
+from scrapers.cidades import REGIOES, CIDADES
 
 SCRAPERAPI_KEY = os.environ.get("SCRAPERAPI_KEY", "")
 
-BASE = "https://www.olx.com.br/imoveis/terrenos/estado-sc/florianopolis-e-regiao"
-
-OLX_URLS = [f"{BASE}/outras-cidades/{cidade}" for cidade in CIDADES]
+# Cada alvo é uma tupla (url, estado) — assim cada cidade carrega o estado
+# correto (SC/RS) da região dela, montado a partir da base daquela região.
+OLX_ALVOS = [
+    (f'{regiao["base"]}/outras-cidades/{cidade}', regiao["estado"])
+    for regiao in REGIOES
+    for cidade in regiao["cidades"]
+]
 
 
 def _normalizar(texto):
@@ -112,7 +116,7 @@ def _total_paginas(soup):
     return 10
 
 
-def parsear_card(section):
+def parsear_card(section, estado="SC"):
     try:
         link = section.find("a", attrs={"data-testid": "adcard-link"})
         if not link:
@@ -166,7 +170,7 @@ def parsear_card(section):
             "area_m2":     area,
             "cidade":      cidade,
             "bairro":      bairro,
-            "estado":      "SC",
+            "estado":      estado,
             "url":         url,
             "fonte":       "OLX",
             "foto":        foto,
@@ -184,10 +188,10 @@ def scrape_olx():
     _stats["scraperapi"] = 0
     _stats["falhou"] = 0
 
-    for base_url in OLX_URLS:
+    for base_url, estado in OLX_ALVOS:
         total_pags = None
-        nome_url = base_url.split("/")[-1] or "regional-sc"
-        print(f"\n[OLX] ── {nome_url} ──")
+        nome_url = base_url.split("/")[-1] or "regional"
+        print(f"\n[OLX] ── {nome_url} ({estado}) ──")
 
         for pagina in range(1, 21):
             url = f"{base_url}?o={pagina}" if pagina > 1 else base_url
@@ -211,7 +215,7 @@ def scrape_olx():
 
                 print(f"[OLX] {len(cards)} cards encontrados")
                 for card in cards:
-                    a = parsear_card(card)
+                    a = parsear_card(card, estado)
                     if a:
                         anuncios.append(a)
 
