@@ -59,7 +59,7 @@ def geocodificar_anuncios(lista, salvar_fn):
             pulados += 1
             continue
 
-        lat, lon = geocodificar(a.get("cidade", ""), a.get("bairro", ""))
+        lat, lon = geocodificar(a.get("cidade", ""), a.get("bairro", ""), a.get("estado") or "SC")
         if lat:
             salvar_fn(a["id"], lat, lon)
             a["lat"], a["lon"] = lat, lon
