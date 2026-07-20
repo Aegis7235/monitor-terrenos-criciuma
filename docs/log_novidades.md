@@ -135701,3 +135701,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/melhor-oportunidade-no-ocean-side-1111321469
 
+
+## 🆕 1 novos anúncios — 20/07/2026 16:27
+
+- **Vendo terreno pra sitio**
+  - 💰 R$ 75.000 | 📐 2500 m²
+  - 📍  — Timbé do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-pra-sitio-1519494702
+
