@@ -133803,3 +133803,1901 @@
 
 ## ✅ Sem novidades — 20/07/2026 11:53
 
+
+## 🆕 379 novos anúncios — 20/07/2026 15:15
+
+- **Oportunidade Única: Terreno em Bairro Nobre com Vista para o Mar**
+  - 💰 R$ 5.000.000 | 📐 680 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-terreno-em-bairro-nobre-com-vista-para-o-mar-1394549825
+
+- **Terreno em condomínio fechado pé na área em Torres**
+  - 💰 R$ 1.030.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-pe-na-area-em-torres-1394860877
+
+- **Terreno Praia de Itapeva - Torres RS**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-de-itapeva-torres-rs-1519323849
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 950.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1415456777
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 950.000 | 📐 466 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1415460346
+
+- **Terreno em condomínio fechado pé na área em Torres**
+  - 💰 R$ 1.010.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-pe-na-area-em-torres-1394860905
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 560.000 | 📐 367 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1402244726
+
+- **Terreno a venda | Vila São João**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-vila-sao-joao-1519209268
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 840.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1394860893
+
+- **TERRENO À VENDA EM TORRES/RS - Direto com o prop.oolo**
+  - 💰 R$ 650.000 | 📐 414 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-em-torres-rs-direto-com-o-prop-oolo-1516741115
+
+- **Terreno em condomínio fechado pé na área em Torres**
+  - 💰 R$ 2.200.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-pe-na-area-em-torres-1394861046
+
+- **Lote no Condomínio Ocean Side**
+  - 💰 R$ 760.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ocean-side-1394860929
+
+- **Terreno em condomínio fechado pé na área em Torres**
+  - 💰 R$ 2.180.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-pe-na-area-em-torres-1394549930
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 950.000 | 📐 424 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1394860876
+
+- **Imóvel para venda possui 525 metros quadrados em Centenário - Torres -**
+  - 💰 R$ 220.000 | 📐 525 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-possui-525-metros-quadrados-em-centenario-torres-rs-1518303827
+
+- **Terreno à venda Engenho Velho Torres/RS**
+  - 💰 R$ 450.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-engenho-velho-torres-rs-1518289777
+
+- **Lote no Condomínio Ocean Side**
+  - 💰 R$ 790.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ocean-side-1394861123
+
+- **Terreno em condomínio fechado na Praia da Cal em Torres**
+  - 💰 R$ 950.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-cal-em-torres-1394861001
+
+- **Terreno no Loteamento Morada da Vila, em Torres**
+  - 💰 R$ 119.520 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-morada-da-vila-em-torres-1517421654
+
+- **Terreno em Torres praia Paraíso**
+  - 💰 R$ 130.000 | 📐 330 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-praia-paraiso-1517323917
+
+- **Terreno Praia Rivieira em Torres- RS**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-rivieira-em-torres-rs-1516258687
+
+- **Vendo Terreno Vila São João**
+  - 💰 R$ 65.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-vila-sao-joao-1516156493
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 520.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1516101281
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 320.000 | 📐 451 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1516100488
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 329.900 | 📐 445 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1516100186
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 415.000 | 📐 561 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1516099349
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 459.000 | 📐 790 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1516097764
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 520.000 | 📐 756 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1516097697
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 410.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1516096675
+
+- **Lote de esquina no Reserva das Águas em Torres RS**
+  - 💰 R$ 850.000 | 📐 1068 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-esquina-no-reserva-das-aguas-em-torres-rs-1516096385
+
+- **Lindo terreno à venda no Condomínio Torres Ilhas Park na Praia da Guar**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-a-venda-no-condominio-torres-ilhas-park-na-praia-da-guarita-1515399169
+
+- **Lote 12x30m - Bairro São Brás | Torres RS | Perto de Colégio**
+  - 💰 R$ 75.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-12x30m-bairro-sao-bras-torres-rs-perto-de-colegio-1515344684
+
+- **Terreno en Torres-Itapeva, 300m2, Jardim monte carlo**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-en-torres-itapeva-300m2-jardim-monte-carlo-1515103929
+
+- **Terreno 300m2**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-300m2-1429640276
+
+- **Terreno 12x30 no São Brás-Torres/RS**
+  - 💰 R$ 68.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-12x30-no-sao-bras-torres-rs-1514644739
+
+- **Terreno na Vila São João ? Torres RS**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-vila-sao-joao-torres-rs-1516511016
+
+- **Terreno na Praia Paraíso**
+  - 💰 R$ 260.000 | 📐 720 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-paraiso-1514003203
+
+- **Terreno à venda no Morada das palmeiras em Torres/RS**
+  - 💰 R$ 330.000 | 📐 384 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-morada-das-palmeiras-em-torres-rs-1513988294
+
+- **Terreno no Condomínio Lake Itapeva  Torres/RS**
+  - 💰 R$ 230.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lake-itapeva-torres-rs-1452430697
+
+- **Terreno com 384,12m², no Lake Condomínio Resort, em Torres, RS**
+  - 💰 R$ 320.000 | 📐 384 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-384-12m-no-lake-condominio-resort-em-torres-rs-1513844281
+
+- **Terreno à venda Centro Torres/RS**
+  - 💰 R$ 2.500.000 | 📐 391 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-centro-torres-rs-1513842257
+
+- **Terreno à venda Centro Torres/RS**
+  - 💰 R$ 5.900.000 | 📐 17000 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-centro-torres-rs-1513842226
+
+- **Terreno à venda Centro Torres/RS**
+  - 💰 R$ 8.600.000 | 📐 6625 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-centro-torres-rs-1513842203
+
+- **TERRENO PRAIA ITAPEVA - TORRES RS**
+  - 💰 R$ 120.000 | 📐 262 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-itapeva-torres-rs-1513840090
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1513839190
+
+- **Excelente Terreno no Torres Ilhas Park para Comprar**
+  - 💰 R$ 990.000 | 📐 825 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-no-torres-ilhas-park-para-comprar-1513838731
+
+- **Terreno à venda Itapeva Torres/RS**
+  - 💰 R$ 281.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-itapeva-torres-rs-1513834755
+
+- **Vendo Terreno em Condomínio à beira mar em Torres, Rio Grande do Sul**
+  - 💰 R$ 340.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-em-condominio-a-beira-mar-em-torres-rio-grande-do-sul-1513832081
+
+- **Lote no Ocean Side em Torres RS**
+  - 💰 R$ 975.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-ocean-side-em-torres-rs-1513804442
+
+- **Lote Fundos Lago no Ocean Side em Torres RS**
+  - 💰 R$ 920.000 | 📐 555 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-ocean-side-em-torres-rs-1513685907
+
+- **Ótimo terreno de 360m² na Praia Paraíso em Torres/RS**
+  - 💰 R$ 92.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-de-360m-na-praia-paraiso-em-torres-rs-1513647949
+
+- **Terreno à venda no centro de Torres**
+  - 💰 R$ 1.300.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-centro-de-torres-1513393244
+
+- **Terreno à venda beira Mar na Praia Real Torres RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-beira-mar-na-praia-real-torres-rs-1513170069
+
+- **Amplo terreno aterrado e pronto para construir!**
+  - 💰 R$ 100.000 | 📐 444 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-terreno-aterrado-e-pronto-para-construir-1513105530
+
+- **Terreno de esquina na Vila São João em Torres RS**
+  - 💰 R$ 90.000 | 📐 363 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-na-vila-sao-joao-em-torres-rs-1513048778
+
+- **Terreno de 360 m² no Loteamento Pedro Bez Machado  Torres/RS**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-360-m-no-loteamento-pedro-bez-machado-torres-rs-1430857199
+
+- **Terreno venda em Torres Praia Tupinamba**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-em-torres-praia-tupinamba-1512639782
+
+- **Ótimo terreno de esquina na Praia Real em Torres.**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-de-esquina-na-praia-real-em-torres-1511604163
+
+- **2 amplos terrenos aterrados e prontos para construir.**
+  - 💰 R$ 230.000 | 📐 720 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/2-amplos-terrenos-aterrados-e-prontos-para-construir-1511603928
+
+- **Terreno comercial para venda com 394 metros quadrados em Igra sul - To**
+  - 💰 R$ 425.000 | 📐 394 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-para-venda-com-394-metros-quadrados-em-igra-sul-torres-rs-1511599868
+
+- **Terreno na Vila São João em Torres, próximo viaduto**
+  - 💰 R$ 200.000 | 📐 339 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-vila-sao-joao-em-torres-proximo-viaduto-1511375363
+
+- **Terreno à venda Ilhas Park Torres/RS**
+  - 💰 R$ 500.000 | 📐 538 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-ilhas-park-torres-rs-1511221508
+
+- **Terreno 200m2**
+  - 💰 R$ 115.000 | 📐 200 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-200m2-1360596524
+
+- **Terreno comercial em via de grande fluxo**
+  - 💰 R$ 425.000 | 📐 394 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-em-via-de-grande-fluxo-1510934786
+
+- **Vendo terreno no Campo Bonito em Torres**
+  - 💰 Não informado | 📐 531 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-no-campo-bonito-em-torres-1510751383
+
+- **Terreno 430m2**
+  - 💰 R$ 490.000 | 📐 429 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-430m2-1409200029
+
+- **Terreno à venda em condomínio fechado | Itapeva, Torres - RS**
+  - 💰 R$ 359.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-itapeva-torres-rs-1510081734
+
+- **Terreno à venda no Condomínio Pedra Hiding Places em Torres/RS.**
+  - 💰 R$ 2.500.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-pedra-hiding-places-em-torres-rs-1509605993
+
+- **Terreno de Alto Padrão em Condomínio Exclusivo à Beira-Mar, Imperdível**
+  - 💰 R$ 790.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-alto-padrao-em-condominio-exclusivo-a-beira-mar-imperdivel-1394583463
+
+- **OPORTUNIDADE NA PRAIA - TORRES/RS / LITORAL GAÚCHO**
+  - 💰 R$ 65.000 | 📐 ? m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-na-praia-torres-rs-litoral-gaucho-1509298230
+
+- **Terreno Praia Real com escritura**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-real-com-escritura-1509123812
+
+- **Terreno em torres praia recreio**
+  - 💰 R$ 60.000 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-praia-recreio-1508695747
+
+- **Terreno 300m2 na Praia Real Torres**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-300m2-na-praia-real-torres-1278132176
+
+- **Vendo terreno no Campo Bonito em Torres**
+  - 💰 R$ 140.000 | 📐 535 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-no-campo-bonito-em-torres-1507983277
+
+- **Terreno praia de Santa Helena municipio de Torres**
+  - 💰 R$ 128.000 | 📐 300 m²
+  - 📍 Glória — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-de-santa-helena-municipio-de-torres-1507801976
+
+- **Oportunidade Única em TORRES - RS | Tipo: Terreno | Negociação: Leilão**
+  - 💰 R$ 355.000 | 📐 50 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-em-torres-rs-tipo-terreno-negociacao-leilao-situacao-imovel-1507543328
+
+- **Terreno à venda no Ocean Side, Itapeva (Torres), condomínio consolidad**
+  - 💰 R$ 960.000 | 📐 510 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-ocean-side-itapeva-torres-condominio-consolidado-a-beira-mar-1507246516
+
+- **Vendo terreno em Torres praia real 12x25**
+  - 💰 R$ 25.000 | 📐 ? m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-em-torres-praia-real-12x25-1507136048
+
+- **Terreno reserva das águas Torres - Esquina 628 m2**
+  - 💰 R$ 360 | 📐 628 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-reserva-das-aguas-torres-esquina-628-m2-1507037763
+
+- **TERRENO A VENDA EM TORRES AO LADO DA CÂMARA DE VEREADORES DE TORRES**
+  - 💰 R$ 1.550.000 | 📐 398 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-torres-ao-lado-da-camara-de-vereadores-de-torres-1506660067
+
+- **Terreno a Venda no Bairro Igra Sul em Torres**
+  - 💰 R$ 265.000 | 📐 244 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-igra-sul-em-torres-1506660079
+
+- **Terreno na Praia Itapeva Norte. Torres RS**
+  - 💰 R$ 70.000 | 📐 390 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-itapeva-norte-torres-rs-1506404850
+
+- **TERRENO - MORADA DAS PALMEIRAS - TORRES**
+  - 💰 R$ 420.000 | 📐 394 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-morada-das-palmeiras-torres-1503744714
+
+- **TERRENO 20 METROS DE FRENTE RUA CAXIAS DO SUL EM TORRES RS**
+  - 💰 R$ 660.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-20-metros-de-frente-rua-caxias-do-sul-em-torres-rs-1503743915
+
+- **Excelente Terreno no Torres Ilhas Park para Comprar**
+  - 💰 R$ 990.000 | 📐 825 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-no-torres-ilhas-park-para-comprar-1503743335
+
+- **LOTE 740 M2 CONDOMÍNIO RESERVA DAS ÁGUAS - TORRES RS**
+  - 💰 R$ 595.000 | 📐 739 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-740-m2-condominio-reserva-das-aguas-torres-rs-1503742953
+
+- **TERRENO PRAIA ITAPEVA - TORRES RS**
+  - 💰 R$ 120.000 | 📐 262 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-itapeva-torres-rs-1503742975
+
+- **TERRENO A VENDA BAIRRO CENTENÁRIO EM TORRES RS**
+  - 💰 R$ 330.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-bairro-centenario-em-torres-rs-1503742920
+
+- **LOTE NO PEDRA Hiding Place**
+  - 💰 R$ 3.200.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-pedra-hiding-place-1394667631
+
+- **OPORTUNIDADE!!!**
+  - 💰 R$ 230.000 | 📐 306 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-1503494075
+
+- **Lote no Condomínio Ocean Side**
+  - 💰 R$ 780.000 | 📐 400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ocean-side-1394550199
+
+- **PASSO DE TORRES - Terreno Padrão - PASSO DE TORRES**
+  - 💰 R$ 288.000 | 📐 400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/passo-de-torres-terreno-padrao-passo-de-torres-1502454386
+
+- **Terreno à venda Condomínio Reserva das Águas Torres/RS**
+  - 💰 R$ 378.000 | 📐 609 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-condominio-reserva-das-aguas-torres-rs-1502431553
+
+- **Lindo terreno de esquina a 50 metros do mar na Praia Paraíso em Torres**
+  - 💰 R$ 320.000 | 📐 325 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-de-esquina-a-50-metros-do-mar-na-praia-paraiso-em-torres-rs-1499341027
+
+- **Terreno na Praia Paraíso**
+  - 💰 R$ 180.000 | 📐 444 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-paraiso-1497774253
+
+- **Terreno com 654 m² por R$ 990.000 a beira mar - Lagoa Jardim Itapeva -**
+  - 💰 R$ 990.000 | 📐 654 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-654-m-por-r-990-000-a-beira-mar-lagoa-jardim-itapeva-torres-rs-1497020219
+
+- **Terreno no loteamento Pedro Benz Torres RS**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-pedro-benz-torres-rs-1496591756
+
+- **Terreno à venda no Condomínio Lake Resort na praia da Itapeva em Torre**
+  - 💰 R$ 380.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-lake-resort-na-praia-da-itapeva-em-torres-rs-1496502618
+
+- **Terreno fundos lago à venda no condomínio Lake em Torres/RS.**
+  - 💰 R$ 432.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-a-venda-no-condominio-lake-em-torres-rs-1494136018
+
+- **Terrenos Venda Torres RS Praia Paraíso**
+  - 💰 R$ 440.000 | 📐 1368 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-venda-torres-rs-praia-paraiso-1491446747
+
+- **Raro terreno a venda próximo a Lagoa do Violão.**
+  - 💰 R$ 480.000 | 📐 346 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/raro-terreno-a-venda-proximo-a-lagoa-do-violao-1490992057
+
+- **Terreno a venda Praia Paraiso Torres**
+  - 💰 R$ 138.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-paraiso-torres-1490776517
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 487.000 | 📐 428 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1490371264
+
+- **Área Rural com Casa no Campo Bonito Torres RS**
+  - 💰 R$ 1.800.000 | 📐 170 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-rural-com-casa-no-campo-bonito-torres-rs-1490222776
+
+- **Terreno em Condomínio em Torres | Bairro Engenho Velho REF: 4333**
+  - 💰 R$ 420.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-em-torres-bairro-engenho-velho-ref-4333-1489543862
+
+- **Terreno fundos lago no Condomínio Ilhas Park, Torres RS**
+  - 💰 R$ 530.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-ilhas-park-torres-rs-1488844013
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 313.200 | 📐 474 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1488559102
+
+- **Terreno à venda Jardim Monte Carlo Torres/RS**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-jardim-monte-carlo-torres-rs-1487794291
+
+- **Terreno à venda, 3000 m² por R$ 450.000,00 - Faxinal - Torres/RS**
+  - 💰 R$ 450.000 | 📐 3000 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-3000-m-por-r-450-000-00-faxinal-torres-rs-1487646024
+
+- **Lote Ilhas Park Praia da Cal Torres RS**
+  - 💰 R$ 784.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-ilhas-park-praia-da-cal-torres-rs-1485842137
+
+- **Terreno à venda em Torres, Morada das Palmeiras, 330m²**
+  - 💰 R$ 235.000 | 📐 330 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-torres-morada-das-palmeiras-330m-1485002833
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 1.553.000 | 📐 517 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1484848189
+
+- **Terreno Escriturado na Praia Real Torres RS**
+  - 💰 R$ 80.000 | 📐 314 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-escriturado-na-praia-real-torres-rs-1484440806
+
+- **Terreno em Centro**
+  - 💰 R$ 5.900.000 | 📐 17001 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1483719334
+
+- **Terreno venda Torres RS 60 metros do mar**
+  - 💰 R$ 132.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-torres-rs-60-metros-do-mar-1298005787
+
+- **Terreno de esquina a venda, próximo a praia.**
+  - 💰 R$ 165.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-a-venda-proximo-a-praia-1475326829
+
+- **Lote a venda Reserva das Águas Torres**
+  - 💰 R$ 330.000 | 📐 423 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-reserva-das-aguas-torres-1311952254
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 1.553.000 | 📐 517 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481388258
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 4.003.800 | 📐 1346 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481388255
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 807.000 | 📐 336 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481387448
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 4.038.000 | 📐 1345 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481387429
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 1.306.000 | 📐 467 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481382761
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 2.344.000 | 📐 517 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481382757
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 807.000 | 📐 336 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481377998
+
+- **Terreno em Condomínio à venda RS-407, RS 407 - Maquiné**
+  - 💰 R$ 1.553.000 | 📐 517 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rs-407-rs-407-maquine-1481378006
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1480389540
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1480389522
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1480389560
+
+- **Ótimo terreno em condomínio fechado no Ilhas Park em Torres/RS**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-em-condominio-fechado-no-ilhas-park-em-torres-rs-1478656147
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 378.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1478475563
+
+- **Terreno entre o Mar e a Lagoa  18m de Frente e Posição Solar Leste na **
+  - 💰 R$ 890.000 | 📐 470 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-entre-o-mar-e-a-lagoa-18m-de-frente-e-posicao-solar-leste-na-praia-da-cal-1478228243
+
+- **Terreno no Condomínio Reserva das Águas**
+  - 💰 R$ 290.000 | 📐 499 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-1477082920
+
+- **Terreno à venda em condomínio fechado | Itapeva, Torres - RS**
+  - 💰 R$ 260.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-itapeva-torres-rs-1475211141
+
+- **Terreno no Reserva das Águas Torres RS**
+  - 💰 R$ 550.000 | 📐 566 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1474896822
+
+- **Terreno no Reserva das Águas Torres RS**
+  - 💰 R$ 350.000 | 📐 533 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1474894535
+
+- **Terreno em Torres Praia Real Escriturado padrao 300m2**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-praia-real-escriturado-padrao-300m2-1462349123
+
+- **Terreno Praia Real com escritura Torres 300m2**
+  - 💰 R$ 45.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-real-com-escritura-torres-300m2-1413618934
+
+- **Terreno Beira Mar  Praia Real Escriturado parcelado**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-beira-mar-praia-real-escriturado-parcelado-1462351829
+
+- **Terreno na Beira Mar Torres Praia Real Parcela Direto com Proprietário**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-beira-mar-torres-praia-real-parcela-direto-com-proprietario-1248810684
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS.**
+  - 💰 R$ 435.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1472798447
+
+- **TERRENO ESQUINA 50 METROS DO MAR**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-esquina-50-metros-do-mar-1470650219
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 292.000 | 📐 428 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1470112790
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 595.000 | 📐 430 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1469870878
+
+- **Terreno à venda em condomínio fechado | Itapeva, Torres - RS**
+  - 💰 R$ 379.000 | 📐 378 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-itapeva-torres-rs-1469870683
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 595.000 | 📐 429 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1469868290
+
+- **Terreno à venda em condomínio fechado | Itapeva, Torres - RS**
+  - 💰 R$ 290.000 | 📐 402 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-itapeva-torres-rs-1469232939
+
+- **Imóvel para venda com 1800 metros quadrados em Vila São João - Torres **
+  - 💰 R$ 440.000 | 📐 1800 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-1800-metros-quadrados-em-vila-sao-joao-torres-rs-1468194397
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1467372843
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1466893503
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1466891177
+
+- **Excelente terreno na Praia do Cal**
+  - 💰 R$ 1.000.000 | 📐 587 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-na-praia-do-cal-1466158126
+
+- **Terreno em Torres na Praia real 300m2 com escritura pública**
+  - 💰 R$ 40.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-na-praia-real-300m2-com-escritura-publica-1242664198
+
+- **Terreno no Reserva das Águas em Torres RS**
+  - 💰 R$ 499.000 | 📐 850 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1464462446
+
+- **Terreno no comercial em Torres RS**
+  - 💰 R$ 1.220.000 | 📐 425 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-comercial-em-torres-rs-1464278091
+
+- **Ótimo terreno no condomínio Reserva das Águas condições que só aqui na**
+  - 💰 R$ 550.000 | 📐 433 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-no-condominio-reserva-das-aguas-condicoes-que-so-aqui-na-nossa-cas-1464195286
+
+- **Terreno no Ilhas Park em Torres RS**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-ilhas-park-em-torres-rs-1463375936
+
+- **terreno a venda em torres morada das palmeiras**
+  - 💰 R$ 318.000 | 📐 378 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-torres-morada-das-palmeiras-1461082017
+
+- **Excelente Terreno no Torres Ilhas Park para Comprar**
+  - 💰 R$ 990.000 | 📐 826 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-no-torres-ilhas-park-para-comprar-1461067128
+
+- **Terreno em Centro**
+  - 💰 R$ 8.600.000 | 📐 6626 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1461066852
+
+- **Terreno em Centro**
+  - 💰 R$ 2.500.000 | 📐 392 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-centro-1461065222
+
+- **Terrenio de Esquina**
+  - 💰 R$ 85.000 | 📐 347 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenio-de-esquina-1460741417
+
+- **Terreno no Pedro Benz Vila São João Torres RS**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-pedro-benz-vila-sao-joao-torres-rs-1460442209
+
+- **Excelente terreno na Praia de Real apenas 100 metros do mar**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-na-praia-de-real-apenas-100-metros-do-mar-1460184675
+
+- **Terreno no condomínio Ilhas Park na praia de Torres/RS.**
+  - 💰 R$ 720.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-na-praia-de-torres-rs-1300778367
+
+- **Ótimo terreno de frente para o leste em Torres/RS - Estuda-se carro co**
+  - 💰 R$ 99.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-de-frente-para-o-leste-em-torres-rs-estuda-se-carro-como-parte-de-pagament-1455168340
+
+- **Terreno no Morada das Palmeiras em Torres RS**
+  - 💰 R$ 340.000 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-morada-das-palmeiras-em-torres-rs-1454052429
+
+- **Lote fundos lago no Condomínio Ilhas Park em Torres RS**
+  - 💰 R$ 869.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-condominio-ilhas-park-em-torres-rs-1410934600
+
+- **Venda - Terrenos em Condomínio - São Jorge - Torres - RS**
+  - 💰 R$ 177.650 | 📐 200 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-terrenos-em-condominio-sao-jorge-torres-rs-1453113591
+
+- **Terreno a venda em EXCLUSIVIDADE EM TORRES**
+  - 💰 R$ 209.000 | 📐 200 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-exclusividade-em-torres-1453065361
+
+- **Terreno - Bairro Altos de Torres**
+  - 💰 R$ 289.680 | 📐 310 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-altos-de-torres-1451821403
+
+- **LANÇAMENTO EM TORRES**
+  - 💰 R$ 209.000 | 📐 250 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lancamento-em-torres-1451228308
+
+- **Terreno 480m² privativos, plano, em condomínio fechado a beira mar em **
+  - 💰 R$ 890.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-480m-privativos-plano-em-condominio-fechado-a-beira-mar-em-torres-1418224577
+
+- **Terreno 600m² privativos, beira mar, em condomínio fechado em Torres**
+  - 💰 R$ 1.850.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-600m-privativos-beira-mar-em-condominio-fechado-em-torres-1418224154
+
+- **Lote de luxo com 854 m² no Pedra Hiding Places**
+  - 💰 R$ 3.527.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-luxo-com-854-m-no-pedra-hiding-places-1411997119
+
+- **Terreno em condominio fechado de alto padrão á venda no Passo de Torre**
+  - 💰 R$ 345.623 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-de-alto-padrao-a-venda-no-passo-de-torres-sc-1448803316
+
+- **Terreno em condominio fechado de alto padrão á venda no Passo de Torre**
+  - 💰 R$ 392.766 | 📐 340 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-de-alto-padrao-a-venda-no-passo-de-torres-sc-1448795951
+
+- **Terreno à venda Praia Itapeva Torres/RS**
+  - 💰 R$ 150.000 | 📐 389 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-itapeva-torres-rs-1448519480
+
+- **Terreno à venda Estrela do Mar Torres/RS**
+  - 💰 R$ 120.000 | 📐 299 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-estrela-do-mar-torres-rs-1446561368
+
+- **Condomínio na praia de Itapeva em Torres**
+  - 💰 R$ 471.450 | 📐 10 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-na-praia-de-itapeva-em-torres-1443470126
+
+- **Terreno com 450 m² por R$ 1.130.000 - Ilhas Parque Pedra da Guarita -**
+  - 💰 R$ 1.130.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-450-m-por-r-1-130-000-ilhas-parque-pedra-da-guarita-1443204523
+
+- **Terreno em frente lago.**
+  - 💰 R$ 600.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-frente-lago-1443178624
+
+- **Terreno com 741 m² por R$ 420.000 - Engenho Velho - Torres/RS**
+  - 💰 R$ 420.000 | 📐 742 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-741-m-por-r-420-000-engenho-velho-torres-rs-1443163000
+
+- **Terreno para desfrutar segurança e lazer.**
+  - 💰 R$ 300.000 | 📐 436 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-desfrutar-seguranca-e-lazer-1443145681
+
+- **Terreno em Loteamento**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-loteamento-1443144592
+
+- **TERRENO PARTE ALTA EM CONDOMINIO**
+  - 💰 R$ 325.000 | 📐 464 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-parte-alta-em-condominio-1443143533
+
+- **Condomínio Ilhas Park**
+  - 💰 R$ 1.130.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-ilhas-park-1443143542
+
+- **Terreno no Ocean Side, vista para o mar**
+  - 💰 R$ 840.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-ocean-side-vista-para-o-mar-1443143508
+
+- **TERRENO CENTENÁRIO**
+  - 💰 R$ 270.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-centenario-1443143514
+
+- **TERRENO ILHAS PARK**
+  - 💰 R$ 410.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-ilhas-park-1443143372
+
+- **Terreno com grande potencial comercial, de esquina, sem benfeitorias,**
+  - 💰 R$ 2.500.000 | 📐 280 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-grande-potencial-comercial-de-esquina-sem-benfeitorias-1443143363
+
+- **Terreno com 654 m² por R$ 990.000 a beira mar - Lagoa Jardim Itapeva -**
+  - 💰 R$ 990.000 | 📐 654 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-654-m-por-r-990-000-a-beira-mar-lagoa-jardim-itapeva-torres-rs-1443143271
+
+- **TERRENO FRENTE LAGO COM BOX NA MARINA**
+  - 💰 R$ 390.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-lago-com-box-na-marina-1443143243
+
+- **Lote de luxo no Pedra Hiding Places em Torres**
+  - 💰 R$ 3.839.000 | 📐 1281 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-luxo-no-pedra-hiding-places-em-torres-1443116008
+
+- **Imóvel para venda tem 400 metros quadrados em Praia da Cal - Torres - **
+  - 💰 R$ 630.000 | 📐 400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-tem-400-metros-quadrados-em-praia-da-cal-torres-rs-1441196730
+
+- **Imóvel para venda com 245 metros quadrados em Igra sul - Torres - RS**
+  - 💰 R$ 260.000 | 📐 245 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-245-metros-quadrados-em-igra-sul-torres-rs-1441116482
+
+- **Imóvel para venda possui 360 metros quadrados em Vila São João - Torre**
+  - 💰 R$ 125.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-possui-360-metros-quadrados-em-vila-sao-joao-torres-rs-1437406195
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 455.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1437348722
+
+- **Terreno frente Leste no Condomínio Reserva das Águas em Torres-RS**
+  - 💰 R$ 264.000 | 📐 435 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-frente-leste-no-condominio-reserva-das-aguas-em-torres-rs-1435272240
+
+- **Imóvel para venda com 420 metros quadrados em Centenário - Torres - RS**
+  - 💰 R$ 410.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-com-420-metros-quadrados-em-centenario-torres-rs-1435269592
+
+- **Terreno na Vila São João em Torres RS**
+  - 💰 R$ 87.000 | 📐 396 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-vila-sao-joao-em-torres-rs-1434662434
+
+- **Terreno em condomínio fechado, diferenciado a beira lago em Torres RS **
+  - 💰 R$ 590.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-diferenciado-a-beira-lago-em-torres-rs-completa-i-1432954894
+
+- **Terreno na Avenida Castelo Branco em Torres RS**
+  - 💰 R$ 2.200.000 | 📐 1 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-avenida-castelo-branco-em-torres-rs-1432471068
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 495.000 | 📐 428 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1431897650
+
+- **Terreno em condomínio fechado beira lago com 615 m2 em Torres infra co**
+  - 💰 R$ 790.000 | 📐 615 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-beira-lago-com-615-m2-em-torres-infra-completa-de-1431466325
+
+- **Terreno em condomínio fechado Ocean Side**
+  - 💰 R$ 1.140.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-ocean-side-1426608045
+
+- **Terreno a venda em Torres em condomínio fechado**
+  - 💰 R$ 390.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-torres-em-condominio-fechado-1430062243
+
+- **Lindo terreno de esquina no Condomínio Reserva das Águas**
+  - 💰 R$ 395.000 | 📐 627 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-de-esquina-no-condominio-reserva-das-aguas-1426456199
+
+- **Terreno a venda no Reserva das Águas, Condomínio Fechado em Torres/RS**
+  - 💰 R$ 305.000 | 📐 436 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-reserva-das-aguas-condominio-fechado-em-torres-rs-1426464164
+
+- **Terreno em condomínio na beira mar na praia da guarita em Torres/RS.**
+  - 💰 R$ 3.527.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-na-beira-mar-na-praia-da-guarita-em-torres-rs-1299099695
+
+- **Área para venda no Igra Sul em Torres RS**
+  - 💰 R$ 975.000 | 📐 1716 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-para-venda-no-igra-sul-em-torres-rs-1429725769
+
+- **Terreno no Condomínio Reserva das Águas - Torres!**
+  - 💰 R$ 490.000 | 📐 428 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-torres-1429269753
+
+- **Terreno em Estrela do Mar**
+  - 💰 R$ 60.000 | 📐 324 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-estrela-do-mar-1428388634
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 600.000 | 📐 433 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1428116772
+
+- **Terreno à venda, 840 m² por R$ 720.000,00 - Torres - Torres/RS**
+  - 💰 R$ 720.000 | 📐 840 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-840-m-por-r-720-000-00-torres-torres-rs-1427163983
+
+- **Terreno no loteamento Morada das Palmeiras em Torres RS**
+  - 💰 R$ 380.000 | 📐 342 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-morada-das-palmeiras-em-torres-rs-1426610439
+
+- **Lote no condomínio Ilhas Park**
+  - 💰 R$ 600.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ilhas-park-1426608608
+
+- **Terreno em Torres, pronto para construir, localizado em um dos melhore**
+  - 💰 R$ 1.080.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-pronto-para-construir-localizado-em-um-dos-melhores-condomin-1426608383
+
+- **Terreno comercial**
+  - 💰 R$ 500.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-1426608236
+
+- **Ótimo terreno no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 950.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-no-condominio-ilhas-park-em-torres-rs-1426468234
+
+- **Terreno em condominio fechado em Torres/RS**
+  - 💰 R$ 1.500.000 | 📐 524 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1426467665
+
+- **Terreno à venda no Bairro Jardim Eldorado em Torres/RS**
+  - 💰 R$ 380.000 | 📐 500 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-jardim-eldorado-em-torres-rs-1426466622
+
+- **Terreno à venda em Condomínio Fechado em Torres!**
+  - 💰 R$ 949.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-em-torres-1426466725
+
+- **Excelente terreno em Condomínio de Luxo - Torres / RS**
+  - 💰 R$ 890.000 | 📐 510 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-em-condominio-de-luxo-torres-rs-1426465923
+
+- **Terreno de alto padrão em condomínio na praia de Torres!**
+  - 💰 R$ 949.000 | 📐 492 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-alto-padrao-em-condominio-na-praia-de-torres-1426465008
+
+- **Terreno à venda em condomínio fechado em Torres/RS**
+  - 💰 R$ 949.000 | 📐 406 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-em-torres-rs-1426464679
+
+- **Terreno no Condomínio Reserva das Águas**
+  - 💰 R$ 310.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-1426464360
+
+- **Terreno no Loteamento Morada das Palmeiras em Torres RS**
+  - 💰 R$ 380.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-morada-das-palmeiras-em-torres-rs-1426463977
+
+- **Terreno no Bairro Stan em Torres/RS**
+  - 💰 R$ 550.000 | 📐 418 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-stan-em-torres-rs-1426463936
+
+- **Terreno fundo lago no condomínio Ilhas Park na praia de Torres/RS**
+  - 💰 R$ 2.000.000 | 📐 720 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundo-lago-no-condominio-ilhas-park-na-praia-de-torres-rs-1426463397
+
+- **Terreno no Loteamento Morada das Palmeiras em Torres RS**
+  - 💰 R$ 380.000 | 📐 384 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-morada-das-palmeiras-em-torres-rs-1426463276
+
+- **Terreno no Reserva das Águas em Torres/RS.**
+  - 💰 R$ 400.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1426463191
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 420.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1426462872
+
+- **Terreno a venda**
+  - 💰 R$ 465.000 | 📐 399 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-1426462794
+
+- **Terreno de 540 m² no condomínio Reserva das Águas**
+  - 💰 R$ 710.000 | 📐 540 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-540-m-no-condominio-reserva-das-aguas-1426460328
+
+- **Terreno em condomínio fechado a beira mar em Torres/RS**
+  - 💰 R$ 890.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-a-beira-mar-em-torres-rs-1426460203
+
+- **Terreno amplo de 480 M² no condomínio Ocean Side em Torres**
+  - 💰 R$ 750.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-amplo-de-480-m-no-condominio-ocean-side-em-torres-1426459918
+
+- **Terreno em condomínio a beira mar na praia da Itapeva em Torres/RS**
+  - 💰 R$ 1.700.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-beira-mar-na-praia-da-itapeva-em-torres-rs-1426459355
+
+- **Terreno em condominio fechado em Torres/RS**
+  - 💰 R$ 280.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1426458877
+
+- **Terreno no Reserva das Águas em Torres/RS**
+  - 💰 R$ 650.000 | 📐 529 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1426458876
+
+- **Terreno em condomínio fechado Ocean Side**
+  - 💰 R$ 1.130.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-ocean-side-1426457789
+
+- **Terreno em condomínio fechado à venda Torres!**
+  - 💰 R$ 549.000 | 📐 367 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-a-venda-torres-1426457876
+
+- **Lote de condomínio em Torres/RS**
+  - 💰 R$ 350.000 | 📐 462 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-condominio-em-torres-rs-1426457071
+
+- **Terreno em condomínio fechado em Torres RS.**
+  - 💰 R$ 470.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1426456849
+
+- **Terreno de esquina no condomínio Reserva das Águas Torres/RS**
+  - 💰 R$ 650.000 | 📐 700 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-no-condominio-reserva-das-aguas-torres-rs-1426456745
+
+- **Terreno a venda no bairro Igra Sul em Torres/RS**
+  - 💰 R$ 260.000 | 📐 244 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-igra-sul-em-torres-rs-1426456721
+
+- **Terreno em condomínio fechado no Reserva das Águas em Torres/RS.**
+  - 💰 R$ 450.000 | 📐 412 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-no-reserva-das-aguas-em-torres-rs-1426456497
+
+- **Terreno no Condomínio Ocean Side em Torres/RS**
+  - 💰 R$ 890.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ocean-side-em-torres-rs-1426456340
+
+- **Terreno no Loteamento Morada das Palmeiras em Torres RS**
+  - 💰 R$ 380.000 | 📐 399 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-loteamento-morada-das-palmeiras-em-torres-rs-1426454660
+
+- **Terreno no condomínio Ilhas Park em Torres/RS.**
+  - 💰 R$ 1.300.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-em-torres-rs-1426454464
+
+- **Terreno em Torres na Praia da Cal em Torres/RS**
+  - 💰 R$ 650.000 | 📐 414 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-na-praia-da-cal-em-torres-rs-1426451992
+
+- **Terreno de Alto Padrão em condomínio ilhas Park localizado na cidade d**
+  - 💰 R$ 949.000 | 📐 466 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-alto-padrao-em-condominio-ilhas-park-localizado-na-cidade-de-torres-1426451680
+
+- **Terreno no Reserva das Águas**
+  - 💰 R$ 432.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-1391517149
+
+- **Excelente terreno de esquina no Reserva das Águas em Torres/RS**
+  - 💰 R$ 435.000 | 📐 515 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-de-esquina-no-reserva-das-aguas-em-torres-rs-1295934489
+
+- **Terreno no Condomínio Ocean Side em Itapeva Torres/RS**
+  - 💰 R$ 750.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ocean-side-em-itapeva-torres-rs-1302451449
+
+- **Terreno em condomínio fechado na Praia da Guarita em Torres/RS**
+  - 💰 R$ 1.080.000 | 📐 489 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-guarita-em-torres-rs-1404260389
+
+- **Terreno no condominio Lake em Torres/RS.**
+  - 💰 R$ 380.000 | 📐 402 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lake-em-torres-rs-1382943998
+
+- **Terreno em condomínio fechado em Torres RS.**
+  - 💰 R$ 460.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1090341533
+
+- **Lindo terreno fundo lago no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 810.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-fundo-lago-no-condominio-ilhas-park-em-torres-rs-1421197564
+
+- **Terreno fundos lago no condomínio LAKE em Torres/RS**
+  - 💰 R$ 290.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-lake-em-torres-rs-1390526783
+
+- **Terreno no Reserva das Águas em Torres/RS**
+  - 💰 R$ 459.000 | 📐 790 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1425165796
+
+- **Terreno de alto padrão no condomínio Ilhas Park na praia de Torres/RS.**
+  - 💰 R$ 700.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-alto-padrao-no-condominio-ilhas-park-na-praia-de-torres-rs-1348467795
+
+- **Terreno no Reserva das Águas em Torres/RS**
+  - 💰 R$ 415.000 | 📐 561 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1383980098
+
+- **Terreno em Condomínio à venda Rua Inácio Felisberto Magnus, Centenário**
+  - 💰 R$ 424.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-a-venda-rua-inacio-felisberto-magnus-centenario-torres-1424752701
+
+- **Terrenos unificados dentro do Torres Ilhas Park! Fundos lago!**
+  - 💰 R$ 2.000.000 | 📐 720 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-unificados-dentro-do-torres-ilhas-park-fundos-lago-1424528178
+
+- **Terreno com 720m² no Torres Ilhas Park**
+  - 💰 R$ 2.200.000 | 📐 720 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-720m-no-torres-ilhas-park-1418228226
+
+- **Ótimo terreno no condomínio Lake na praia Itapeva em Torres/RS**
+  - 💰 R$ 300.000 | 📐 369 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-no-condominio-lake-na-praia-itapeva-em-torres-rs-1416961764
+
+- **Terreno Comercial com localização privilegiada no Bairro Engenho Velho**
+  - 💰 R$ 7.900.000 | 📐 6625 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-com-localizacao-privilegiada-no-bairro-engenho-velho-em-torres-1415197977
+
+- **Terreno de alto padrão no condomínio Ilhas Park na praia de Torres/RS.**
+  - 💰 R$ 650.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-alto-padrao-no-condominio-ilhas-park-na-praia-de-torres-rs-1308354082
+
+- **Terreno a venda no condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 480.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-reserva-das-aguas-em-torres-rs-917313273
+
+- **Lote no Reserva das Águas Torres em Torres RS**
+  - 💰 R$ 390.000 | 📐 373 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-torres-em-torres-rs-1413470840
+
+- **Terreno no Reserva das Águas em Torres RS**
+  - 💰 R$ 600.000 | 📐 740 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1411997893
+
+- **Lote de luxo com 854 m² no Pedra Hiding Places em Torres**
+  - 💰 R$ 3.356.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-luxo-com-854-m-no-pedra-hiding-places-em-torres-1411997361
+
+- **Lote fundos lago em condomínio Torres RS**
+  - 💰 R$ 635.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-em-condominio-torres-rs-1411997367
+
+- **Terreno no Reserva das Águas em Torres RS**
+  - 💰 R$ 637.471 | 📐 1039 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1411997203
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 600.000 | 📐 663 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1411997192
+
+- **Lote fundos lago no Reserva das Águas em Torres RS**
+  - 💰 R$ 490.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-no-reserva-das-aguas-em-torres-rs-1411997163
+
+- **Terreno em Torres RS**
+  - 💰 R$ 1.100.000 | 📐 652 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-1411997115
+
+- **Reserva das Águas Torres RS**
+  - 💰 R$ 635.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/reserva-das-aguas-torres-rs-1411997122
+
+- **Lote de esquina no Ocean Side em Torres RS**
+  - 💰 R$ 810.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-esquina-no-ocean-side-em-torres-rs-1410934916
+
+- **Terreno no Centenário Torres RS**
+  - 💰 R$ 220.000 | 📐 336 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-centenario-torres-rs-1410934864
+
+- **Terreno na Praia da Cal Torres RS**
+  - 💰 R$ 918.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-da-cal-torres-rs-1410934690
+
+- **Terreno a venda Torres RS Praia Paraíso**
+  - 💰 R$ 466.400 | 📐 1440 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-torres-rs-praia-paraiso-1410234300
+
+- **Terreno no Ilhas Park na Guarita em Torres/RS**
+  - 💰 R$ 905.000 | 📐 465 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-ilhas-park-na-guarita-em-torres-rs-1407970857
+
+- **Terreno em condomínio fechado na Praia da Guarita em Torres/RS**
+  - 💰 R$ 1.080.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-da-guarita-em-torres-rs-1405230072
+
+- **Terreno fundos para o lago no Reserva das Águas em Torres/RS**
+  - 💰 R$ 600.000 | 📐 350 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-para-o-lago-no-reserva-das-aguas-em-torres-rs-1404259493
+
+- **Terreno com 854,40 m² na beira mar na praia da guarita em Torres/RS.**
+  - 💰 R$ 3.356.000 | 📐 854 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-854-40-m-na-beira-mar-na-praia-da-guarita-em-torres-rs-1401153679
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 850.000 | 📐 1068 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1400441671
+
+- **Terreno R. Gal Flôres da Cunha - Torres, 330,40m²**
+  - 💰 R$ 200.000 | 📐 330 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-r-gal-flores-da-cunha-torres-330-40m-1397423144
+
+- **Terreno na Praia Real**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-real-1381169737
+
+- **Ótimo terreno localizado no condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 330.000 | 📐 428 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-localizado-no-condominio-reserva-das-aguas-em-torres-rs-1374804028
+
+- **Terreno de esquina venda Centro Torres**
+  - 💰 R$ 900.000 | 📐 400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-venda-centro-torres-1374240567
+
+- **Terreno na Praia Real**
+  - 💰 R$ 95.000 | 📐 347 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-real-1374107954
+
+- **Terreno no Reserva das Águas à venda somente na Nossa Casa Imóveis**
+  - 💰 R$ 350.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-a-venda-somente-na-nossa-casa-imoveis-1373155838
+
+- **Lote no condomínio mais exclusivo de Torres - Pronto para construir**
+  - 💰 R$ 399.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-mais-exclusivo-de-torres-pronto-para-construir-1372050238
+
+- **Terreno no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 1.365.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-em-torres-rs-1371636926
+
+- **Terreno no condomínio Ilhas Park Torres/RS**
+  - 💰 R$ 1.312.500 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-torres-rs-1371636913
+
+- **Terreno no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 840.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-em-torres-rs-1371636907
+
+- **TERRENO PARA VENDA COND ILHAS PARK PEDRAS GUARITA**
+  - 💰 R$ 390.000 | 📐 875 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-para-venda-cond-ilhas-park-pedras-guarita-1371075910
+
+- **Terreno venda Praia da Cal Torres**
+  - 💰 R$ 975.200 | 📐 798 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-praia-da-cal-torres-1369998186
+
+- **Terreno no condomínio Torres Ilhas Park Pedra da Guarita em Torres/RS**
+  - 💰 R$ 3.490.000 | 📐 945 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-torres-ilhas-park-pedra-da-guarita-em-torres-rs-1369268781
+
+- **Terreno à venda no Condomínio Lake em Torres/RS**
+  - 💰 R$ 397.600 | 📐 394 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-lake-em-torres-rs-1368220626
+
+- **Amplo terreno venda Centro Torres**
+  - 💰 R$ 2.600.000 | 📐 816 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-terreno-venda-centro-torres-1366038545
+
+- **Terreno em Torres**
+  - 💰 R$ 2.950.000 | 📐 1802 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-1365498289
+
+- **Oportunidade no Reserva das Águas  Lote Pronto para Construir**
+  - 💰 R$ 290.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-no-reserva-das-aguas-lote-pronto-para-construir-1359075222
+
+- **Oportunidade no Ocean Side  Lote Pronto para Construir**
+  - 💰 R$ 600.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-no-ocean-side-lote-pronto-para-construir-1359073604
+
+- **Terreno de Condominio fechado com infraestrutura completa em Torres - **
+  - 💰 R$ 290.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-condominio-fechado-com-infraestrutura-completa-em-torres-rs-1359072890
+
+- **Terreno no Condomínio Reserva das Águas em Torres/RS.**
+  - 💰 R$ 290.000 | 📐 406 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1358026783
+
+- **Terreno venda Praia da Cal Ilhas Park Torres**
+  - 💰 R$ 495.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-praia-da-cal-ilhas-park-torres-1351908647
+
+- **Lote esquina venda Praia Real Torres**
+  - 💰 R$ 93.500 | 📐 348 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-esquina-venda-praia-real-torres-1348671022
+
+- **Lote a venda Ocean Side Torres RS**
+  - 💰 R$ 700.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-ocean-side-torres-rs-1340331934
+
+- **Terreno na Praia Paraíso**
+  - 💰 R$ 160.000 | 📐 456 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-paraiso-1339796393
+
+- **Terreno fundos lago a venda no condomínio Lake em Torres/RS.**
+  - 💰 R$ 300.000 | 📐 369 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-a-venda-no-condominio-lake-em-torres-rs-1334660310
+
+- **Terreno a venda no condomínio Ocean Side em Torres/RS.**
+  - 💰 R$ 756.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-ocean-side-em-torres-rs-1332804381
+
+- **Terreno venda Centro Torres.**
+  - 💰 R$ 5.000.000 | 📐 440 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-centro-torres-1329897198
+
+- **Terreno no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 900.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-em-torres-rs-1327223897
+
+- **Terreno no condomínio Torres Ilhas Park Pedra da Guarita em Torres/RS**
+  - 💰 R$ 1.190.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-torres-ilhas-park-pedra-da-guarita-em-torres-rs-1321159464
+
+- **Terreno no condomínio Torres Ilhas Park Pedra da Guarita em Torres/RS**
+  - 💰 R$ 1.500.000 | 📐 484 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-torres-ilhas-park-pedra-da-guarita-em-torres-rs-1321157590
+
+- **Terreno no condomínio Torres Ilhas Park Pedra da Guarita em Torres/RS**
+  - 💰 R$ 1.700.000 | 📐 452 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-torres-ilhas-park-pedra-da-guarita-em-torres-rs-1321154627
+
+- **Terreno no condomínio Torres Ilhas Park Pedra da Guarita em Torres/RS**
+  - 💰 R$ 1.190.000 | 📐 405 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-torres-ilhas-park-pedra-da-guarita-em-torres-rs-1321154159
+
+- **Ótimo terreno na Praia Real Próximo ao mar**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-na-praia-real-proximo-ao-mar-1318225935
+
+- **Oportunidade Única: Terrenos Amplos com Potencial para Construção**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-unica-terrenos-amplos-com-potencial-para-construcao-1318225872
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 599.000 | 📐 749 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1317806085
+
+- **Terreno fundos lago no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 990.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-ilhas-park-em-torres-rs-1317583220
+
+- **Dois terrenos com 360m² cada**
+  - 💰 R$ 264.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-terrenos-com-360m-cada-1317024926
+
+- **Terreno a venda Reserva das Águas Torres**
+  - 💰 R$ 380.000 | 📐 423 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-reserva-das-aguas-torres-1311950773
+
+- **Terreno no Reserva das Águas em Torres/RS**
+  - 💰 R$ 432.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1311884396
+
+- **Terreno no Reserva das Águas Torres/RS**
+  - 💰 R$ 920.000 | 📐 676 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1308354073
+
+- **Terreno no condomínio Ilhas Park Pedra Torres/RS**
+  - 💰 R$ 1.312.500 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-ilhas-park-pedra-torres-rs-1308214625
+
+- **Terreno de esquina a venda no condomínio Ilhas Park em Torres/RS**
+  - 💰 R$ 1.305.000 | 📐 769 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-a-venda-no-condominio-ilhas-park-em-torres-rs-1304789156
+
+- **Terreno com 420m² em condomínio Reserva das Aguas em Torres/RS**
+  - 💰 R$ 550.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-420m-em-condominio-reserva-das-aguas-em-torres-rs-1304272483
+
+- **Terreno no Reserva das Águas em Torres/RS.**
+  - 💰 R$ 590.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-em-torres-rs-1302758559
+
+- **Terreno com 420 m² no Reserva das Águas em Torres/RS.**
+  - 💰 R$ 460.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-420-m-no-reserva-das-aguas-em-torres-rs-1299396414
+
+- **Terreno em condomínio fechado na praia em Torres/RS**
+  - 💰 R$ 490.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-na-praia-em-torres-rs-1299100717
+
+- **Terreno em condomínio fechado em Torres/RS**
+  - 💰 R$ 1.000.000 | 📐 1237 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1299099569
+
+- **Terreno em condomínio na beira mar na praia da guarita em Torres/RS.**
+  - 💰 R$ 3.839.000 | 📐 1 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-na-beira-mar-na-praia-da-guarita-em-torres-rs-1299099416
+
+- **Terreno em condomínio fechado em Torres/RS**
+  - 💰 R$ 900.000 | 📐 524 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-em-torres-rs-1299099409
+
+- **Terreno no Condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 1.200.000 | 📐 840 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1297291716
+
+- **Terreno à Venda no reserva das águas em TORRES/RS**
+  - 💰 R$ 459.000 | 📐 790 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-reserva-das-aguas-em-torres-rs-1295934946
+
+- **Terreno a venda no Condominio LAKE RESORT em Torres RS, parcelamento d**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-lake-resort-em-torres-rs-parcelamento-direto-com-proprietar-1288440631
+
+- **Terreno com 423m2  no condomínio Ilhas Park em Torres - RS**
+  - 💰 R$ 600.000 | 📐 423 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-423m2-no-condominio-ilhas-park-em-torres-rs-1288171039
+
+- **Terrenos à venda no condominio Ocean Side em  Itapeva - Torres RS**
+  - 💰 R$ 850.000 | 📐 500 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-a-venda-no-condominio-ocean-side-em-itapeva-torres-rs-1283434106
+
+- **Lote fundos lago venda Reserva das Águas Torres**
+  - 💰 R$ 424.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-fundos-lago-venda-reserva-das-aguas-torres-1275786112
+
+- **Terreno perto mar venda Praia Paraíso Torres**
+  - 💰 R$ 310.000 | 📐 390 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-perto-mar-venda-praia-paraiso-torres-1265596011
+
+- **Terreno em Torres RS**
+  - 💰 R$ 275.000 | 📐 462 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-1250439364
+
+- **Terreno em Torres na Praia real 300m2 escriturado e financiamento dire**
+  - 💰 R$ 40.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-na-praia-real-300m2-escriturado-e-financiamento-direto-1242665528
+
+- **Terreno venda Torres condomínio a beira mar**
+  - 💰 R$ 780.000 | 📐 540 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-torres-condominio-a-beira-mar-1238349701
+
+- **Terreno venda Torres Condomínio Ocean Side**
+  - 💰 R$ 950.000 | 📐 540 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-torres-condominio-ocean-side-1237658304
+
+- **Terreno no bairro Salinas**
+  - 💰 R$ 315.000 | 📐 423 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-salinas-1221033862
+
+- **Terreno a venda na Praia Paraiso em Torres**
+  - 💰 R$ 220.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-na-praia-paraiso-em-torres-1201032005
+
+- **Terreno de esquina na Praia Paraiso em Torres/ RS**
+  - 💰 R$ 149.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-na-praia-paraiso-em-torres-rs-1201027690
+
+- **Terreno venda na Praia Paraiso Torres**
+  - 💰 R$ 200.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-na-praia-paraiso-torres-1201027341
+
+- **Terreno em Condominio - Bairro Reserva das Aguas**
+  - 💰 R$ 380.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-reserva-das-aguas-1193826076
+
+- **Terreno em Condominio - Bairro Praia da Cal**
+  - 💰 R$ 490.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-bairro-praia-da-cal-1193631913
+
+- **Terreno em Condomínio**
+  - 💰 R$ 250.000 | 📐 430 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-986216093
+
+- **RARIDADE - Lote a poucos metros do mar em condomínio fechado com infra**
+  - 💰 R$ 590.000 | 📐 520 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/raridade-lote-a-poucos-metros-do-mar-em-condominio-fechado-com-infra-completa-e-seguranc-1167931347
+
+- **Terreno em Condomínio**
+  - 💰 R$ 400.000 | 📐 380 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-986214077
+
+- **Terreno Ocean Side venda Torres**
+  - 💰 R$ 945.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-ocean-side-venda-torres-1149124147
+
+- **Terreno em Condomínio**
+  - 💰 R$ 600.000 | 📐 510 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-986216119
+
+- **Terreno na quadra do Mar em Torres**
+  - 💰 R$ 160.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-quadra-do-mar-em-torres-1159333076
+
+- **Lote no Reserva das Águas com o melhor valor do mercado - Pronto para **
+  - 💰 R$ 274.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-com-o-melhor-valor-do-mercado-pronto-para-construir-infra-co-1115726323
+
+- **Terreno - Bairro Vila São João**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-bairro-vila-sao-joao-1093275568
+
+- **Terreno em Torres na parte alta da cidade**
+  - 💰 R$ 230.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-na-parte-alta-da-cidade-935603570
+
+- **Terreno venda 200 metros da praia Praia Azul**
+  - 💰 R$ 132.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-200-metros-da-praia-praia-azul-1013989984
+
+- **Terrenos Ilhas Park venda Torres RS fundos lago**
+  - 💰 R$ 2.200.000 | 📐 780 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terrenos-ilhas-park-venda-torres-rs-fundos-lago-935603764
+
+- **Terreno a venda no condomínio Ocean Side em Torres**
+  - 💰 R$ 657.200 | 📐 540 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-ocean-side-em-torres-1106247898
+
+- **Terreno em Torres RS**
+  - 💰 R$ 90.000 | 📐 323 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-1049887457
+
+- **Terreno a venda na Praia da Cal em Torres**
+  - 💰 R$ 670.000 | 📐 414 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-na-praia-da-cal-em-torres-1094008799
+
+- **Terreno venda Condomínio Fechado Ocean Side**
+  - 💰 R$ 780.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-condominio-fechado-ocean-side-1057924639
+
+- **Terreno no bairro Pirataba**
+  - 💰 R$ 1.800.000 | 📐 1800 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-pirataba-1026180679
+
+- **Lote venda Ocean Side Praia Da Itapeva Torres**
+  - 💰 R$ 1.700.000 | 📐 600 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-venda-ocean-side-praia-da-itapeva-torres-1149840144
+
+- **Terreno aterrado venda em Torres**
+  - 💰 R$ 480.000 | 📐 462 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-aterrado-venda-em-torres-1111391939
+
+- **Terreno no condomínio Reserva das Águas em Torres/RS.**
+  - 💰 R$ 450.000 | 📐 390 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-reserva-das-aguas-em-torres-rs-1076557223
+
+- **Terreno no bairro Praia Paraiso**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-bairro-praia-paraiso-1026273800
+
+- **Oportunidade de terreno no condomínio Reserva das águas**
+  - 💰 R$ 299.000 | 📐 495 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/oportunidade-de-terreno-no-condominio-reserva-das-aguas-1133398390
+
+- **Lote no condomínio Ilhas Park**
+  - 💰 R$ 550.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-condominio-ilhas-park-1133391171
+
+- **Melhor valor do mercado - Lote no condomínio fechado Reserva das Águas**
+  - 💰 R$ 269.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/melhor-valor-do-mercado-lote-no-condominio-fechado-reserva-das-aguas-1021736768
+
+- **Melhor oportunidade no Reserva das Águas**
+  - 💰 R$ 260.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/melhor-oportunidade-no-reserva-das-aguas-1111362357
+
+- **Terreno no Ilhas Park**
+  - 💰 R$ 400.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-ilhas-park-1111324551
+
+- **Melhor oportunidade no Ocean Side**
+  - 💰 R$ 540.000 | 📐 450 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/melhor-oportunidade-no-ocean-side-1111321469
+
