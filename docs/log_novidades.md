@@ -135809,3 +135809,71 @@
 
 ## ✅ Sem novidades — 21/07/2026 16:26
 
+
+## 🆕 13 novos anúncios — 21/07/2026 22:13
+
+- **Chácara mobiliada no Rio Jordão**
+  - 💰 R$ 590.000 | 📐 1300 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-mobiliada-no-rio-jordao-1519884907
+
+- **Terreno Residencial e Comercial no Bairro Laranjinna - Criciúma/SC**
+  - 💰 R$ 650.000 | 📐 1016 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-e-comercial-no-bairro-laranjinna-criciuma-sc-1519865563
+
+- **Sítio / Fazenda com 30 hectares em Treviso - eucalipto, açude e rio**
+  - 💰 R$ 1.900.000 | 📐 300000 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-fazenda-com-30-hectares-em-treviso-eucalipto-acude-e-rio-1519906327
+
+- **Terrenos a venda com entrada de 5.745,00 em Sombrio - SC**
+  - 💰 R$ 5.745 | 📐 335 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-com-entrada-de-5-745-00-em-sombrio-sc-1519892972
+
+- **Terreno a venda com entrada de 15.000,00 em Balneário Gaivota - SC**
+  - 💰 R$ 15.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-entrada-de-15-000-00-em-balneario-gaivota-sc-1519888328
+
+- **Terreno de esquina a venda em Balneário Gaivota - SC**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-em-balneario-gaivota-sc-1519883839
+
+- **Terreno a venda com excelente valor em Balneário Gaivota - SC**
+  - 💰 R$ 49.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-excelente-valor-em-balneario-gaivota-sc-1519879066
+
+- **Terrenos de esquina a venda em Balneário Gaivota - SC**
+  - 💰 R$ 69.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-de-esquina-a-venda-em-balneario-gaivota-sc-1519877389
+
+- **Terreno em Condomínio de alto padrão, Montebello, Cocal do Sul/SC**
+  - 💰 R$ 546.000 | 📐 651 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-de-alto-padrao-montebello-cocal-do-sul-sc-1519864294
+
+- **Terreno em Condomínio de alto padrão, Montebello, Cocal do Sul/SC**
+  - 💰 R$ 515.000 | 📐 608 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-de-alto-padrao-montebello-cocal-do-sul-sc-1519864265
+
+- **Terreno a venda em Balneario Gaivota - SC**
+  - 💰 R$ 38.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-balneario-gaivota-sc-1519863215
+
+- **LOTE EM CAMACHO, COM 600 m² ESCRITURADO, IPTU PAGO**
+  - 💰 R$ 75.000 | 📐 600 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-camacho-com-600-m-escriturado-iptu-pago-1519787483
+
+- **Terreno a venda no praia Belo Horizonte em Balneario Gaivota - SC**
+  - 💰 R$ 22.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-praia-belo-horizonte-em-balneario-gaivota-sc-1519864469
+
