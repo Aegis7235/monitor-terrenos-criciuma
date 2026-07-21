@@ -135768,3 +135768,41 @@
   - 📍 Mato Alto — Araranguá
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-eldorado-proximo-ao-hospital-da-unimed-1519698150
 
+
+## 🆕 7 novos anúncios — 21/07/2026 11:16
+
+- **Terreno (Em rua) à Venda, 288m² - Bairro ZONA SUL em Balneário Rincão**
+  - 💰 R$ 259.000 | 📐 288 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-rua-a-venda-288m-bairro-zona-sul-em-balneario-rincao-1519711081
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.599.440 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1519732005
+
+- **Lote em Rua Antônio Dal Farra - Vila São Jorge - Siderópolis/SC**
+  - 💰 R$ 319.060 | 📐 4008 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1519731888
+
+- **Terreno no Jardim América SC**
+  - 💰 R$ 220.000 | 📐 211 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-america-sc-1519711158
+
+- **Terreno no Jardim América SC**
+  - 💰 R$ 220.000 | 📐 213 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-america-sc-1519710857
+
+- **Terreno no Jardim América SC**
+  - 💰 R$ 220.000 | 📐 211 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-america-sc-1519710717
+
+- **Terreno à venda, 306 m² por R$ 180.000 - Proximo Unimed.**
+  - 💰 R$ 205.000 | 📐 306 m²
+  - 📍 Alto Feliz — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-306-m-por-r-180-000-proximo-unimed-1455938094
+
