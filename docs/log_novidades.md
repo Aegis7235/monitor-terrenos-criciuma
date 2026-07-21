@@ -135750,3 +135750,21 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-fechado-de-alto-padrao-a-venda-no-passo-de-torres-sc-1448795959
 
+
+## 🆕 3 novos anúncios — 21/07/2026 05:59
+
+- **Barbada terreno Rio Maina**
+  - 💰 R$ 230.000 | 📐 490 m²
+  - 📍 Vila Isabel — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-rio-maina-1519627165
+
+- **Lote em Rua Antônio Dal Farra - Vila São Jorge - Siderópolis/SC**
+  - 💰 R$ 319.800 | 📐 4008 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1519602170
+
+- **Terreno no loteamento Jardim Eldorado, Próximo ao hospital da Unimed!**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-eldorado-proximo-ao-hospital-da-unimed-1519698150
+
