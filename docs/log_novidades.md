@@ -135877,3 +135877,21 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-praia-belo-horizonte-em-balneario-gaivota-sc-1519864469
 
+
+## 🆕 3 novos anúncios — 22/07/2026 06:00
+
+- **Terreno à venda, 559 m² por R$ 180.000 - Laranjinha - Criciúma/SC**
+  - 💰 R$ 180.000 | 📐 560 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-559-m-por-r-180-000-laranjinha-criciuma-sc-1519985829
+
+- **terreno urbano**
+  - 💰 R$ 849.000 | 📐 6670 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-1519977500
+
+- **Seu Terreno a 70m da beira mar**
+  - 💰 R$ 148.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/seu-terreno-a-70m-da-beira-mar-1519952280
+
