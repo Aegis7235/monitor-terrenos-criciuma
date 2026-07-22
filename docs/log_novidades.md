@@ -135941,3 +135941,21 @@
 
 ## ✅ Sem novidades — 22/07/2026 16:26
 
+
+## 🆕 3 novos anúncios — 22/07/2026 22:10
+
+- **Oportunidade para Construtor - terreno 900m²**
+  - 💰 R$ 100.000 | 📐 900 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-construtor-terreno-900m-1520214741
+
+- **Terreno com 360m² no loteamento Celeste Macarini, Rio Maina, Criciúma/**
+  - 💰 R$ 193.000 | 📐 360 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-360m-no-loteamento-celeste-macarini-rio-maina-criciuma-sc-1520227338
+
+- **Terreno 360m² no loteamento Monte Dei Fiore, Archimedes Naspolini, Cri**
+  - 💰 R$ 162.000 | 📐 360 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-no-loteamento-monte-dei-fiore-archimedes-naspolini-criciuma-sc-1520226087
+
