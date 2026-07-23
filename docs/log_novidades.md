@@ -135959,3 +135959,121 @@
   - 📍 Archimedes Naspolini — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-no-loteamento-monte-dei-fiore-archimedes-naspolini-criciuma-sc-1520226087
 
+
+## 🆕 23 novos anúncios — 23/07/2026 06:03
+
+- **Terreno à venda no Loteamento Laranjinha**
+  - 💰 R$ 95.000 | 📐 379 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-laranjinha-1520369827
+
+- **Terreno à venda em Santa Libera, Forquilhinha**
+  - 💰 R$ 60.000 | 📐 455 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-santa-libera-forquilhinha-1520369817
+
+- **Lotes a venda em Içara-SC**
+  - 💰 R$ 107.100 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-a-venda-em-icara-sc-1520320500
+
+- **Terreno à Venda em Laranjinha - Criciúma**
+  - 💰 R$ 130.000 | 📐 565 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-laranjinha-criciuma-1520370764
+
+- **TERRENO BOSQUE DO REPOUSO**
+  - 💰 R$ 266.000 | 📐 1049 m²
+  - 📍 Ana Maria — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bosque-do-repouso-1520370732
+
+- **Sítio à Venda em Cocal do Sul**
+  - 💰 R$ 900.000 | 📐 3648 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-cocal-do-sul-1520370549
+
+- **Terreno no Centro de Nova Veneza**
+  - 💰 R$ 250.000 | 📐 420 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-nova-veneza-1520370510
+
+- **Sitio a 30 minutos de Nova Veneza**
+  - 💰 R$ 160.000 | 📐 7603 m²
+  - 📍  — Morro Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-30-minutos-de-nova-veneza-1520370533
+
+- **Terreno à venda no Jardim Montevidéu**
+  - 💰 R$ 100.000 | 📐 360 m²
+  - 📍 Jardim Montevidéu — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-jardim-montevideu-1520370511
+
+- **Terreno à venda no Pinheirinho, Criciúma**
+  - 💰 R$ 200.000 | 📐 631 m²
+  - 📍 Pinheirinho — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-pinheirinho-criciuma-1520370515
+
+- **Sítio à venda em Siderópolis**
+  - 💰 R$ 320.000 | 📐 22393 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-sideropolis-1520370483
+
+- **Terreno Laranjinha**
+  - 💰 R$ 95.000 | 📐 418 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-laranjinha-1520370402
+
+- **Terreno à venda em Santa Libera - Forquilhinha**
+  - 💰 R$ 70.000 | 📐 384 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-santa-libera-forquilhinha-1520370372
+
+- **Terreno à venda no Loteamento Laranjinha**
+  - 💰 R$ 135.000 | 📐 667 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-laranjinha-1520370146
+
+- **Terreno à venda no Loteamento Laranjinha**
+  - 💰 R$ 110.000 | 📐 590 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-laranjinha-1520370125
+
+- **Terreno à Venda no Loteamento Edna**
+  - 💰 R$ 120.000 | 📐 450 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-edna-1520370134
+
+- **Terreno Laranjinha**
+  - 💰 R$ 95.000 | 📐 371 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-laranjinha-1520370130
+
+- **Terreno à venda Jardim Angélica!!**
+  - 💰 R$ 260.000 | 📐 363 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-jardim-angelica-1520370107
+
+- **TERRENO À VENDA EM CONDOMÍNIO FECHADO**
+  - 💰 R$ 495.000 | 📐 608 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-em-condominio-fechado-1520369913
+
+- **TERRENO À VENDA NO BAIRRO BUENOS AIRES**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍 Buenos Aires — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-no-bairro-buenos-aires-1520369906
+
+- **Terreno em Lot Tia Maria Zanette Bairro Naspolini**
+  - 💰 R$ 110.000 | 📐 361 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-lot-tia-maria-zanette-bairro-naspolini-1520369870
+
+- **Terreno Laranjinha**
+  - 💰 R$ 105.000 | 📐 504 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-laranjinha-1520369871
+
+- **Sítio à Venda em Treviso - São Victor**
+  - 💰 R$ 210.000 | 📐 200 m²
+  - 📍 Centro — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-treviso-sao-victor-1520369835
+
