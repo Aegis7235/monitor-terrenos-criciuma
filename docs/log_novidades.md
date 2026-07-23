@@ -136123,3 +136123,56 @@
   - 📍 Michel — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1520421054
 
+
+## 🆕 10 novos anúncios — 23/07/2026 22:13
+
+- **Terreno á venda em Criciúma -SC**
+  - 💰 R$ 180.000 | 📐 390 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-sc-1520556375
+
+- **Terreno á venda em Criciúma -SC**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-sc-1520556243
+
+- **Terreno á venda em Criciúma -SC**
+  - 💰 R$ 320.000 | 📐 466 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-sc-1520556242
+
+- **Terreno á venda em Criciúma -SC**
+  - 💰 R$ 310.000 | 📐 679 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-sc-1520556051
+
+- **Terreno á venda em Criciúma -SC**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-sc-1520555960
+
+- **Terreno á venda em Criciúma -SC**
+  - 💰 R$ 190.000 | 📐 375 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-sc-1520555844
+
+- **Terreno á venda em Criciúma -SC**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-sc-1520555693
+
+- **Terreno á venda em Criciúma -SC**
+  - 💰 R$ 180.000 | 📐 390 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-sc-1520555636
+
+- **Terreno á venda em Criciúma -SC**
+  - 💰 R$ 250.000 | 📐 360 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-sc-1520555614
+
+- **Lote a venda no Condominio Reserva das Águas em Torres RS**
+  - 💰 R$ 490.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-a-venda-no-condominio-reserva-das-aguas-em-torres-rs-1520541279
+
