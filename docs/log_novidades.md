@@ -136077,3 +136077,26 @@
   - 📍 Centro — Treviso
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-treviso-sao-victor-1520369835
 
+
+## 🆕 4 novos anúncios — 23/07/2026 11:19
+
+- **Lote em Rua Noel Rosa - Lote Seis - Criciúma/SC**
+  - 💰 R$ 324.020 | 📐 390 m²
+  - 📍 Lote Seis — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-noel-rosa-lote-seis-criciuma-sc-1520388988
+
+- **Terreno Bairro Caverazinho - Araranguá SC**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-caverazinho-ararangua-sc-1520402558
+
+- **Terreno na Bella Torres no Passo de Torres SC**
+  - 💰 R$ 169.999 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-bella-torres-no-passo-de-torres-sc-1520393938
+
+- **Lote em Rua Antônio Dal Farra - Vila São Jorge - Siderópolis/SC**
+  - 💰 R$ 319.450 | 📐 4008 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1520380989
+
