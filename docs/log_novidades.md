@@ -136100,3 +136100,26 @@
   - 📍  — Siderópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1520380989
 
+
+## 🆕 4 novos anúncios — 23/07/2026 16:44
+
+- **Terreno de esquina à venda no bairro Coloninha, em Araranguá/SC**
+  - 💰 R$ 115.000 | 📐 329 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-no-bairro-coloninha-em-ararangua-sc-1520463408
+
+- **Terreno à venda no bairro Jardim das Avenidas, em Araranguá/SC**
+  - 💰 R$ 170.000 | 📐 360 m²
+  - 📍 Jardim das Avenidas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-jardim-das-avenidas-em-ararangua-sc-1520462656
+
+- **Oportunidade: terreno Praia do Camacho com 300m²**
+  - 💰 R$ 38.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-praia-do-camacho-com-300m-1520491520
+
+- **Terreno**
+  - 💰 R$ 155.000 | 📐 288 m²
+  - 📍 Michel — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1520421054
+
