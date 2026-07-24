@@ -136182,3 +136182,31 @@
 
 ## ✅ Sem novidades — 24/07/2026 11:04
 
+
+## 🆕 5 novos anúncios — 24/07/2026 16:50
+
+- **Excelente terreno plano com 5.455m²**
+  - 💰 R$ 275.000 | 📐 5455 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-plano-com-5-455m-1520733920
+
+- **Terreno à venda, 414 m² por R$ 130.000 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 130.000 | 📐 414 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-414-m-por-r-130-000-caverazinho-ararangua-sc-1520671256
+
+- **Terreno em loteamento tranquilo e de ótimo padrão - 432m²**
+  - 💰 R$ 260.000 | 📐 432 m²
+  - 📍 Santo Antônio — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-tranquilo-e-de-otimo-padrao-432m-1520662787
+
+- **Terreno em Torres RS**
+  - 💰 R$ 1.100.000 | 📐 652 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-1520664569
+
+- **Dois lindos terrenos de esquina Norte/Leste na Praia Paraíso em Torres**
+  - 💰 R$ 260.000 | 📐 720 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-lindos-terrenos-de-esquina-norte-leste-na-praia-paraiso-em-torres-rs-1520661667
+
