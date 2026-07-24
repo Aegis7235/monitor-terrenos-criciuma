@@ -136210,3 +136210,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-lindos-terrenos-de-esquina-norte-leste-na-praia-paraiso-em-torres-rs-1520661667
 
+
+## 🆕 1 novos anúncios — 24/07/2026 22:13
+
+- **Lote de esquina no Reserva das Águas em Torres RS**
+  - 💰 R$ 590.000 | 📐 545 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-de-esquina-no-reserva-das-aguas-em-torres-rs-1520801595
+
