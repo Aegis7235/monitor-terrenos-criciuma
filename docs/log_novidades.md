@@ -136221,3 +136221,76 @@
 
 ## ✅ Sem novidades — 25/07/2026 05:44
 
+
+## 🆕 14 novos anúncios — 25/07/2026 10:43
+
+- **Terreno ( Em loteamento) à Venda, 416m² - Bairro São Pedro em Urussang**
+  - 💰 R$ 110.000 | 📐 416 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-416m-bairro-sao-pedro-em-urussanga-1520944154
+
+- **Lote em Rua Antônio Dal Farra - Vila São Jorge - Siderópolis/SC**
+  - 💰 R$ 319.060 | 📐 4008 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1520932436
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.599.440 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1520929045
+
+- **Imóvel Rural em Leilão - Zona Rural - Santa Rosa do Sul - SC**
+  - 💰 R$ 288.000 | 📐 9 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-rural-em-leilao-zona-rural-santa-rosa-do-sul-sc-1520919609
+
+- **Terreno à venda em Içara, Segunda Linha**
+  - 💰 R$ 166.000 | 📐 362 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-segunda-linha-1520917740
+
+- **Terreno em Lagoa dos Esteves, Balneário Rincão**
+  - 💰 R$ 1.534.342 | 📐 550 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-lagoa-dos-esteves-balneario-rincao-1520917732
+
+- **Terreno à venda no Bairro Próspera, Criciúma**
+  - 💰 R$ 650.000 | 📐 755 m²
+  - 📍 Próspera — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-prospera-criciuma-1520917540
+
+- **Serena Città - Um novo conceito de viver bem!**
+  - 💰 R$ 293.962 | 📐 366 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/serena-citta-um-novo-conceito-de-viver-bem-1520917320
+
+- **Terreno no Jardim Silvana em Içara**
+  - 💰 R$ 140.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-silvana-em-icara-1520917203
+
+- **Terreno em Lagoa dos Esteves, Balneário Rincão**
+  - 💰 R$ 1.150.756 | 📐 550 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-lagoa-dos-esteves-balneario-rincao-1520916655
+
+- **Serena Città - Um novo conceito de viver bem!**
+  - 💰 R$ 289.080 | 📐 360 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/serena-citta-um-novo-conceito-de-viver-bem-1520916597
+
+- **Terreno no Jardim Silvana em Içara**
+  - 💰 R$ 142.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-silvana-em-icara-1520916523
+
+- **Terreno à venda, 323 m² por R$ 226.663,79 - Residencial Portofino - Pa**
+  - 💰 R$ 226.664 | 📐 323 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-323-m-por-r-226-663-79-residencial-portofino-passo-de-torres-sc-1520945731
+
+- **Terreno à venda, 417 m² por R$ 561.122 - Residencial Portofino - Passo**
+  - 💰 R$ 561.123 | 📐 417 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-417-m-por-r-561-122-residencial-portofino-passo-de-torres-sc-1520945698
+
