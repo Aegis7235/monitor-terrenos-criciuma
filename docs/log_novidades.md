@@ -136302,3 +136302,11 @@
   - 📍 Caverazinho — Araranguá
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-colina-dos-acores-em-ararangua-sc-1521006180
 
+
+## 🆕 1 novos anúncios — 25/07/2026 22:06
+
+- **Sítio com 4 dormitórios em Araranguá - Maracajá com piscina. Fazenda -**
+  - 💰 R$ 15.500 | 📐 585 m²
+  - 📍  — Maracajá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-4-dormitorios-em-ararangua-maracaja-com-piscina-fazenda-casa-de-campo-1521073387
+
