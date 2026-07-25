@@ -136294,3 +136294,11 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-417-m-por-r-561-122-residencial-portofino-passo-de-torres-sc-1520945698
 
+
+## 🆕 1 novos anúncios — 25/07/2026 16:13
+
+- **Terreno à venda no Colina dos Açores, em Araranguá/SC**
+  - 💰 R$ 280.000 | 📐 330 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-colina-dos-acores-em-ararangua-sc-1521006180
+
