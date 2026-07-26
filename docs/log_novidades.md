@@ -136319,3 +136319,36 @@
 
 ## ✅ Sem novidades — 26/07/2026 16:03
 
+
+## 🆕 6 novos anúncios — 26/07/2026 22:08
+
+- **Águas do Atlântico - Excelente Lote**
+  - 💰 R$ 415.000 | 📐 500 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/aguas-do-atlantico-excelente-lote-1521165974
+
+- **? SÍTIO À VENDA - RIO FIORITA | SIDERÓPOLIS/SC<br>**
+  - 💰 R$ 350.000 | 📐 20000 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-venda-rio-fiorita-sideropolis-sc-br-1521143279
+
+- **Oferta exclusiva  Terreno no Quarta Linha, Criciuma - SC, N. SN LT 04 **
+  - 💰 R$ 178.781 | 📐 325 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oferta-exclusiva-terreno-no-quarta-linha-criciuma-sc-n-sn-lt-04-qd-g-325m-leilao-1521132225
+
+- **Imóvel em ótima região  Terreno no Sao Simao, Criciuma - SC, Nº 3000, **
+  - 💰 R$ 1.400.000 | 📐 888 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-em-otima-regiao-terreno-no-sao-simao-criciuma-sc-n-3000-888-24m-leilao-1521132171
+
+- **Oportunidade para você  Terreno no Centro, Nova Veneza - SC, Nº 150, 3**
+  - 💰 R$ 140.000 | 📐 390 m²
+  - 📍 São Bento Baixo — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-voce-terreno-no-centro-nova-veneza-sc-n-150-390-8m-leilao-1521131761
+
+- **Terreno no Loteamento Jardim das Laranjeiras à venda, 326,32 m² por R$**
+  - 💰 R$ 130.000 | 📐 326 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-das-laranjeiras-a-venda-326-32-m-por-r-130-000-00-vila-s-1521120050
+
