@@ -136381,3 +136381,36 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-1521282975
 
+
+## 🆕 6 novos anúncios — 27/07/2026 22:17
+
+- **Terreno ( Em loteamento) à Venda, 366m² - Bairro São Domingos em Crici**
+  - 💰 R$ 102.000 | 📐 366 m²
+  - 📍 São Domingos — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-366m-bairro-sao-domingos-em-criciuma-1521487255
+
+- **Vendo terreno pronto construir ótima localização. Rua Guerra Junqueira**
+  - 💰 R$ 340.000 | 📐 450 m²
+  - 📍 Pio Corrêa — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-pronto-construir-otima-localizacao-rua-guerra-junqueira-1521466241
+
+- **Terreno urbano 300m²**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍 Polícia Rodoviária — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-300m-1521456314
+
+- **Lote em Rua Antônio Dal Farra - Vila São Jorge - Siderópolis/SC**
+  - 💰 R$ 319.060 | 📐 4008 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1521497540
+
+- **Vendo TERRENO 12x30 (360m²) na Praia Miratorres em Passo de Torres - S**
+  - 💰 R$ 122.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-12x30-360m-na-praia-miratorres-em-passo-de-torres-sc-1521540077
+
+- **Localização privilegiada- terreno condomínio Garden Ville**
+  - 💰 R$ 780.000 | 📐 690 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/localizacao-privilegiada-terreno-condominio-garden-ville-1521538539
+
