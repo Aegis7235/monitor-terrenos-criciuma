@@ -136414,3 +136414,16 @@
   - 📍 Centro — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/localizacao-privilegiada-terreno-condominio-garden-ville-1521538539
 
+
+## 🆕 2 novos anúncios — 28/07/2026 05:55
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.599.440 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1521505240
+
+- **Área comercial na Estrada do Mar em Torres RS**
+  - 💰 R$ 1.700.000 | 📐 23895 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-comercial-na-estrada-do-mar-em-torres-rs-1521509367
+
