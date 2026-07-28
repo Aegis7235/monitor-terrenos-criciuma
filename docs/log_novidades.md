@@ -136453,3 +136453,16 @@
   - 📍 Operária Nova — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-cacador-sc-1521877232
 
+
+## 🆕 2 novos anúncios — 28/07/2026 22:13
+
+- **Terrenos no loteamento Tramontin, Centro, Urussanga/SC**
+  - 💰 R$ 193.000 | 📐 363 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-loteamento-tramontin-centro-urussanga-sc-1521929854
+
+- **Terreno parcelado no condomínio lagoa cortada - Balneário Gaivota - SC**
+  - 💰 R$ 47.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-no-condominio-lagoa-cortada-balneario-gaivota-sc-1521936292
+
