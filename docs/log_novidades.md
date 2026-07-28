@@ -136445,3 +136445,11 @@
   - 📍  — Siderópolis
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1521788852
 
+
+## 🆕 1 novos anúncios — 28/07/2026 16:49
+
+- **Terreno Rural - Caçador/SC**
+  - 💰 R$ 3.500.000 | 📐 18405775 m²
+  - 📍 Operária Nova — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-cacador-sc-1521877232
+
