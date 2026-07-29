@@ -136517,3 +136517,81 @@
   - 📍 Argentina — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-800m-condominio-fechado-villagio-verde-criciuma-sc-1522083874
 
+
+## 🆕 15 novos anúncios — 29/07/2026 16:32
+
+- **Terreno à venda no bairro Areias Claras, em Balneário Gaivota/SC**
+  - 💰 R$ 275.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-areias-claras-em-balneario-gaivota-sc-1522167020
+
+- **Ótima oportunidade de terreno para sítio ou investimento**
+  - 💰 R$ 120.000 | 📐 5500 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otima-oportunidade-de-terreno-para-sitio-ou-investimento-1522128293
+
+- **Terreno à venda no bairro Centro, em Araranguá/SC**
+  - 💰 R$ 310.000 | 📐 360 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-centro-em-ararangua-sc-1522162940
+
+- **Terreno 600² na 3°quadra da geral não está naa área da apa da baleia.**
+  - 💰 R$ 90.000 | 📐 600 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-600-na-3-quadra-da-geral-nao-esta-naa-area-da-apa-da-baleia-1522180082
+
+- **Terrenos à venda no Loteamento Capão Bonito, em Balneário Gaivota/SC**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-loteamento-capao-bonito-em-balneario-gaivota-sc-1522165399
+
+- **Terreno à venda no bairro Areias Claras, em Balneário Gaivota/SC**
+  - 💰 R$ 450.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-areias-claras-em-balneario-gaivota-sc-1522163361
+
+- **Terrenos à venda no Residencial Portofino em Passo de Torres/SC**
+  - 💰 R$ 362.188 | 📐 302 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-residencial-portofino-em-passo-de-torres-sc-1522163144
+
+- **Terrenos à venda no Loteamento Capão Bonito, em Balneário Gaivota/SC**
+  - 💰 R$ 125.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-loteamento-capao-bonito-em-balneario-gaivota-sc-1522162830
+
+- **Terreno à venda no bairro Janaína, em Balneário Gaivota/SC**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-janaina-em-balneario-gaivota-sc-1522161885
+
+- **Terrenos à venda no Residencial Portofino, em Passo de Torres/SC**
+  - 💰 R$ 237.734 | 📐 336 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-residencial-portofino-em-passo-de-torres-sc-1522161802
+
+- **Terreno à venda, Capão Bonito - Balneário Gaivota/SC**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-capao-bonito-balneario-gaivota-sc-1522161788
+
+- **Terrenos à venda no Loteamento Capão Bonito, em Balneário Gaivota/SC**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-loteamento-capao-bonito-em-balneario-gaivota-sc-1522161811
+
+- **Terrenos à venda no Residencial Portofino, em Passo de Torres/SC**
+  - 💰 R$ 256.307 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-residencial-portofino-em-passo-de-torres-sc-1522161432
+
+- **Terreno à venda no bairro Valverde, em Balneário Gaivota/SC**
+  - 💰 R$ 80.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-valverde-em-balneario-gaivota-sc-1522161241
+
+- **Sito**
+  - 💰 R$ 400.000 | 📐 25 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sito-1522129821
+
