@@ -136595,3 +136595,36 @@
   - 📍  — São João do Sul
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sito-1522129821
 
+
+## 🆕 6 novos anúncios — 29/07/2026 22:11
+
+- **Terreno de 2460 m² com pavilhão à venda próximo a UNESC em Criciúma**
+  - 💰 R$ 3.480.000 | 📐 1153 m²
+  - 📍 Universitário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2460-m-com-pavilhao-a-venda-proximo-a-unesc-em-criciuma-1522264408
+
+- **Terreno ( Em loteamento) à Venda, 379m² - Bairro Santa Luzia em Criciú**
+  - 💰 R$ 122.000 | 📐 379 m²
+  - 📍 Santa Luzia — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-379m-bairro-santa-luzia-em-criciuma-1522241792
+
+- **Terrenos no loteamento Jardim Vitória, Recanto Verde, Criciúma/SC**
+  - 💰 R$ 116.000 | 📐 364 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-loteamento-jardim-vitoria-recanto-verde-criciuma-sc-1522223124
+
+- **TERRENO À VENDA  BAIRRO DEMBOSKI, IÇARA**
+  - 💰 R$ 120.000.000 | 📐 374400 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-bairro-demboski-icara-1522189256
+
+- **Terrenos no loteamento Jardim das Palmas, Caverazinho, Araranguá/SC**
+  - 💰 R$ 91.884 | 📐 322 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-loteamento-jardim-das-palmas-caverazinho-ararangua-sc-1522237960
+
+- **terreno 300 mts balneario gaivota lagoinha**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300-mts-balneario-gaivota-lagoinha-1522212472
+
