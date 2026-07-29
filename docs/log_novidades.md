@@ -136469,3 +136469,51 @@
 
 ## ✅ Sem novidades — 29/07/2026 05:54
 
+
+## 🆕 9 novos anúncios — 29/07/2026 11:35
+
+- **Terrenos a Venda em Condominio Flórida Parque III -Torres**
+  - 💰 R$ 134.401 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-em-condominio-florida-parque-iii-torres-1522047494
+
+- **Terreno com fundo pra lagoa, próxima a praia.**
+  - 💰 R$ 110.000 | 📐 160 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-fundo-pra-lagoa-proxima-a-praia-1522036638
+
+- **Excelente terreno em Belatorres medindo 12x29**
+  - 💰 R$ 135.000 | 📐 348 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-em-belatorres-medindo-12x29-1522034830
+
+- **Sítio com casa imobilizada**
+  - 💰 R$ 498.000 | 📐 33000 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-casa-imobilizada-1522030648
+
+- **Lote de esquina a 400m da Beira Mar**
+  - 💰 R$ 390.000 | 📐 425 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-a-400m-da-beira-mar-1522029118
+
+- **Sítio na serra rio do rastro**
+  - 💰 R$ 2.150.000 | 📐 50000 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-na-serra-rio-do-rastro-1522018439
+
+- **EXCELENTE ÁREA COMERCIAL - PROXIMO AO CD MERCADO LIVRE**
+  - 💰 R$ 1.800.000 | 📐 22000 m²
+  - 📍 Verdinho — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-area-comercial-proximo-ao-cd-mercado-livre-1522096348
+
+- **Terreno com 800m², Condomínio fechado. Villagio Verde, Criciúma SC**
+  - 💰 R$ 545.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-800m-condominio-fechado-villagio-verde-criciuma-sc-1522083996
+
+- **Terreno com 800m², Condomínio fechado. Villagio Verde, Criciúma SC**
+  - 💰 R$ 552.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-800m-condominio-fechado-villagio-verde-criciuma-sc-1522083874
+
