@@ -136666,3 +136666,26 @@
   - 📍 Centro — Içara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-lagoa-dos-esteves-balneario-rincao-1522361184
 
+
+## 🆕 4 novos anúncios — 30/07/2026 11:16
+
+- **Terreno à venda, 296 m² por R$ 110.000 - Urussanguinha - Araranguá/SC**
+  - 💰 R$ 110.000 | 📐 297 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-296-m-por-r-110-000-urussanguinha-ararangua-sc-1522395144
+
+- **Terreno à venda, 360 m² por R$ 155.630,00 - Morro dos Conventos - Arar**
+  - 💰 R$ 155.630 | 📐 360 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-155-630-00-morro-dos-conventos-ararangua-sc-1481446738
+
+- **Terrenos no loteamento Parque da Chaminé, Sangão, Criciúma/SC**
+  - 💰 R$ 113.400 | 📐 360 m²
+  - 📍 Sangão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-no-loteamento-parque-da-chamine-sangao-criciuma-sc-1522381436
+
+- **Terreno em loteamento planejado em Torres RS**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-loteamento-planejado-em-torres-rs-1522388751
+
