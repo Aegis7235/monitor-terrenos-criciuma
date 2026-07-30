@@ -136692,3 +136692,16 @@
 
 ## ✅ Sem novidades — 30/07/2026 16:37
 
+
+## 🆕 2 novos anúncios — 30/07/2026 22:15
+
+- **Terreno 302 m² no Loteamento Vitória - Vila Floresta, Criciúma**
+  - 💰 R$ 40.990 | 📐 302 m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-302-m-no-loteamento-vitoria-vila-floresta-criciuma-1522490623
+
+- **Florida Parque - Bairro Jardim América em Passo de Torres SC REF: 595**
+  - 💰 R$ 115.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/florida-parque-bairro-jardim-america-em-passo-de-torres-sc-ref-595-1522415023
+
