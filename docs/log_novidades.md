@@ -136628,3 +136628,41 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300-mts-balneario-gaivota-lagoinha-1522212472
 
+
+## 🆕 7 novos anúncios — 30/07/2026 05:50
+
+- **Terreno à venda em Içara, Segunda Linha**
+  - 💰 R$ 166.000 | 📐 362 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-segunda-linha-1522361969
+
+- **Serena Città - Um novo conceito de viver bem!**
+  - 💰 R$ 293.962 | 📐 366 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/serena-citta-um-novo-conceito-de-viver-bem-1522361331
+
+- **Terreno em Lagoa dos Esteves, Balneário Rincão**
+  - 💰 R$ 1.534.342 | 📐 550 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-lagoa-dos-esteves-balneario-rincao-1522361284
+
+- **Terreno no Jardim Silvana em Içara**
+  - 💰 R$ 140.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-silvana-em-icara-1522361266
+
+- **Terreno no Jardim Silvana em Içara**
+  - 💰 R$ 142.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-silvana-em-icara-1522361271
+
+- **Serena Città - Um novo conceito de viver bem!**
+  - 💰 R$ 289.080 | 📐 360 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/serena-citta-um-novo-conceito-de-viver-bem-1522361255
+
+- **Terreno em Lagoa dos Esteves, Balneário Rincão**
+  - 💰 R$ 1.150.756 | 📐 550 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-lagoa-dos-esteves-balneario-rincao-1522361184
+
