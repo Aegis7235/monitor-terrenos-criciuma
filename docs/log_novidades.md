@@ -136761,3 +136761,16 @@
   - 📍 Vila Zuleima — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-criciuma-1522676606
 
+
+## 🆕 2 novos anúncios — 31/07/2026 16:54
+
+- **Amplo Terreno Em Loteamento Pronto**
+  - 💰 R$ 230.000 | 📐 503 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/amplo-terreno-em-loteamento-pronto-1522766335
+
+- **3 LOTES- Reserva das Águas | Torres-Rs REF: S360-397794**
+  - 💰 R$ 2.300.000 | 📐 1698 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/3-lotes-reserva-das-aguas-torres-rs-ref-s360-397794-1522766632
+
