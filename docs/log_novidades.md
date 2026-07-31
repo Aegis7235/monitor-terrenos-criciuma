@@ -136705,3 +136705,21 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/florida-parque-bairro-jardim-america-em-passo-de-torres-sc-ref-595-1522415023
 
+
+## 🆕 3 novos anúncios — 31/07/2026 06:23
+
+- **Terreno de esquina à venda no bairro Ceará!!**
+  - 💰 R$ 350.000 | 📐 543 m²
+  - 📍 Ceará — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-no-bairro-ceara-1522668041
+
+- **Terreno 185 m2 região central Crisciúma - SC**
+  - 💰 R$ 150.000 | 📐 185 m²
+  - 📍 Mina do Mato — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-185-m2-regiao-central-crisciuma-sc-1522647702
+
+- **Vendo Terreno Praia Tupinambá - Torres**
+  - 💰 R$ 46.000 | 📐 250 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-praia-tupinamba-torres-1522603218
+
