@@ -136774,3 +136774,16 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/3-lotes-reserva-das-aguas-torres-rs-ref-s360-397794-1522766632
 
+
+## 🆕 2 novos anúncios — 31/07/2026 22:14
+
+- **Barbada Próx ao Santurio de Içara**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-prox-ao-santurio-de-icara-1522810353
+
+- **Terreno com entrada de 10.000 a venda na praia Lagoinha Norte**
+  - 💰 R$ 10.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-entrada-de-10-000-a-venda-na-praia-lagoinha-norte-1522822601
+
