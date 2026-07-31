@@ -136723,3 +136723,41 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-praia-tupinamba-torres-1522603218
 
+
+## 🆕 7 novos anúncios — 31/07/2026 11:37
+
+- **Terreno 360m² em Condomínio - Loteamento Tramontin**
+  - 💰 R$ 196.662 | 📐 360 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-360m-em-condominio-loteamento-tramontin-1522677103
+
+- **Terreno 363m² em Condomínio - Loteamento Tramontin**
+  - 💰 R$ 193.540 | 📐 363 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-363m-em-condominio-loteamento-tramontin-1522677095
+
+- **Terreno 363m² em Condomínio - Loteamento Tramontin**
+  - 💰 R$ 234.122 | 📐 419 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-363m-em-condominio-loteamento-tramontin-1522677054
+
+- **Terreno 361m² em Condomínio - Monte dei Fiore**
+  - 💰 R$ 187.297 | 📐 361 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-361m-em-condominio-monte-dei-fiore-1522678190
+
+- **Terreno 385m² em Condomínio - Monte dei Fiore**
+  - 💰 R$ 196.662 | 📐 435 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-385m-em-condominio-monte-dei-fiore-1522677023
+
+- **Terreno 385m² em Condomínio - Monte dei Fiore**
+  - 💰 R$ 174.811 | 📐 385 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-385m-em-condominio-monte-dei-fiore-1522677024
+
+- **CHACARA EM CRICIUMA**
+  - 💰 R$ 2.800.000 | 📐 210 m²
+  - 📍 Vila Zuleima — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacara-em-criciuma-1522676606
+
