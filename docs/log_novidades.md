@@ -136811,3 +136811,61 @@
 
 ## ✅ Sem novidades — 02/08/2026 21:57
 
+
+## 🆕 11 novos anúncios — 03/08/2026 06:33
+
+- **Terreno com 435 m².**
+  - 💰 R$ 77.000 | 📐 435 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-435-m-1523088921
+
+- **Vendo ou troco**
+  - 💰 R$ 299.000 | 📐 42000 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-1523183217
+
+- **Terreno Bella Torres**
+  - 💰 R$ 25.000 | 📐 300 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bella-torres-1523173377
+
+- **Terreno de esquina - escriturado**
+  - 💰 R$ 140.000 | 📐 424 m²
+  - 📍 Primeira Linha Pontilhão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-escriturado-1523079748
+
+- **Terreno 800m do mar, 10x30m**
+  - 💰 R$ 25.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-800m-do-mar-10x30m-1523022278
+
+- **Lote a venda, Lagoão Araranguá SC**
+  - 💰 R$ 90.000 | 📐 368 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-lagoao-ararangua-sc-1387739429
+
+- **Lote a venda, Lagoão Araranguá SC**
+  - 💰 R$ 90.000 | 📐 365 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-lagoao-ararangua-sc-1387732188
+
+- **Terreno à Venda Jardim América - Passo de Torres/SC**
+  - 💰 R$ 88.900 | 📐 205 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-jardim-america-passo-de-torres-sc-1522973925
+
+- **Terreno a venda Criciúma**
+  - 💰 R$ 135.000 | 📐 435 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-criciuma-1522861345
+
+- **Lote/Terreno para venda tem 428 metros quadrados em Reserva das Águas **
+  - 💰 R$ 420.000 | 📐 428 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-terreno-para-venda-tem-428-metros-quadrados-em-reserva-das-aguas-torres-rio-grand-1523281449
+
+- **Terreno em Torres**
+  - 💰 R$ 40.000 | 📐 ? m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-1523050463
+
