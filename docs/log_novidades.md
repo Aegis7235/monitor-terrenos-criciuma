@@ -136929,3 +136929,6 @@
   - 📍 Caverazinho — Araranguá
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-338-m-residencial-colina-dos-acores-ararangua-sc-1523652181
 
+
+## ✅ Sem novidades — 04/08/2026 16:53
+
