@@ -136878,3 +136878,41 @@
 
 ## ✅ Sem novidades — 03/08/2026 22:10
 
+
+## 🆕 7 novos anúncios — 04/08/2026 05:56
+
+- **Lote em Rua Antônio Dal Farra - Vila São Jorge - Siderópolis/SC**
+  - 💰 R$ 319.230 | 📐 4008 m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-antonio-dal-farra-vila-sao-jorge-sideropolis-sc-1523605984
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.599.540 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1523606347
+
+- **Terreno comercial ao lado do Nações Shopping**
+  - 💰 R$ 850.000 | 📐 5833 m²
+  - 📍 Nossa Senhora da Salete — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-ao-lado-do-nacoes-shopping-1523587767
+
+- **Terreno Comercial na Rod. Sebastião Toledo dos Santos, Criciúma -> Sid**
+  - 💰 R$ 390.000 | 📐 495 m²
+  - 📍 Maria Céu — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-na-rod-sebastiao-toledo-dos-santos-criciuma-sideropolis-1523541116
+
+- **Terrenos urbanos escriturados**
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-urbanos-escriturados-1523531519
+
+- **Terreno Mirante dos Canyons 330 metros Mampituba Parque Balonismo**
+  - 💰 R$ 160.000 | 📐 330 m²
+  - 📍  — Praia Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-mirante-dos-canyons-330-metros-mampituba-parque-balonismo-1523516767
+
+- **Galpão / Barracão disponível para locação na Rod. Estrada do Mar, Bair**
+  - 💰 R$ 6.000 | 📐 200 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/galpao-barracao-disponivel-para-locacao-na-rod-estrada-do-mar-bairro-faxinal-em-torres-1523625920
+
