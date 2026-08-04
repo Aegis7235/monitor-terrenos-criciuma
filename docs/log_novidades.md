@@ -136916,3 +136916,16 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/galpao-barracao-disponivel-para-locacao-na-rod-estrada-do-mar-bairro-faxinal-em-torres-1523625920
 
+
+## 🆕 2 novos anúncios — 04/08/2026 11:33
+
+- **Terreno Condomínio Montebello - Parcelamento direto**
+  - 💰 R$ 470.000 | 📐 1188 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-montebello-parcelamento-direto-1523644524
+
+- **Terreno à venda, 338 m² - Residencial Colina dos Acores - Araranguá/SC**
+  - 💰 R$ 275.000 | 📐 338 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-338-m-residencial-colina-dos-acores-ararangua-sc-1523652181
+
