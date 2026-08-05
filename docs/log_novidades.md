@@ -136968,3 +136968,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-no-loteamento-morada-das-palmeiras-em-torres-rs-1523826834
 
+
+## 🆕 1 novos anúncios — 05/08/2026 11:29
+
+- **Terreno Loteamento Silvio Sartor - Morro da fumaça**
+  - 💰 R$ 135.000 | 📐 456 m²
+  - 📍 Distrito Estação Cocal — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-silvio-sartor-morro-da-fumaca-1523945853
+
