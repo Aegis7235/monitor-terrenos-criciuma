@@ -136935,3 +136935,36 @@
 
 ## ✅ Sem novidades — 04/08/2026 22:14
 
+
+## 🆕 6 novos anúncios — 05/08/2026 05:55
+
+- **Terreno à venda, 434 m² por R$ 437.117,14 - Dunas - Balneário Rincão/S**
+  - 💰 R$ 437.117 | 📐 435 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-434-m-por-r-437-117-14-dunas-balneario-rincao-sc-1523900742
+
+- **Terreno à venda, 360 m² por R$ 220.000,00 - Primeira Linha - Criciúma/**
+  - 💰 R$ 220.000 | 📐 361 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-220-000-00-primeira-linha-criciuma-sc-1523899003
+
+- **Terreno à venda, 360,00 m² por R$ 110.000,00 - Linha Anta - Criciúma/S**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍 Linha Anta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-00-m-por-r-110-000-00-linha-anta-criciuma-santa-catarina-1523898982
+
+- **Terreno parcelado no condomínio lagoa cortada - Balneário Gaivota - SC**
+  - 💰 R$ 47.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-parcelado-no-condominio-lagoa-cortada-balneario-gaivota-sc-1523725669
+
+- **Imóvel para venda tem 243 metros quadrados em Praia Caravelle Miratorr**
+  - 💰 R$ 120.000 | 📐 243 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-tem-243-metros-quadrados-em-praia-caravelle-miratorres-passo-de-torres-1523671750
+
+- **Terreno Residencial no Loteamento Morada das Palmeiras em Torres RS**
+  - 💰 R$ 349.000 | 📐 384 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-no-loteamento-morada-das-palmeiras-em-torres-rs-1523826834
+
