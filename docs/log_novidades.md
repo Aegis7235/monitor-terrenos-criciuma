@@ -136979,3 +136979,41 @@
 
 ## ✅ Sem novidades — 05/08/2026 16:43
 
+
+## 🆕 7 novos anúncios — 05/08/2026 22:16
+
+- **Terreno - Valverde | Balneário Gaivota - 450m da Praia**
+  - 💰 R$ 68.000 | 📐 264 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-valverde-balneario-gaivota-450m-da-praia-1524084736
+
+- **Casa de condomínio para venda com 800 metros quadrados em Centro - Cri**
+  - 💰 R$ 460.000 | 📐 800 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-condominio-para-venda-com-800-metros-quadrados-em-centro-criciuma-sc-1524084210
+
+- **TERRENO A APENAS 100 METROS DA LAGOA EM BALNEÁRIO GAIVOTA/SC**
+  - 💰 R$ 69.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-apenas-100-metros-da-lagoa-em-balneario-gaivota-sc-1524059396
+
+- **Terreno de barbada na Praia Sumaré em Balneário Gaivota - SC**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-barbada-na-praia-sumare-em-balneario-gaivota-sc-1524007589
+
+- **Terreno no bairro Village Dunas em Balneário Gaivota-SC**
+  - 💰 R$ 155.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-village-dunas-em-balneario-gaivota-sc-1524004576
+
+- **Terreno comercial - centro de Sombrio**
+  - 💰 R$ 3.500.000 | 📐 1051 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-centro-de-sombrio-1523968331
+
+- **Terreno em Condomínio localizado(a) no bairro Praia da Guarita em Torr**
+  - 💰 R$ 750.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-condominio-localizado-a-no-bairro-praia-da-guarita-em-torres-ref-s360-45850-1524038942
+
