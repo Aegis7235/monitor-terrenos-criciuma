@@ -136976,3 +136976,6 @@
   - 📍 Distrito Estação Cocal — Morro da Fumaça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-silvio-sartor-morro-da-fumaca-1523945853
 
+
+## ✅ Sem novidades — 05/08/2026 16:43
+
