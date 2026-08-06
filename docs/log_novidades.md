@@ -137020,3 +137020,46 @@
 
 ## ✅ Sem novidades — 06/08/2026 05:51
 
+
+## 🆕 8 novos anúncios — 06/08/2026 11:31
+
+- **Terreno à venda, 253 m² por R$ 80.000 - Polícia Rodoviária - Araranguá**
+  - 💰 R$ 80.000 | 📐 253 m²
+  - 📍 Polícia Rodoviária — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-253-m-por-r-80-000-policia-rodoviaria-ararangua-sc-1189775444
+
+- **Sítio 3 dormitórios à venda Centro Passo de Torres/SC**
+  - 💰 R$ 1.600.000 | 📐 400 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-3-dormitorios-a-venda-centro-passo-de-torres-sc-1524135052
+
+- **TERRENO À VENDA  AREIAS CLARAS**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-areias-claras-1524165513
+
+- **TERRENO NO BAIRRO LAGOA CORTADA FURNAS EM BAL. GAIVOTA SC**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-lagoa-cortada-furnas-em-bal-gaivota-sc-1524165350
+
+- **TERRENO À VENDA  AREIAS CLARAS**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-areias-claras-1524164981
+
+- **Terreno à Venda | Excelente Localização em Loteamento Valorizado**
+  - 💰 R$ 160.000 | 📐 310 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-excelente-localizacao-em-loteamento-valorizado-1524164922
+
+- **Terreno à venda Centro Torres/RS**
+  - 💰 R$ 5.900.000 | 📐 17000 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-centro-torres-rs-1524246111
+
+- **Terreno à venda Praia Real Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1524134741
+
