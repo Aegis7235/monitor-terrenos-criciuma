@@ -137063,3 +137063,26 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-praia-real-torres-rs-1524134741
 
+
+## 🆕 4 novos anúncios — 07/08/2026 01:07
+
+- **SÍTIO - TERRENO - PRÓXIMO A 101 - RODOVIA LUIZ ROSSO - com piscina**
+  - 💰 R$ 1.060.000 | 📐 3000 m²
+  - 📍 Bosque do Repouso — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-terreno-proximo-a-101-rodovia-luiz-rosso-com-piscina-1524408056
+
+- **Lote na praia de Balneário Camacho - Jaguaruna**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-praia-de-balneario-camacho-jaguaruna-1524443479
+
+- **Oportunidade para você  Terreno no Riachinho, Jaguaruna - SC, N. SN LT**
+  - 💰 R$ 59.999 | 📐 296 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-voce-terreno-no-riachinho-jaguaruna-sc-n-sn-lt-03-qd-f-296-5m-1524339420
+
+- **Sítio em Rio Salto - Águas Mornas**
+  - 💰 R$ 175.000 | 📐 20000 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-em-rio-salto-aguas-mornas-1524445602
+
