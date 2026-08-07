@@ -137120,3 +137120,21 @@
   - 📍 Centro — Içara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-236-metros-quadrados-em-centro-balneario-rincao-sc-1524532916
 
+
+## 🆕 3 novos anúncios — 07/08/2026 21:49
+
+- **Lote em Rua João Novak - Morro Estevão - Criciúma/SC**
+  - 💰 R$ 1.599.740 | 📐 5181 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-rua-joao-novak-morro-estevao-criciuma-sc-1524580757
+
+- **Lote/Terreno para venda tem 300 metros quadrados em Praia Nova Torres **
+  - 💰 R$ 53.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-terreno-para-venda-tem-300-metros-quadrados-em-praia-nova-torres-balneario-gaivota-1524600585
+
+- **Terreno escriturado no Campo bom em Jaguaruna**
+  - 💰 R$ 220.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-no-campo-bom-em-jaguaruna-1524640681
+
