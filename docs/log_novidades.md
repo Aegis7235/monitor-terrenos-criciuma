@@ -137089,3 +137089,11 @@
 
 ## ✅ Sem novidades — 07/08/2026 04:55
 
+
+## 🆕 1 novos anúncios — 07/08/2026 10:09
+
+- **Terreno à venda, 360 m² por R$ 98.000,00 - Caravelle - Passo de Torres**
+  - 💰 R$ 98.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-98-000-00-caravelle-passo-de-torres-sc-1524499998
+
