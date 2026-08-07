@@ -137097,3 +137097,26 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-98-000-00-caravelle-passo-de-torres-sc-1524499998
 
+
+## 🆕 4 novos anúncios — 07/08/2026 16:04
+
+- **OPORTUNIDADE DE INVESTIMENTO EM ARARANGUÁ/SC!**
+  - 💰 R$ 1.500.000 | 📐 440 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-em-ararangua-sc-1524137062
+
+- **Terreno à venda Centro Passo de Torres/SC**
+  - 💰 R$ 185.000 | 📐 345 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-centro-passo-de-torres-sc-1524132677
+
+- **CASA DE CAMPO EM PASSO DE TORRES SC**
+  - 💰 R$ 1.590.000 | 📐 300 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-campo-em-passo-de-torres-sc-1524132327
+
+- **Imóvel para venda possui 236 metros quadrados em Centro - Balneário Ri**
+  - 💰 R$ 290.000 | 📐 236 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-236-metros-quadrados-em-centro-balneario-rincao-sc-1524532916
+
