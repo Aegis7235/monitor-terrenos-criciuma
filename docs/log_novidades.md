@@ -137141,3 +137141,21 @@
 
 ## ✅ Sem novidades — 08/08/2026 04:11
 
+
+## 🆕 3 novos anúncios — 08/08/2026 09:48
+
+- **Terreno Praia Janaina Interpraias**
+  - 💰 R$ 300.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-janaina-interpraias-1524678261
+
+- **Terreno à venda, 600 m² por R$ 390.000 - Bellatorres - Passo de Torres**
+  - 💰 R$ 390.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-600-m-por-r-390-000-bellatorres-passo-de-torres-sc-1524740179
+
+- **Lote na Praia do Campo Bom**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-praia-do-campo-bom-1524734382
+
