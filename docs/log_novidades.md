@@ -137159,3 +137159,21 @@
   - 📍  — Jaguaruna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-praia-do-campo-bom-1524734382
 
+
+## 🆕 3 novos anúncios — 08/08/2026 15:40
+
+- **TERRENO À VENDA - BAIRRO FLORESTA | CRICIÚMA/SC**
+  - 💰 R$ 170.000 | 📐 362500 m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-bairro-floresta-criciuma-sc-1524763031
+
+- **Terreno à venda, 572 m² por R$ 450.000,00 - Urussanguinha - Araranguá/**
+  - 💰 R$ 450.000 | 📐 572 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-572-m-por-r-450-000-00-urussanguinha-ararangua-sc-1524746006
+
+- **TERRENO À VENDA NO CONDOMÍNIO OCEAN SIDE 480 m² LOTE B14 | ITAPEVA - T**
+  - 💰 R$ 680.000 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-no-condominio-ocean-side-480-m-lote-b14-itapeva-torres-rs-1524790664
+
