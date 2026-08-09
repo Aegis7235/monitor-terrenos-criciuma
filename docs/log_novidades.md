@@ -137180,3 +137180,31 @@
 
 ## ✅ Sem novidades — 08/08/2026 21:32
 
+
+## 🆕 5 novos anúncios — 09/08/2026 04:27
+
+- **Terreno para Venda em Içara, Aririu**
+  - 💰 R$ 1.599.900 | 📐 600 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-icara-aririu-1524916307
+
+- **Terreno para Venda em Içara, Aririu**
+  - 💰 R$ 580.000 | 📐 370 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-icara-aririu-1524916223
+
+- **Terreno para Venda em Balneário Rincão, Aririu**
+  - 💰 R$ 2.999.990 | 📐 600 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-rincao-aririu-1524916170
+
+- **Terreno Condomínio Lake Village M13**
+  - 💰 R$ 290.000 | 📐 402 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-lake-village-m13-1524908228
+
+- **Terreno à venda no bairro Praia Real - Torres/RS**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-praia-real-torres-rs-1524908169
+
