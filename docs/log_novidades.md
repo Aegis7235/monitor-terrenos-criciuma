@@ -137224,3 +137224,16 @@
   - 📍  — Sangão
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-14-x-25m-1524934508
 
+
+## 🆕 2 novos anúncios — 09/08/2026 21:41
+
+- **Lote em Criciúma 15x26 BEM LOCALIZADO**
+  - 💰 R$ 250.000 | 📐 390 m²
+  - 📍 Lote Seis — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-criciuma-15x26-bem-localizado-1525000892
+
+- **Excelente Terreno no Torres Ilhas Park para Comprar**
+  - 💰 R$ 990.000 | 📐 825 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-no-torres-ilhas-park-para-comprar-1524243700
+
