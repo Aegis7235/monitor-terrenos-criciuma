@@ -137211,3 +137211,16 @@
 
 ## ✅ Sem novidades — 09/08/2026 09:41
 
+
+## 🆕 2 novos anúncios — 09/08/2026 15:41
+
+- **Excelente oportunidade de investimento.**
+  - 💰 R$ 4.490.000 | 📐 10000 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-oportunidade-de-investimento-1469530274
+
+- **TERRENO 14 X 25m**
+  - 💰 R$ 85.000 | 📐 350 m²
+  - 📍  — Sangão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-14-x-25m-1524934508
+
