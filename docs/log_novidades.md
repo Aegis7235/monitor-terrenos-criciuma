@@ -137248,3 +137248,11 @@
 
 ## ✅ Sem novidades — 10/08/2026 10:25
 
+
+## 🆕 1 novos anúncios — 10/08/2026 16:01
+
+- **Terreno à venda no bairro Engenho Velho - Torres/RS**
+  - 💰 R$ 2.300.000 | 📐 16980000 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-bairro-engenho-velho-torres-rs-1525151286
+
