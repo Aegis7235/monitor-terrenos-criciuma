@@ -137237,3 +137237,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-no-torres-ilhas-park-para-comprar-1524243700
 
+
+## 🆕 1 novos anúncios — 10/08/2026 04:46
+
+- **Terreno próximo a escola em Rosa do Mar, Passo de Torres-SC**
+  - 💰 R$ 84.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-a-escola-em-rosa-do-mar-passo-de-torres-sc-1525043400
+
