@@ -137348,3 +137348,71 @@
 
 ## ✅ Sem novidades — 11/08/2026 16:01
 
+
+## 🆕 13 novos anúncios — 11/08/2026 21:57
+
+- **Lotes 300m², loteamento Santa Otilia, bairro Caverazinho**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-300m-loteamento-santa-otilia-bairro-caverazinho-1525534287
+
+- **Terreno à venda, 300 m² por R$ 130.000,00 - Coloninha - Araranguá/SC**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-130-000-00-coloninha-ararangua-sc-1525392162
+
+- **Terreno Bairro Policia Rodoviária - Ararangua = SC**
+  - 💰 R$ 105.000 | 📐 300 m²
+  - 📍 Polícia Rodoviária — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-policia-rodoviaria-ararangua-sc-1525390877
+
+- **Terreno à venda, 300 m² por R$ 85.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-85-000-00-caverazinho-ararangua-sc-1408545867
+
+- **Terreno à venda, 300 m² por R$ 85.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-85-000-00-caverazinho-ararangua-sc-1408307113
+
+- **Terreno à venda, 300 m² por R$ 85.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-85-000-00-caverazinho-ararangua-sc-1408300985
+
+- **Terreno à venda, 300 m² por R$ 85.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-85-000-00-caverazinho-ararangua-sc-1408300722
+
+- **Terreno à venda, 300 m² por R$ 85.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-85-000-00-caverazinho-ararangua-sc-1408300369
+
+- **Terreno à venda, 364 m² por R$ 100.000,00 - Lagoão - Araranguá/SC**
+  - 💰 R$ 100.000 | 📐 364 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-364-m-por-r-100-000-00-lagoao-ararangua-sc-1363614176
+
+- **Terreno à venda, 369 m² por R$ 190.000,00 - Mato Alto - Araranguá/SC**
+  - 💰 R$ 190.000 | 📐 369 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-369-m-por-r-190-000-00-mato-alto-ararangua-sc-1354486740
+
+- **Terreno Caverazinho**
+  - 💰 R$ 950.000 | 📐 2390 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-caverazinho-1325197223
+
+- **Vendo Terreno Jaguaruna Camacho R$100.000,00 300m² Com registro de imo**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-jaguaruna-camacho-r-100-000-00-300m-com-registro-de-imovel-1525403300
+
+- **Terreno com 508m2 em área nobre do bairro Mina Brasil, 4 minutos do ce**
+  - 💰 R$ 349.000 | 📐 508 m²
+  - 📍 Mina Brasil — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-508m2-em-area-nobre-do-bairro-mina-brasil-4-minutos-do-centro-de-criciuma-1525376836
+
