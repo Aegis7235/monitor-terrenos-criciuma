@@ -137259,3 +137259,86 @@
 
 ## ✅ Sem novidades — 10/08/2026 21:42
 
+
+## 🆕 16 novos anúncios — 11/08/2026 04:29
+
+- **Terreno no loteamento Altos da Floresta - Vila Floresta - Criciúma**
+  - 💰 R$ 150.000 | 📐 ? m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-altos-da-floresta-vila-floresta-criciuma-1366276302
+
+- **VENDO OU TROCO TERRENO  - LOT. MONTE DEI FIORE - BAIRRO NASPOLINI - 37**
+  - 💰 R$ 25.000 | 📐 375 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-terreno-lot-monte-dei-fiore-bairro-naspolini-375m2-1525236176
+
+- **TERRENO 495 m² À VENDA - VILA FLORESTA II - CRICIÚMA/SC**
+  - 💰 R$ 230.000 | 📐 495 m²
+  - 📍 Vila Floresta II — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-495-m-venda-vila-floresta-ii-criciuma-sc-1525176039
+
+- **Ótimo Terreno de esquina à venda**
+  - 💰 R$ 239.000 | 📐 411 m²
+  - 📍  — Maracajá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-de-esquina-a-venda-1525302356
+
+- **Vendo ou Troco**
+  - 💰 R$ 58.000 | 📐 425 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-1525286890
+
+- **Lote no Loteamento Vale do Goethe e Urussanga**
+  - 💰 R$ 160.000 | 📐 450 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-loteamento-vale-do-goethe-e-urussanga-555235454
+
+- **Vende-se terreno de 3,6 hectares de frente para a Rodovia SC 108 em Ur**
+  - 💰 R$ 680.000 | 📐 36000 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-de-3-6-hectares-de-frente-para-a-rodovia-sc-108-em-urussanga-sc-969848064
+
+- **Vende-se Lote no Loteamento Vale do Goethe em Urussanga/SC**
+  - 💰 R$ 180.000 | 📐 645 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-lote-no-loteamento-vale-do-goethe-em-urussanga-sc-1132577471
+
+- **Imóvel para venda com 288 metros quadrados em Zona Sul - Balneário Rin**
+  - 💰 R$ 115.000 | 📐 288 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-288-metros-quadrados-em-zona-sul-balneario-rincao-sc-1525240644
+
+- **Terreno de ESQUINA em Balneário Gaivota-SC**
+  - 💰 R$ 49.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-balneario-gaivota-sc-1525208577
+
+- **Área de terra para execução de condomínio fechado na região do Morro d**
+  - 💰 R$ 11.111 | 📐 34571 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-de-terra-para-execucao-de-condominio-fechado-na-regiao-do-morro-dos-conventos-1525183138
+
+- **Terreno à venda na Zona Sul de Balneário Rincão**
+  - 💰 R$ 95.000 | 📐 280 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-na-zona-sul-de-balneario-rincao-1525337122
+
+- **LOTE EM IÇARA - OPORTUNIDADE**
+  - 💰 R$ 119.000 | 📐 388 m²
+  - 📍 Sanga Funda — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-icara-oportunidade-1525326506
+
+- **Terreno à venda no Ocean Side, Itapeva (Torres), condomínio consolidad**
+  - 💰 R$ 1.144.750 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-ocean-side-itapeva-torres-condominio-consolidado-a-beira-mar-1525350805
+
+- **Terreno à venda no Ocean Side, Itapeva (Torres), condomínio consolidad**
+  - 💰 R$ 916.750 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-ocean-side-itapeva-torres-condominio-consolidado-a-beira-mar-1525350830
+
+- **Terreno à venda no Ocean Side, Itapeva (Torres), condomínio consolidad**
+  - 💰 R$ 1.192.250 | 📐 480 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-ocean-side-itapeva-torres-condominio-consolidado-a-beira-mar-1525350774
+
