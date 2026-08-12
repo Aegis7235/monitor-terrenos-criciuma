@@ -137437,3 +137437,131 @@
   - 📍 Centro — Araranguá
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-campo-duna-imbituba-1525376773
 
+
+## 🆕 25 novos anúncios — 12/08/2026 16:07
+
+- **Vende-se terreno Lagoão, Araranguá SC**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-lagoao-ararangua-sc-1525678842
+
+- **Terreno à venda, 360 m² por R$ 104.900 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 104.900 | 📐 361 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-104-900-caverazinho-ararangua-sc-1525678505
+
+- **Terreno à venda, 300 m² por R$ 110.000,00 - Coloninha - Araranguá/SC**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-110-000-00-coloninha-ararangua-sc-1525678383
+
+- **Terreno à venda, 705 m² por R$ 600.000 - Coloninha - Araranguá/SC**
+  - 💰 R$ 600.000 | 📐 705 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-705-m-por-r-600-000-coloninha-ararangua-sc-1525678363
+
+- **Terreno à venda, 300 m² por R$ 110.000,00 - Coloninha - Araranguá/SC**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-110-000-00-coloninha-ararangua-sc-1525678358
+
+- **Terreno à venda, 936 m² por R$ 260.000 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 260.000 | 📐 936 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-936-m-por-r-260-000-caverazinho-ararangua-sc-1525678370
+
+- **Terreno à venda, 312 m² por R$ 86.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 86.000 | 📐 312 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-312-m-por-r-86-000-00-caverazinho-ararangua-sc-1525678357
+
+- **Vende-se terreno Lagoão, Araranguá SC**
+  - 💰 R$ 115.000 | 📐 300 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-lagoao-ararangua-sc-1525678348
+
+- **Terreno à venda, 300 m² por R$ 85.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-85-000-00-caverazinho-ararangua-sc-1435372339
+
+- **Terreno à venda, 360 m² por R$ 175.000,00 - Coloninha - Araranguá/SC**
+  - 💰 R$ 175.000 | 📐 360 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-175-000-00-coloninha-ararangua-sc-1424006412
+
+- **Terreno à venda, 384 m² por R$ 75.000,00 - Nova Divinéia - Araranguá/S**
+  - 💰 R$ 75.000 | 📐 384 m²
+  - 📍 Nova Divinéia — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-384-m-por-r-75-000-00-nova-divineia-ararangua-sc-1411194634
+
+- **Terreno à venda, 300 m² por R$ 85.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-85-000-00-caverazinho-ararangua-sc-1408300367
+
+- **Terreno à venda, 324 m² por R$ 180.078 - Coloninha - Araranguá/SC**
+  - 💰 R$ 180.078 | 📐 324 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-324-m-por-r-180-078-coloninha-ararangua-sc-1408017565
+
+- **Terreno à venda, 381 m² por R$ 110.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 110.000 | 📐 381 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-381-m-por-r-110-000-00-caverazinho-ararangua-sc-1403959453
+
+- **Vende-se terreno Mato Alto Araranguá SC**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-mato-alto-ararangua-sc-1400477791
+
+- **Terreno residencial Bella Vista - Araranguá SC**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍 Santa Catarina — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-bella-vista-ararangua-sc-1380601950
+
+- **Terreno para alugar, 380 m² por R$ 800/mês - Coloninha - Araranguá/SC**
+  - 💰 R$ 800 | 📐 380 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-alugar-380-m-por-r-800-mes-coloninha-ararangua-sc-1368562781
+
+- **Terreno à venda, 361 m² por R$ 190.000,00 - Mato Alto - Araranguá/SC**
+  - 💰 R$ 190.000 | 📐 362 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-361-m-por-r-190-000-00-mato-alto-ararangua-sc-1354487165
+
+- **Terreno à venda, 377 m² por R$ 190.000,00 - Mato Alto - Araranguá/SC**
+  - 💰 R$ 190.000 | 📐 377 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-377-m-por-r-190-000-00-mato-alto-ararangua-sc-1354486737
+
+- **Terreno à venda, 648 m² por R$ 370.000,00 - Mato Alto - Araranguá/SC**
+  - 💰 R$ 370.000 | 📐 648 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-648-m-por-r-370-000-00-mato-alto-ararangua-sc-1354486730
+
+- **Terreno no Loteamento Solares- Mato Alto á venda- Araranguá**
+  - 💰 R$ 190.000 | 📐 356 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-solares-mato-alto-a-venda-ararangua-1350441251
+
+- **Terreno à venda, 300 m² por R$ 75.000 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-75-000-caverazinho-ararangua-sc-1340893323
+
+- **Terreno à venda, 416 m² por R$ 360.000,00 - Alto Feliz - Araranguá/SC**
+  - 💰 R$ 360.000 | 📐 416 m²
+  - 📍 Alto Feliz — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-416-m-por-r-360-000-00-alto-feliz-ararangua-sc-1316264342
+
+- **Terreno à venda, 300 m² por R$ 130.000,00 - Coloninha - Araranguá/SC**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-130-000-00-coloninha-ararangua-sc-1279545876
+
+- **Terreno à venda, 467 m² por R$ 350.000,00 - Urussanguinha - Araranguá/**
+  - 💰 R$ 350.000 | 📐 467 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-467-m-por-r-350-000-00-urussanguinha-ararangua-sc-1242549382
+
