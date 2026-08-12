@@ -137416,3 +137416,16 @@
   - 📍 Mina Brasil — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-508m2-em-area-nobre-do-bairro-mina-brasil-4-minutos-do-centro-de-criciuma-1525376836
 
+
+## 🆕 2 novos anúncios — 12/08/2026 04:56
+
+- **Barbada Terreno**
+  - 💰 R$ 50.000 | 📐 260 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-1525627911
+
+- **Lote no Areias Claras  Excelente localização para morar ou investir!**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-areias-claras-excelente-localizacao-para-morar-ou-investir-1525608837
+
