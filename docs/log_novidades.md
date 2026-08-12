@@ -137565,3 +137565,26 @@
   - 📍 Urussanguinha — Araranguá
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-467-m-por-r-350-000-00-urussanguinha-ararangua-sc-1242549382
 
+
+## 🆕 4 novos anúncios — 12/08/2026 21:55
+
+- **Terreno plano e pronto para construir na Lagoa dos Freitas**
+  - 💰 R$ 85.000 | 📐 275 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-e-pronto-para-construir-na-lagoa-dos-freitas-1525835539
+
+- **ÓTIMO TERRENO EM ARARANGUÁ NO RESIDENCIAL BELLA VISTA**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-em-ararangua-no-residencial-bella-vista-1473168221
+
+- **Terreno ( Em loteamento) à Venda, 361m² - Bairro AURORA em Içara**
+  - 💰 R$ 13.500 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-361m-bairro-aurora-em-icara-1525837454
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro Jardim Silvana em Iça**
+  - 💰 R$ 14.200 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-jardim-silvana-em-icara-1525836161
+
