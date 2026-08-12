@@ -137429,3 +137429,11 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-areias-claras-excelente-localizacao-para-morar-ou-investir-1525608837
 
+
+## 🆕 1 novos anúncios — 12/08/2026 10:16
+
+- **Terreno à venda no bairro Campo Duna, Imbituba**
+  - 💰 R$ 950.000 | 📐 1405 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-campo-duna-imbituba-1525376773
+
