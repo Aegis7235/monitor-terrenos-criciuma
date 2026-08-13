@@ -137591,3 +137591,26 @@
 
 ## ✅ Sem novidades — 13/08/2026 04:52
 
+
+## 🆕 4 novos anúncios — 13/08/2026 10:15
+
+- **Oportunidade para moradia  Terreno no Centro, Meleiro - SC, N. SN LT 1**
+  - 💰 R$ 63.999 | 📐 375 m²
+  - 📍  — Meleiro
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-moradia-terreno-no-centro-meleiro-sc-n-sn-lt-13-qd-02-375m-lic-1525937715
+
+- **Imóvel bem posicionado  Terreno no Centro, Cocal do Sul - SC, Nº 482, **
+  - 💰 R$ 188.902 | 📐 600 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-bem-posicionado-terreno-no-centro-cocal-do-sul-sc-n-482-600m-licitacao-ab-1525937596
+
+- **Casa Sitio Lagoa dos Esteves mobiliada e decorada**
+  - 💰 R$ 5.950.000 | 📐 230 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-sitio-lagoa-dos-esteves-mobiliada-e-decorada-1525893944
+
+- **## Excelente Terreno de 500 m² no Residencial Praia Campo e Lazer - R$**
+  - 💰 R$ 99.000 | 📐 500 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-de-500-m-no-residencial-praia-campo-e-lazer-r-99-000-1525885489
+
