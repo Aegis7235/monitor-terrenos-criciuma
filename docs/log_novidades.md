@@ -137617,3 +137617,41 @@
 
 ## ✅ Sem novidades — 13/08/2026 16:00
 
+
+## 🆕 7 novos anúncios — 13/08/2026 21:51
+
+- **Casa de Praia - Balneário Gaivotas SC**
+  - 💰 R$ 2.350.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-praia-balneario-gaivotas-sc-1526007436
+
+- **Terreno à venda, 300 m² por R$ 78.000 - Caverazinho - Araranguá/Santa **
+  - 💰 R$ 78.000 | 📐 300 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-78-000-caverazinho-ararangua-santa-catarina-1525974852
+
+- **Terreno de leilão em CENTRO / COCAL DO SUL / SC | Licitação Aberta**
+  - 💰 R$ 188.902 | 📐 600 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-centro-cocal-do-sul-sc-licitacao-aberta-1506484427
+
+- **Sítio Nova Veneza**
+  - 💰 R$ 525 | 📐 5200 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-nova-veneza-1526052665
+
+- **Propriedade Rural 9 Hectares - Turvo, SC**
+  - 💰 R$ 309.738 | 📐 90500 m²
+  - 📍  — Timbé do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/propriedade-rural-9-hectares-turvo-sc-1526149419
+
+- **TERRENO À VENDA - 468 m² | VILA SÃO CRISTÓVÃO - SANTA ROSA DO SUL/SC**
+  - 💰 R$ 90.000 | 📐 468 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-468-m-vila-sao-cristovao-santa-rosa-do-sul-sc-1526072062
+
+- **Terreno - ESQUINA PERFEITA.**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-perfeita-1475602511
+
