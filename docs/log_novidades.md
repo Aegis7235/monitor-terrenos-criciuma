@@ -137741,3 +137741,11 @@
 
 ## ✅ Sem novidades — 15/08/2026 15:28
 
+
+## 🆕 1 novos anúncios — 15/08/2026 21:27
+
+- **Excelente Lote/terreno de 360m² pronto para construir ou investir em I**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-lote-terreno-de-360m-pronto-para-construir-ou-investir-em-icara-sc-1526601612
+
