@@ -137667,3 +137667,66 @@
 
 ## ✅ Sem novidades — 14/08/2026 21:26
 
+
+## 🆕 12 novos anúncios — 15/08/2026 03:47
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro SEGUNDA LINHA em Içar**
+  - 💰 R$ 15.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-segunda-linha-em-icara-1526426252
+
+- **Terreno para Venda em Içara, Aririu**
+  - 💰 R$ 1.599.900 | 📐 600 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-icara-aririu-1526230076
+
+- **Terreno para Venda em Içara, Aririu**
+  - 💰 R$ 580.000 | 📐 370 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-icara-aririu-1526228026
+
+- **Terreno em Balneário Gaivota próximo a sétima avenida ,no Jardim Ultra**
+  - 💰 R$ 190.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-gaivota-proximo-a-setima-avenida-no-jardim-ultramar-1526440232
+
+- **Terreno em Criciúma-SC 441 m2 com escritura pronto para construir**
+  - 💰 R$ 129.000 | 📐 441 m²
+  - 📍 Sangão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-criciuma-sc-441-m2-com-escritura-pronto-para-construir-1526346885
+
+- **Terreno de leilão em SAO SIMAO / CRICIUMA / SC | Leilão SFI - Edital Ú**
+  - 💰 R$ 1.400.000 | 📐 888 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-leilao-em-sao-simao-criciuma-sc-leilao-sfi-edital-unico-1526239448
+
+- **Terreno para Venda em Balneário Rincão, Aririu**
+  - 💰 R$ 2.999.990 | 📐 600 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-rincao-aririu-1526227940
+
+- **Sítio à venda em Linha Rio Maior, Urussanga**
+  - 💰 R$ 800.000 | 📐 42000 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-em-linha-rio-maior-urussanga-1526214422
+
+- **Terreno em Araranguá - SC**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-ararangua-sc-1526184461
+
+- **Sítio/Chácara em Treviso com 6000m² Escriturado, no Bairro Santa Bárba**
+  - 💰 R$ 250.000 | 📐 6000 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-chacara-em-treviso-com-6000m-escriturado-no-bairro-santa-barbara-divisa-com-sider-1221607972
+
+- **Vendo ou troco por carro**
+  - 💰 R$ 20.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-por-carro-1521118915
+
+- **Excelente terreno a venda no Bairro Igra Sul em Torres/RS. De frente p**
+  - 💰 R$ 290.000 | 📐 308 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-a-venda-no-bairro-igra-sul-em-torres-rs-de-frente-para-o-leste-aterrad-1526145577
+
