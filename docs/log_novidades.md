@@ -137730,3 +137730,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/excelente-terreno-a-venda-no-bairro-igra-sul-em-torres-rs-de-frente-para-o-leste-aterrad-1526145577
 
+
+## 🆕 1 novos anúncios — 15/08/2026 09:33
+
+- **Ótimo terreno de esquina na Praia Itapeva Norte em Torres/RS.**
+  - 💰 R$ 199.000 | 📐 325 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/otimo-terreno-de-esquina-na-praia-itapeva-norte-em-torres-rs-1526145006
+
