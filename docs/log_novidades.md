@@ -137763,3 +137763,11 @@
 
 ## ✅ Sem novidades — 16/08/2026 15:29
 
+
+## 🆕 1 novos anúncios — 16/08/2026 21:28
+
+- **TERRENO À VENDA - LOTEAMENTO PLANEJADO JARDIM AMÉRICA | PASSO DE TORRE**
+  - 💰 R$ 110.000 | 📐 322 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-loteamento-planejado-jardim-america-passo-de-torres-sc-1526801473
+
