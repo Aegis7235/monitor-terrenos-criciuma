@@ -137749,3 +137749,11 @@
   - 📍  — Içara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-lote-terreno-de-360m-pronto-para-construir-ou-investir-em-icara-sc-1526601612
 
+
+## 🆕 1 novos anúncios — 16/08/2026 03:55
+
+- **VendoTerreno balneário gaivota lagoinhas**
+  - 💰 R$ 60.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendoterreno-balneario-gaivota-lagoinhas-1526715797
+
