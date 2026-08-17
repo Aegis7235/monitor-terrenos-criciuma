@@ -137771,3 +137771,16 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-loteamento-planejado-jardim-america-passo-de-torres-sc-1526801473
 
+
+## 🆕 2 novos anúncios — 17/08/2026 03:57
+
+- **LOTES EM SANTA CATARINA**
+  - 💰 R$ 116.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-em-santa-catarina-1526166268
+
+- **Casa na praia- Balneário Gaivota SC- Praia Lagoinha**
+  - 💰 R$ 100.000 | 📐 36 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-na-praia-balneario-gaivota-sc-praia-lagoinha-1526873895
+
