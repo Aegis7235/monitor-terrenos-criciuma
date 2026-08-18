@@ -137796,3 +137796,81 @@
 
 ## ✅ Sem novidades — 18/08/2026 03:46
 
+
+## 🆕 15 novos anúncios — 18/08/2026 09:41
+
+- **Barbada Lote em Urussanga/SC**
+  - 💰 R$ 145.000 | 📐 360 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-lote-em-urussanga-sc-1527174751
+
+- **Lotes**
+  - 💰 R$ 107.100 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-1527142468
+
+- **Terreno 12x30 na mira Torres a poucos metros do mar!**
+  - 💰 R$ 125.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-12x30-na-mira-torres-a-poucos-metros-do-mar-1527069234
+
+- **Terreno 2°Quadra do Mar - Lagoa Cortada - Balneário Gaivota**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-2-quadra-do-mar-lagoa-cortada-balneario-gaivota-1527050962
+
+- **Terreno a 300 metros da praia, Balneário Camacho. JAGUARUNA, PROXIMO F**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-300-metros-da-praia-balneario-camacho-jaguaruna-proximo-farol-de-santa-marta-1527035368
+
+- **Terreno no Jardim Silvana em Içara**
+  - 💰 R$ 142.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-silvana-em-icara-1527235325
+
+- **Terreno à venda em Içara, Segunda Linha**
+  - 💰 R$ 166.000 | 📐 362 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-icara-segunda-linha-1527235257
+
+- **Serena Città - Um novo conceito de viver bem!**
+  - 💰 R$ 293.962 | 📐 366 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/serena-citta-um-novo-conceito-de-viver-bem-1527235152
+
+- **Terreno em Lagoa dos Esteves, Balneário Rincão**
+  - 💰 R$ 1.150.756 | 📐 550 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-lagoa-dos-esteves-balneario-rincao-1527234994
+
+- **Serena Città - Um novo conceito de viver bem!**
+  - 💰 R$ 289.080 | 📐 360 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/serena-citta-um-novo-conceito-de-viver-bem-1527234988
+
+- **Terreno em Lagoa dos Esteves, Balneário Rincão**
+  - 💰 R$ 1.534.342 | 📐 550 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-lagoa-dos-esteves-balneario-rincao-1527234879
+
+- **Terreno no Jardim Silvana em Içara**
+  - 💰 R$ 140.000 | 📐 361 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-jardim-silvana-em-icara-1527234878
+
+- **Terreno à venda no bairro Vila Zuleima, Criciúma - SC**
+  - 💰 R$ 900.000 | 📐 2983 m²
+  - 📍 Vila Zuleima — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-bairro-vila-zuleima-criciuma-sc-1527209305
+
+- **Lindo terreno de esquina a 50 metros do mar na Praia Paraíso em Torres**
+  - 💰 R$ 320.000 | 📐 325 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lindo-terreno-de-esquina-a-50-metros-do-mar-na-praia-paraiso-em-torres-rs-1527134899
+
+- **Terreno à venda plano com 360 m² em Paraíso - Torres - RS**
+  - 💰 R$ 90.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-plano-com-360-m-em-paraiso-torres-rs-1434509671
+
