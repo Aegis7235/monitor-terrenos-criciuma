@@ -137887,3 +137887,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-vila-sao-joao-loteamento-pedro-bez-machado-em-torres-rs-1527329616
 
+
+## 🆕 1 novos anúncios — 18/08/2026 21:32
+
+- **Terreno na Vila São João - Loteamento Pedro Bez Machado em Torres - RS**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-vila-sao-joao-loteamento-pedro-bez-machado-em-torres-rs-1527488967
+
