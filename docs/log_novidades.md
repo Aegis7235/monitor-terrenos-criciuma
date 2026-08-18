@@ -137874,3 +137874,16 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-plano-com-360-m-em-paraiso-torres-rs-1434509671
 
+
+## 🆕 2 novos anúncios — 18/08/2026 15:40
+
+- **Vendo excelente terreno a 400 metros via rápida içara sc**
+  - 💰 R$ 310.000 | 📐 1264 m²
+  - 📍 São Rafael — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-excelente-terreno-a-400-metros-via-rapida-icara-sc-1527294851
+
+- **Terreno na Vila São João - Loteamento Pedro Bez Machado em Torres - RS**
+  - 💰 R$ 95.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-vila-sao-joao-loteamento-pedro-bez-machado-em-torres-rs-1527329616
+
