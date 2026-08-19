@@ -137934,3 +137934,31 @@
 
 ## ✅ Sem novidades — 19/08/2026 15:33
 
+
+## 🆕 5 novos anúncios — 19/08/2026 21:33
+
+- **Terreno escriturado no Loteamento Santino Candiotto em Cocal do Sul**
+  - 💰 R$ 185.000 | 📐 409 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-no-loteamento-santino-candiotto-em-cocal-do-sul-1527782457
+
+- **Lote Urbano Lucia Giassi Cocal do Sul 404 m2**
+  - 💰 R$ 200.000 | 📐 404 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-urbano-lucia-giassi-cocal-do-sul-404-m2-1527675234
+
+- **Terreno escriturado no Loteamento Vila Maria em Jaguaruna**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-no-loteamento-vila-maria-em-jaguaruna-1527782944
+
+- **Terreno escriturado com energia e água já instalados na praia do Campo**
+  - 💰 R$ 275.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-com-energia-e-agua-ja-instalados-na-praia-do-campo-bom-1527782633
+
+- **Terreno em  Siderópolis**
+  - 💰 R$ 134.900 | 📐 400 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sideropolis-1527638233
+
