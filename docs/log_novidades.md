@@ -137895,3 +137895,36 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-vila-sao-joao-loteamento-pedro-bez-machado-em-torres-rs-1527488967
 
+
+## 🆕 6 novos anúncios — 19/08/2026 03:56
+
+- **SÍTIO - TERRENO - PRÓXIMO A 101 - RODOVIA LUIZ ROSSO - com piscina**
+  - 💰 R$ 1.060.000 | 📐 3000 m²
+  - 📍 Bosque do Repouso — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-terreno-proximo-a-101-rodovia-luiz-rosso-com-piscina-1527501755
+
+- **Excelente terreno!!!**
+  - 💰 R$ 300.000 | 📐 1203 m²
+  - 📍 Boa Vista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-1527501682
+
+- **Lote a venda no Balneário Esplanada**
+  - 💰 R$ 90.000 | 📐 375 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-a-venda-no-balneario-esplanada-1527506258
+
+- **Sítios dos sonhos**
+  - 💰 R$ 1.050.000 | 📐 6600 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitios-dos-sonhos-1527581921
+
+- **TERRENO PRAIA ITAPEVA - TORRES RS**
+  - 💰 R$ 120.000 | 📐 262 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-itapeva-torres-rs-1524143332
+
+- **Terreno à venda Itapeva Torres/RS**
+  - 💰 R$ 281.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-itapeva-torres-rs-1524132193
+
