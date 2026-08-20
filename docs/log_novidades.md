@@ -137965,3 +137965,36 @@
 
 ## ✅ Sem novidades — 20/08/2026 03:48
 
+
+## 🆕 6 novos anúncios — 20/08/2026 09:43
+
+- **Terreno Esquina em Nova Torres**
+  - 💰 R$ 60.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-em-nova-torres-1527868438
+
+- **Terreno (Lote) na cidade de turvo SC - Bairro São Felipe**
+  - 💰 R$ 130.000 | 📐 343 m²
+  - 📍  — Turvo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-na-cidade-de-turvo-sc-bairro-sao-felipe-1527869095
+
+- **Terreno Rural 2.6 ha**
+  - 💰 R$ 340.000 | 📐 26000 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rural-2-6-ha-1527866982
+
+- **Terreno na Praia Nova Torres em Balneario Gaivota**
+  - 💰 R$ 69.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-nova-torres-em-balneario-gaivota-1527865496
+
+- **Sitio com açude e galpão**
+  - 💰 R$ 350.000 | 📐 1500000 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-com-acude-e-galpao-1527840322
+
+- **Grande oportunidade  Terreno no Salinas, Torres - RS | Licitação Abert**
+  - 💰 R$ 226.246 | 📐 50 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/grande-oportunidade-terreno-no-salinas-torres-rs-licitacao-aberta-1527917197
+
