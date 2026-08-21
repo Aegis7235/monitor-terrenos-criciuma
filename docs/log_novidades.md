@@ -138010,3 +138010,96 @@
 
 ## ✅ Sem novidades — 21/08/2026 09:38
 
+
+## 🆕 18 novos anúncios — 21/08/2026 15:44
+
+- **Acqua Village Condomínio fechado no Balneario Rincão**
+  - 💰 R$ 415.000 | 📐 432 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/acqua-village-condominio-fechado-no-balneario-rincao-1528248902
+
+- **Blue Lagoon condomínio fechado na Lagoa dos Esteves - Balneário Rincão**
+  - 💰 R$ 650.000 | 📐 556 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/blue-lagoon-condominio-fechado-na-lagoa-dos-esteves-balneario-rincao-sc-1528248262
+
+- **Terreno Condomínio Águas do Atlântico Balneário Rincão - SC**
+  - 💰 R$ 390.000 | 📐 480 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-aguas-do-atlantico-balneario-rincao-sc-1528248264
+
+- **Terreno a venda no Condomínio das Palmeiras em Içara com 800 m2**
+  - 💰 R$ 980.000 | 📐 800 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-das-palmeiras-em-icara-com-800-m2-1528248121
+
+- **Terreno praia Sumaré 2 passo torres sc**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-sumare-2-passo-torres-sc-1528120995
+
+- **Lote na Quarta Linha - Criciúma/SC | 360 m²**
+  - 💰 R$ 105.000 | 📐 360 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-quarta-linha-criciuma-sc-360-m-1528062735
+
+- **TERRENO À VENDA | CONDOMÍNIO TRÊS RIBEIRÕES  CRICIÚMA**
+  - 💰 R$ 460.000 | 📐 560 m²
+  - 📍 Bosque do Repouso — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-condominio-tres-ribeiroes-criciuma-1527986710
+
+- **Vendo Terreno na Içara**
+  - 💰 R$ 114.900 | 📐 360 m²
+  - 📍 Operária Nova — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-icara-1527965658
+
+- **OPORTUNIDADE DE INVESTIMENTO PRAIA PAIQUERE**
+  - 💰 R$ 140.000 | 📐 390 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-praia-paiquere-1527956419
+
+- **Terreno a venda Loteamento Tramontin em Urussanga Últimos Lotes Dispon**
+  - 💰 R$ 198.000 | 📐 360 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-tramontin-em-urussanga-ultimos-lotes-disponiveis-1528250228
+
+- **Terreno a venda Condomínio Terraville**
+  - 💰 R$ 520.000 | 📐 567 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-condominio-terraville-1528248245
+
+- **Terreno Condominio Esmeralda Premium 800 metros quadrados em - Criciúm**
+  - 💰 R$ 929.000 | 📐 800 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-esmeralda-premium-800-metros-quadrados-em-criciuma-sc-1528248192
+
+- **Terreno em condomínio fechado Residencial Montebello**
+  - 💰 R$ 480.000 | 📐 590 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-residencial-montebello-1528248175
+
+- **Área de Terra com Excelente Potencial  Acesso Asfaltado**
+  - 💰 R$ 1.550.000 | 📐 93600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/area-de-terra-com-excelente-potencial-acesso-asfaltado-1528170771
+
+- **Terreno a venda em Condominio Fechado Residencial Solar dos Ipês**
+  - 💰 R$ 495.000 | 📐 650 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-residencial-solar-dos-ipes-1528248461
+
+- **Terreno em Condomínio fechado a venda Bela Vista Exclusive Residence**
+  - 💰 R$ 1.700.000 | 📐 870 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-a-venda-bela-vista-exclusive-residence-1528248456
+
+- **Terreno a venda em condomínio fechado em Criciúma Villagio Verde**
+  - 💰 R$ 570.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-condominio-fechado-em-criciuma-villagio-verde-1528248307
+
+- **40,000,00 VENDO TERRENO ACEITO MOTO ACIMA DE 300 CILINDRADAS .**
+  - 💰 R$ 40.000 | 📐 320 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/40-000-00-vendo-terreno-aceito-moto-acima-de-300-cilindradas-1528111033
+
