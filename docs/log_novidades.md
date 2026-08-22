@@ -138117,3 +138117,6 @@
   - 📍  — Cocal do Sul
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-vende-se-lote-no-alphaville-cocal-do-sul-1528486561
 
+
+## ✅ Sem novidades — 22/08/2026 15:29
+
