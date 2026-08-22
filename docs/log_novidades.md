@@ -138109,3 +138109,11 @@
 
 ## ✅ Sem novidades — 22/08/2026 03:43
 
+
+## 🆕 1 novos anúncios — 22/08/2026 09:35
+
+- **OPORTUNIDADE! VENDE-SE LOTE NO ALPHAVILLE COCAL DO SUL**
+  - 💰 R$ 210.000 | 📐 405 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-vende-se-lote-no-alphaville-cocal-do-sul-1528486561
+
