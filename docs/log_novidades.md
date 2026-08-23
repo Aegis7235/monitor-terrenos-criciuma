@@ -138123,3 +138123,11 @@
 
 ## ✅ Sem novidades — 22/08/2026 21:23
 
+
+## 🆕 1 novos anúncios — 23/08/2026 03:54
+
+- **Terreno Rodovia Antônio Pedro Cândido Balneário Rincao - Pego Carro em**
+  - 💰 R$ 150.000 | 📐 364 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-rodovia-antonio-pedro-candido-balneario-rincao-pego-carro-em-negocio-1480319565
+
