@@ -138134,3 +138134,16 @@
 
 ## ✅ Sem novidades — 23/08/2026 09:35
 
+
+## 🆕 2 novos anúncios — 23/08/2026 15:30
+
+- **Terreno Estrela do Mar -Torres RS**
+  - 💰 R$ 75.000 | 📐 350 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-estrela-do-mar-torres-rs-1450534020
+
+- **Terreno Praia Real -Torres**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-real-torres-1467693188
+
