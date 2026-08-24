@@ -138150,3 +138150,21 @@
 
 ## ✅ Sem novidades — 23/08/2026 21:23
 
+
+## 🆕 3 novos anúncios — 24/08/2026 04:02
+
+- **Lindo terreno em Passo de Torres SC**
+  - 💰 R$ 295.000 | 📐 457 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-terreno-em-passo-de-torres-sc-1528871759
+
+- **Terreno a venda**
+  - 💰 R$ 120.000 | 📐 326 m²
+  - 📍 Laranjinha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1528842481
+
+- **Venda**
+  - 💰 R$ 75.000 | 📐 800 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-1528880994
+
