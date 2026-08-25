@@ -138177,3 +138177,36 @@
 
 ## ✅ Sem novidades — 24/08/2026 21:31
 
+
+## 🆕 6 novos anúncios — 25/08/2026 03:57
+
+- **Terreno de Esquina em Içara Próximo ao Rincão**
+  - 💰 R$ 147.000 | 📐 407 m²
+  - 📍 Vila Nova Esperança — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-icara-proximo-ao-rincao-1529104374
+
+- **LOTE - Lote 14, Quadra C, Loteamento Jardim Dal Pont, Rua Projetada A,**
+  - 💰 R$ 262.500 | 📐 50 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-lote-14-quadra-c-loteamento-jardim-dal-pont-rua-projetada-a-criciuma-sc-area-d-1529087347
+
+- **LOTE - Lote 16, Quadra C, Loteamento Jardim Dal Pont, Rua Projetada A,**
+  - 💰 R$ 262.500 | 📐 50 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-lote-16-quadra-c-loteamento-jardim-dal-pont-rua-projetada-a-esquina-com-rua-pro-1529087151
+
+- **Excelente Terreno à Venda no Bairro Próspera  Criciúma/SC**
+  - 💰 R$ 350.000 | 📐 425 m²
+  - 📍 Próspera — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-a-venda-no-bairro-prospera-criciuma-sc-1405335400
+
+- **Ótimo terreno a venda no bairro lagoão, Araranguá SC**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-a-venda-no-bairro-lagoao-ararangua-sc-1528933341
+
+- **Lote Cocal do Sul**
+  - 💰 R$ 145.000 | 📐 405 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-cocal-do-sul-1529068527
+
