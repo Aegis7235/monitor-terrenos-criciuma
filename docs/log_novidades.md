@@ -138213,3 +138213,16 @@
 
 ## ✅ Sem novidades — 25/08/2026 09:42
 
+
+## 🆕 2 novos anúncios — 25/08/2026 15:45
+
+- **OPORTUNIDADE PARA INVESTIDOR E CONSTRUTOR - ARARANGUÁ/SC**
+  - 💰 R$ 380 | 📐 1032 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-investidor-e-construtor-ararangua-sc-1529316661
+
+- **Terreno à venda no Condomínio Reserva das Águas, 451 m² - Torres RS**
+  - 💰 R$ 320.000 | 📐 451 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-reserva-das-aguas-451-m-torres-rs-1529292572
+
