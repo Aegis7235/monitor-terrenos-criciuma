@@ -138226,3 +138226,16 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-reserva-das-aguas-451-m-torres-rs-1529292572
 
+
+## 🆕 2 novos anúncios — 25/08/2026 21:35
+
+- **Terreno à venda, 377 m² por R$ 160.000,00 - Urussanguinha - Araranguá/**
+  - 💰 R$ 160.000 | 📐 378 m²
+  - 📍 Urussanguinha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-377-m-por-r-160-000-00-urussanguinha-ararangua-sc-1463717289
+
+- **Terreno no Loteamento Jardim América - Passo de Torres(SC)**
+  - 💰 R$ 82.500 | 📐 209 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-america-passo-de-torres-sc-1529454577
+
