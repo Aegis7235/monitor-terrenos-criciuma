@@ -138239,3 +138239,16 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-jardim-america-passo-de-torres-sc-1529454577
 
+
+## 🆕 2 novos anúncios — 26/08/2026 04:00
+
+- **REFÚGIO DAS ÁGUAS**
+  - 💰 R$ 300.000 | 📐 595 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/refugio-das-aguas-1529515429
+
+- **Excelente Terreno no Comerciário**
+  - 💰 R$ 460.000 | 📐 525 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-no-comerciario-1475985355
+
