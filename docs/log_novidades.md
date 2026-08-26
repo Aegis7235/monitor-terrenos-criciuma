@@ -138252,3 +138252,66 @@
   - 📍 Comerciário — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-no-comerciario-1475985355
 
+
+## 🆕 12 novos anúncios — 26/08/2026 09:49
+
+- **Terreno à venda, 551 m² por R$ 1.012.273,00 - Lagoa dos Esteves - Baln**
+  - 💰 R$ 1.012.273 | 📐 551 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-551-m-por-r-1-012-273-00-lagoa-dos-esteves-balneario-rincao-sc-1529552232
+
+- **Terreno à venda, 397 m² por R$ 132.000,00 - Jardim Silvana - Içara/SC**
+  - 💰 R$ 132.000 | 📐 398 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-397-m-por-r-132-000-00-jardim-silvana-icara-sc-1529552118
+
+- **Terreno à venda, 362 m² por R$ 155.000,00 - Segunda Linha - Içara/SC**
+  - 💰 R$ 155.000 | 📐 362 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-362-m-por-r-155-000-00-segunda-linha-icara-sc-1529552095
+
+- **Terreno à venda no Centro de Balneário Rincão!**
+  - 💰 R$ 320.000 | 📐 300 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-centro-de-balneario-rincao-1529550034
+
+- **Terreno no Loteamento Residencial Montello à venda, 472,95 m² por R$ 1**
+  - 💰 R$ 191.120 | 📐 473 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-residencial-montello-a-venda-472-95-m-por-r-191-119-64-centro-1529552079
+
+- **Terreno à venda, 389 m² por R$ 110.000,00 - Centro - Morro da Fumaça/S**
+  - 💰 R$ 110.000 | 📐 390 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-389-m-por-r-110-000-00-centro-morro-da-fumaca-sc-1529552151
+
+- **Terreno à venda, 364 m² por R$ 168.000,00 - Centro - Nova Veneza/SC**
+  - 💰 R$ 168.000 | 📐 364 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-364-m-por-r-168-000-00-centro-nova-veneza-sc-1529552152
+
+- **Terreno no Residenziale Quartiere Castello à venda, 546,08 m² por R$ 3**
+  - 💰 R$ 352.000 | 📐 546 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-residenziale-quartiere-castello-a-venda-546-08-m-por-r-352-000-00-centro-1529552083
+
+- **Comercial as margens da BR-101**
+  - 💰 R$ 3.500.000 | 📐 28000 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/comercial-as-margens-da-br-101-1529563821
+
+- **Terreno à venda, 1005 m² por R$ 329.000,00 - Quarta Linha - Criciúma/S**
+  - 💰 R$ 329.000 | 📐 1005 m²
+  - 📍 Quarta Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1005-m-por-r-329-000-00-quarta-linha-criciuma-sc-1529552205
+
+- **Terreno no Loteamento Parque das Figueiras à venda, 360,00 m² por R$ 1**
+  - 💰 R$ 169.636 | 📐 360 m²
+  - 📍 Jardim Angélica — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-parque-das-figueiras-a-venda-360-00-m-por-r-169-636-00-jardim-a-1529552176
+
+- **Terreno venda Torres RS Reserva das Águas**
+  - 💰 R$ 295.000 | 📐 499 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-torres-rs-reserva-das-aguas-1529564959
+
