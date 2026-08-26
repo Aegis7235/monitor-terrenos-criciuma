@@ -138315,3 +138315,16 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-torres-rs-reserva-das-aguas-1529564959
 
+
+## 🆕 2 novos anúncios — 26/08/2026 16:24
+
+- **Terreno na praia Sumaré em Balneário gaivota/SC**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-sumare-em-balneario-gaivota-sc-1529567430
+
+- **Sítio a venda com fundo para lagoa de fora - Balneário Gaivota/SC**
+  - 💰 R$ 1.299.000 | 📐 38000 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-com-fundo-para-lagoa-de-fora-balneario-gaivota-sc-1529565570
+
