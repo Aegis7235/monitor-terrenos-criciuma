@@ -138341,3 +138341,46 @@
   - 📍 Bosque do Repouso — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-terreno-proximo-a-101-rodovia-luiz-rosso-com-piscina-1529768403
 
+
+## 🆕 8 novos anúncios — 27/08/2026 14:02
+
+- **Terreno em Condomínio Fechado, na cidade de Criciúma/SC.**
+  - 💰 R$ 440.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-fechado-na-cidade-de-criciuma-sc-1529820849
+
+- **Venda Terrenos, Bairro Barra Velha - Passo de Torres - SC**
+  - 💰 R$ 285.000 | 📐 200 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terrenos-bairro-barra-velha-passo-de-torres-sc-1528995607
+
+- **Terreno a venda frente Mar Balneário Rincão**
+  - 💰 R$ 1.150.000 | 📐 386 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-frente-mar-balneario-rincao-1529878611
+
+- **Vendo linda chácara troco negociamos  leiam a descrição toda**
+  - 💰 R$ 100.000 | 📐 10000 m²
+  - 📍  — Lauro Müller
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-linda-chacara-troco-negociamos-leiam-a-descricao-toda-1529882762
+
+- **OPORTUNIDADE DE INVESTIMENTO**
+  - 💰 R$ 400.000 | 📐 540 m²
+  - 📍 Área Rural de Araranguá — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-1529872252
+
+- **Venda - Terrenos - Estrela do Mar - Torres - RS**
+  - 💰 R$ 85.000 | 📐 363 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-terrenos-estrela-do-mar-torres-rs-1529530939
+
+- **Condomínio Reserva das Aguas - Venda - Terrenos - Centro - Torres - RS**
+  - 💰 R$ 299.000 | 📐 423 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/condominio-reserva-das-aguas-venda-terrenos-centro-torres-rs-1529205706
+
+- **Venda - Terrenos - Curtume - Torres - RS**
+  - 💰 R$ 165.000 | 📐 257 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-terrenos-curtume-torres-rs-1529205669
+
