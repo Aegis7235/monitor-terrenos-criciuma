@@ -138328,3 +138328,16 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-a-venda-com-fundo-para-lagoa-de-fora-balneario-gaivota-sc-1529565570
 
+
+## 🆕 2 novos anúncios — 27/08/2026 00:37
+
+- **TERRENOS A VENDA MORRO DA FUMAÇA - LOTEAMENTO GRAZIELA**
+  - 💰 R$ 375.000 | 📐 612 m²
+  - 📍 Distrito Estação Cocal — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-morro-da-fumaca-loteamento-graziela-1529719380
+
+- **SÍTIO - TERRENO - PRÓXIMO A 101 - RODOVIA LUIZ ROSSO - com piscina**
+  - 💰 R$ 1.060.000 | 📐 3000 m²
+  - 📍 Bosque do Repouso — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-terreno-proximo-a-101-rodovia-luiz-rosso-com-piscina-1529768403
+
