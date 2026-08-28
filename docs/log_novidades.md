@@ -138384,3 +138384,16 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-terrenos-curtume-torres-rs-1529205669
 
+
+## 🆕 2 novos anúncios — 28/08/2026 00:22
+
+- **Fantástico terreno com vista a 2 minutos do centro de Criciúma**
+  - 💰 R$ 254.000 | 📐 465 m²
+  - 📍 Operária Nova — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fantastico-terreno-com-vista-a-2-minutos-do-centro-de-criciuma-1530046532
+
+- **Terreno Condomínio Ilhas Park em Torres - RS**
+  - 💰 R$ 2.990.000 | 📐 780 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-ilhas-park-em-torres-rs-1529940930
+
