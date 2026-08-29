@@ -138400,3 +138400,31 @@
 
 ## ✅ Sem novidades — 28/08/2026 15:06
 
+
+## 🆕 5 novos anúncios — 29/08/2026 03:12
+
+- **TERRENO DE ESQUINA**
+  - 💰 R$ 82.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-1530412826
+
+- **TERRENO À VENDA NO JARDIM ULTRAMAR  BALNEÁRIO GAIVOTA!**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-no-jardim-ultramar-balneario-gaivota-1530412133
+
+- **Terreno ( Em loteamento) à Venda, 360m² - Bairro Linha Batista em Cric**
+  - 💰 R$ 9.900 | 📐 360 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-360m-bairro-linha-batista-em-criciuma-1530367159
+
+- **Compro Lote Balneário Gaivota**
+  - 💰 R$ 50.000 | 📐 ? m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/compro-lote-balneario-gaivota-1530310939
+
+- **Terreno no Reserva das Águas Torres RS**
+  - 💰 R$ 450.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1530111663
+
