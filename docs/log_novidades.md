@@ -138428,3 +138428,41 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1530111663
 
+
+## 🆕 7 novos anúncios — 29/08/2026 14:21
+
+- **Terreno em Morro Estevão, Criciúma/SC**
+  - 💰 R$ 3.900 | 📐 20000 m²
+  - 📍 Morro Estevão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-morro-estevao-criciuma-sc-1530449623
+
+- **Terreno em Urussanga SC, com vista maravilhosa para quem quer descansa**
+  - 💰 R$ 300.000 | 📐 32000 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-urussanga-sc-com-vista-maravilhosa-para-quem-quer-descansar-da-cidade-1530524483
+
+- **Terreno, na Lagoa da Serra**
+  - 💰 R$ 150.000 | 📐 735 m²
+  - 📍 Lagoa da Serra — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-lagoa-da-serra-1530492195
+
+- **Terreno, na Lagoa da Serra**
+  - 💰 R$ 150.000 | 📐 735 m²
+  - 📍 Lagoa da Serra — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-lagoa-da-serra-1530492194
+
+- **Terrenos PARCELADOS em Balneário Gaivota-SC**
+  - 💰 R$ 16.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-em-balneario-gaivota-sc-1530510632
+
+- **Terreno à venda, 300 m² por R$ 90.000,00 - Tapera - Passo de Torres/SC**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-90-000-00-tapera-passo-de-torres-sc-1530485668
+
+- **terreno plano em torres**
+  - 💰 R$ 125.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-plano-em-torres-1530449511
+
