@@ -138478,3 +138478,21 @@
 
 ## ✅ Sem novidades — 30/08/2026 14:23
 
+
+## 🆕 3 novos anúncios — 30/08/2026 18:35
+
+- **Terreno à venda, 360 m² por R$ 160.713,00 - Rio Maina - Criciúma/SC**
+  - 💰 R$ 160.713 | 📐 360 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-160-713-00-rio-maina-criciuma-sc-1530746074
+
+- **Terreno à venda, 360 m² por R$ 163.864,00 - Archimedes Naspolini - Cri**
+  - 💰 R$ 163.864 | 📐 360 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-163-864-00-archimedes-naspolini-criciuma-sc-1530745805
+
+- **Terreno à venda, 360 m² por R$ 137.886,00 - Quarta Linha - Criciúma/SC**
+  - 💰 R$ 137.886 | 📐 360 m²
+  - 📍 Dagostin — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-137-886-00-quarta-linha-criciuma-sc-1530745789
+
