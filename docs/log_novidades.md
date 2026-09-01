@@ -138626,3 +138626,11 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-em-bella-torres-1531309807
 
+
+## 🆕 1 novos anúncios — 01/09/2026 14:06
+
+- **Casa de condomínio para venda tem 756 metros quadrados em Centro - Cri**
+  - 💰 R$ 350.000 | 📐 756 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-condominio-para-venda-tem-756-metros-quadrados-em-centro-criciuma-sc-1531381536
+
