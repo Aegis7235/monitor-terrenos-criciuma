@@ -138634,3 +138634,26 @@
   - 📍 Centro — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-condominio-para-venda-tem-756-metros-quadrados-em-centro-criciuma-sc-1531381536
 
+
+## 🆕 4 novos anúncios — 01/09/2026 18:22
+
+- **Terreno de esquina - Escriturado**
+  - 💰 R$ 140.000 | 📐 424 m²
+  - 📍 Primeira Linha Pontilhão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-escriturado-1531501543
+
+- **TERRENO À VENDA**
+  - 💰 R$ 190.000 | 📐 420 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-1531414559
+
+- **Ótimo terreno para loja de carro na Rod. Sebastião Toledo dos Santos**
+  - 💰 R$ 390.000 | 📐 495 m²
+  - 📍 Maria Céu — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-para-loja-de-carro-na-rod-sebastiao-toledo-dos-santos-1531396457
+
+- **TERRENO 300m² COM ÁGUA**
+  - 💰 R$ 25.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m-com-agua-1531500733
+
