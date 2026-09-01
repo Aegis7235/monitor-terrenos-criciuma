@@ -138505,3 +138505,76 @@
 
 ## ✅ Sem novidades — 31/08/2026 20:42
 
+
+## 🆕 14 novos anúncios — 01/09/2026 00:33
+
+- **TERRENO BAIRRO JUSSARA**
+  - 💰 R$ 175.000 | 📐 ? m²
+  - 📍 Jussara — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-jussara-1531051192
+
+- **Kit Net feita em Container**
+  - 💰 R$ 34.999 | 📐 ? m²
+  - 📍  — Siderópolis
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/kit-net-feita-em-container-1531145401
+
+- **TERRENO BALNEÁRIO GAIVOTA SC**
+  - 💰 R$ 200.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-balneario-gaivota-sc-1531052948
+
+- **Terreno Bairro Szanta Catarina - Araranguá -SC**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍 Santa Catarina — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-szanta-catarina-ararangua-sc-1531005364
+
+- **Terreno Cond. Montebello 671m²**
+  - 💰 R$ 420.000 | 📐 671 m²
+  - 📍 Cruzeiro do Sul — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-cond-montebello-671m-1530930798
+
+- **Terreno comercial PLANO com 15m de frente para Álvaro Catão ACEITA tro**
+  - 💰 R$ 490.000 | 📐 475 m²
+  - 📍 Operária Nova — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-plano-com-15m-de-frente-para-alvaro-catao-aceita-troca-por-apartamento-1530930260
+
+- **Terreno Comercial PLANO 1.515m² próximo centro Criciúma ACEITA entrada**
+  - 💰 R$ 820.000 | 📐 1515 m²
+  - 📍 Coloninha Zilli — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-plano-1-515m-proximo-centro-criciuma-aceita-entrada-parcelamento-direto-1530926860
+
+- **Vende se um lote em campo bom jaguaruna próximo ao bar do Dalmo**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-um-lote-em-campo-bom-jaguaruna-proximo-ao-bar-do-dalmo-1530879547
+
+- **Terreno em Sanga Funda - próximo a Sorato**
+  - 💰 R$ 43.000 | 📐 368 m²
+  - 📍 Sanga Funda — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-sanga-funda-proximo-a-sorato-1530879146
+
+- **Terreno (Em condomínio) à Venda, 608m² - Bairro Jardim das Palmeiras e**
+  - 💰 R$ 520.000 | 📐 608 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-608m-bairro-jardim-das-palmeiras-em-cocal-do-sul-1531223915
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-1531175065
+
+- **Terreno - Venda - São João do Sul, Santa Catarina**
+  - 💰 R$ 35.000 | 📐 300 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-sao-joao-do-sul-santa-catarina-1531237387
+
+- **Oportunidade - Terreno Escriturado, Vila São Cristóvão, Santa Rosa do **
+  - 💰 R$ 60.000 | 📐 278 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-escriturado-vila-sao-cristovao-santa-rosa-do-sul-1531237338
+
+- **Terreno na praia**
+  - 💰 R$ 62.900 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-1526547639
+
