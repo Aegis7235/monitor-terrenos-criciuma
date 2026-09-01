@@ -138578,3 +138578,51 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-praia-1526547639
 
+
+## 🆕 9 novos anúncios — 01/09/2026 08:32
+
+- **OPORTUNIDADE DE INVESTIMENTO  TERRENO COM EXCELENTE LOCALIZAÇÃO**
+  - 💰 R$ 87.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-terreno-com-excelente-localizacao-1531273159
+
+- **DOIS TERRENOS JUNTOS NO BAIRRO AREIAS CLARAS BAL. GAIVOTA SC**
+  - 💰 R$ 160.000 | 📐 312 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-juntos-no-bairro-areias-claras-bal-gaivota-sc-1531273134
+
+- **Terrenos à venda no Águas do Atlântico, Balneário Rincão, a partir de **
+  - 💰 R$ 390.000 | 📐 420 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-aguas-do-atlantico-balneario-rincao-a-partir-de-420-m-1531327914
+
+- **Terreno em Condomínio frente mar em Balneário Rincão**
+  - 💰 R$ 450.000 | 📐 420 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-frente-mar-em-balneario-rincao-1531327892
+
+- **Terrenos frente-mar no Condomínio Acqua Village, Balneário Rincão/SC**
+  - 💰 R$ 468.000 | 📐 502 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-frente-mar-no-condominio-acqua-village-balneario-rincao-sc-1531327765
+
+- **Terreno frente-mar no Condomínio Acqua Village, Balneário Rincão, com **
+  - 💰 R$ 730.000 | 📐 783 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-frente-mar-no-condominio-acqua-village-balneario-rincao-com-783-m-1531327694
+
+- **Terrenos à venda no Blue Lagoon, Balneário Rincão, de 550,04m² Lagoa d**
+  - 💰 R$ 1.031.000 | 📐 550 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-blue-lagoon-balneario-rincao-de-550-04m-lagoa-dos-esteves-1531327615
+
+- **Terreno em Condomínio frente mar em Balneário Rincão**
+  - 💰 R$ 430.000 | 📐 450 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-frente-mar-em-balneario-rincao-1531327582
+
+- **Terreno de esquina à venda em Bella Torres!**
+  - 💰 R$ 180.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-em-bella-torres-1531309807
+
