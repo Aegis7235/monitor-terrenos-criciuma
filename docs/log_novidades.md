@@ -138684,3 +138684,36 @@
 
 ## ✅ Sem novidades — 02/09/2026 18:28
 
+
+## 🆕 6 novos anúncios — 02/09/2026 23:12
+
+- **Terreno Bairro Aurora Içara - SC**
+  - 💰 R$ 120.000 | 📐 376 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-aurora-icara-sc-1531925783
+
+- **Chácaras a Venda Parcelada Direto no Boleto**
+  - 💰 R$ 350.000 | 📐 1354 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/chacaras-a-venda-parcelada-direto-no-boleto-1531768839
+
+- **Terreno de Esquina em Balneário Gaivota - Bairro Sumaré**
+  - 💰 R$ 47.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-balneario-gaivota-bairro-sumare-1531766007
+
+- **Terreno a venda no Loteamento Caravelle em Balneário BellaTorres - Pas**
+  - 💰 R$ 170.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-loteamento-caravelle-em-balneario-bellatorres-passo-de-toor-1531748773
+
+- **Terreno 562m - Avenida - Centro**
+  - 💰 R$ 159.000 | 📐 562 m²
+  - 📍  — Jacinto Machado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-562m-avenida-centro-1531886070
+
+- **Sítio / Pesque e Pague à venda em Santa Rosa do Sul**
+  - 💰 R$ 360.000 | 📐 3770 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-pesque-e-pague-a-venda-em-santa-rosa-do-sul-1531796874
+
