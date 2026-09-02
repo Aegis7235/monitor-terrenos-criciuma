@@ -138660,3 +138660,21 @@
 
 ## ✅ Sem novidades — 01/09/2026 23:13
 
+
+## 🆕 3 novos anúncios — 02/09/2026 07:50
+
+- **Vendo Terreno a 300 m do mar na Praia Sumaté em Balneário Gaivota, SC**
+  - 💰 R$ 75.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-a-300-m-do-mar-na-praia-sumate-em-balneario-gaivota-sc-1531584006
+
+- **Vendo sitio com casas**
+  - 💰 R$ 650.000 | 📐 25000 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-com-casas-1531632891
+
+- **Terreno**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1531623736
+
