@@ -138720,3 +138720,26 @@
 
 ## ✅ Sem novidades — 03/09/2026 07:52
 
+
+## 🆕 4 novos anúncios — 03/09/2026 13:27
+
+- **Terreno ( Em loteamento) à Venda, 312m² - Bairro Ana Maria em Criciúma**
+  - 💰 R$ 389.000 | 📐 312 m²
+  - 📍 Cristo Redentor — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-loteamento-a-venda-312m-bairro-ana-maria-em-criciuma-1532038154
+
+- **Excelente Sítio para venda!**
+  - 💰 R$ 3.500.000 | 📐 5627 m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-sitio-para-venda-1532024119
+
+- **TERRENO DE 300 m² A 800 METROS DA PRAIA**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300-m-a-800-metros-da-praia-1532004832
+
+- **Terreno 540m² privativos, em condomínio fechado em Torres**
+  - 💰 R$ 800.000 | 📐 540 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-540m-privativos-em-condominio-fechado-em-torres-1531958695
+
