@@ -138743,3 +138743,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-540m-privativos-em-condominio-fechado-em-torres-1531958695
 
+
+## 🆕 1 novos anúncios — 03/09/2026 18:24
+
+- **2 TERRENOS DE ESQUINA JUNTOS - 600m² -BALNEÁRIO GAIVOTA/SC**
+  - 💰 R$ 178.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-de-esquina-juntos-600m-balneario-gaivota-sc-1532134496
+
