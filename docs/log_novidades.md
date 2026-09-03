@@ -138751,3 +138751,31 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-de-esquina-juntos-600m-balneario-gaivota-sc-1532134496
 
+
+## 🆕 5 novos anúncios — 03/09/2026 23:09
+
+- **Terrenos em ótimas condições**
+  - 💰 R$ 100.000 | 📐 300 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-em-otimas-condicoes-1532139490
+
+- **Terreno para comprar Passo de Torres**
+  - 💰 R$ 166.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-comprar-passo-de-torres-1532257583
+
+- **Terreno para comprar Passo de Torres**
+  - 💰 R$ 230.000 | 📐 309 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-comprar-passo-de-torres-1532257041
+
+- **Terreno para comprar Passo de Torres**
+  - 💰 R$ 217.000 | 📐 312 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-comprar-passo-de-torres-1532256176
+
+- **Terreno para comprar Passo de Torres**
+  - 💰 R$ 187.000 | 📐 296 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-comprar-passo-de-torres-1532255671
+
