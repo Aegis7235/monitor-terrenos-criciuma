@@ -138788,3 +138788,116 @@
 
 ## ✅ Sem novidades — 04/09/2026 18:17
 
+
+## 🆕 22 novos anúncios — 04/09/2026 22:58
+
+- **Terreno no Centro de Balneário Rincão**
+  - 💰 R$ 600.000 | 📐 450 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-centro-de-balneario-rincao-1532354746
+
+- **Terrenos à venda no Loteamento Jardim das Flores em Santa Cruz, Forqui**
+  - 💰 R$ 131.000 | 📐 360 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-loteamento-jardim-das-flores-em-santa-cruz-forquilhinha-sc-1532369445
+
+- **Terrenos à venda no Loteamento Vêneto, Içara, com 360 m²**
+  - 💰 R$ 140.000 | 📐 360 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-no-loteamento-veneto-icara-com-360-m-1532369420
+
+- **Terreno plano em Santa Catarina, Criciúma**
+  - 💰 R$ 320.000 | 📐 536 m²
+  - 📍 Santa Catarina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-plano-em-santa-catarina-criciuma-1532354825
+
+- **Terreno Comercial**
+  - 💰 R$ 420.000 | 📐 891 m²
+  - 📍 São Francisco — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-1532354778
+
+- **Espaço e Elegância em Cada Detalhe**
+  - 💰 R$ 366.000 | 📐 450 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/espaco-e-elegancia-em-cada-detalhe-1532354731
+
+- **Ótimo Terreno para Investimento**
+  - 💰 R$ 4.000.000 | 📐 80000 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-para-investimento-1532354673
+
+- **Ótimo terreno de esquina em Içara**
+  - 💰 R$ 290.000 | 📐 459 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/otimo-terreno-de-esquina-em-icara-1532354637
+
+- **CASA DE CAMPO EM PASSO DE TORRES SC**
+  - 💰 R$ 1.590.000 | 📐 3273 m²
+  - 📍 Centro — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-campo-em-passo-de-torres-sc-1532308755
+
+- **Terreno Praia Tupinambá Terreno**
+  - 💰 R$ 60.000 | 📐 12 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-tupinamba-terreno-1532320266
+
+- **Terreno Ilhas Park - A8 TERRENO**
+  - 💰 R$ 690.000 | 📐 12 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-ilhas-park-a8-terreno-1532320065
+
+- **3 LOTES- Reserva das Águas | Torres-Rs 3 LOTES**
+  - 💰 R$ 3.000.000 | 📐 12 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/3-lotes-reserva-das-aguas-torres-rs-3-lotes-1532319975
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 2.500.000 | 📐 391 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1532312995
+
+- **Terreno Condomínio Lake Village - Quadra/lote M13 Terreno**
+  - 💰 R$ 390.000 | 📐 12 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-lake-village-quadra-lote-m13-terreno-1532310524
+
+- **Área Comercial na Av. Castelo Branco TERRENO**
+  - 💰 R$ 7.900.000 | 📐 12 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-comercial-na-av-castelo-branco-terreno-1532310527
+
+- **Terreno na Avenida Castelo Branco Terreno**
+  - 💰 R$ 1.790.000 | 📐 12 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-na-avenida-castelo-branco-terreno-1532310421
+
+- **LOTE 08- Reserva das Águas | Torres-Rs Lote 08**
+  - 💰 R$ 600.000 | 📐 12 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-08-reserva-das-aguas-torres-rs-lote-08-1532309568
+
+- **ÁREA SALINAS ÁREA SALINAS**
+  - 💰 R$ 5.900.000 | 📐 12 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-salinas-area-salinas-1532308262
+
+- **Terreno Residencial em Centro**
+  - 💰 R$ 5.900.000 | 📐 17000 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-centro-1532308151
+
+- **Terreno / Vila São João / Torres Terreno Comercial**
+  - 💰 R$ 249.000 | 📐 12 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-vila-sao-joao-torres-terreno-comercial-1532307934
+
+- **Terreno / Jardim Eldorado / Torres Terreno Urbano**
+  - 💰 R$ 245.000 | 📐 12 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-jardim-eldorado-torres-terreno-urbano-1532307818
+
+- **20 lotes de terrenos no Balneário Paraiso (Torres)**
+  - 💰 R$ 1.600.000 | 📐 7200 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/20-lotes-de-terrenos-no-balneario-paraiso-torres-1532307021
+
