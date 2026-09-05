@@ -138901,3 +138901,16 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/20-lotes-de-terrenos-no-balneario-paraiso-torres-1532307021
 
+
+## 🆕 2 novos anúncios — 05/09/2026 07:35
+
+- **Terreno à venda, 300 m² por R$ 89.000 - Capão Do Cravo - Passo de Torr**
+  - 💰 R$ 89.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-89-000-capao-do-cravo-passo-de-torres-sc-1532381052
+
+- **TERRENO À VENDA  VILLAGE DUNAS**
+  - 💰 R$ 99.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-village-dunas-1532631535
+
