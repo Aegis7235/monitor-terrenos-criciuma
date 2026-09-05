@@ -138925,3 +138925,16 @@
 
 ## ✅ Sem novidades — 05/09/2026 17:19
 
+
+## 🆕 2 novos anúncios — 05/09/2026 22:47
+
+- **Terreno Loteamento Maranello**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍 Santa Bárbara — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-maranello-1532892488
+
+- **Terreno em Torres RS - próximo Av Castelo Branco**
+  - 💰 R$ 140.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-proximo-av-castelo-branco-1532906990
+
