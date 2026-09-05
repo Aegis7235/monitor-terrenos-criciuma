@@ -138914,3 +138914,11 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-village-dunas-1532631535
 
+
+## 🆕 1 novos anúncios — 05/09/2026 12:35
+
+- **Torrando Terreno no Centro de Jaguaruna SC**
+  - 💰 R$ 127.000 | 📐 360 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/torrando-terreno-no-centro-de-jaguaruna-sc-1532742102
+
