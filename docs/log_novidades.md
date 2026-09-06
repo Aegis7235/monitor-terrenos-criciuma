@@ -138938,3 +138938,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-proximo-av-castelo-branco-1532906990
 
+
+## 🆕 1 novos anúncios — 06/09/2026 07:50
+
+- **CASA NO BALNEÁRIO RINCÃO EXCELENTE LOCALIZAÇÃO!!  NA RUA DO LINO SUPER**
+  - 💰 R$ 450.000 | 📐 129 m²
+  - 📍 Lote Seis — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-no-balneario-rincao-excelente-localizacao-na-rua-do-lino-supermercado-1532926784
+
