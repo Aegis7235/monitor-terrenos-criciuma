@@ -138952,3 +138952,16 @@
 
 ## ✅ Sem novidades — 06/09/2026 17:34
 
+
+## 🆕 2 novos anúncios — 06/09/2026 22:50
+
+- **Terreno para inestimento**
+  - 💰 R$ 65.000 | 📐 280 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-inestimento-1533096149
+
+- **Terreno escriturado no bairro Olho Dágua em Jaguaruna**
+  - 💰 R$ 150.000 | 📐 414 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-no-bairro-olho-dagua-em-jaguaruna-1533069918
+
