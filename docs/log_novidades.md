@@ -138965,3 +138965,16 @@
   - 📍  — Jaguaruna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-no-bairro-olho-dagua-em-jaguaruna-1533069918
 
+
+## 🆕 2 novos anúncios — 07/09/2026 08:08
+
+- **Terreno**
+  - 💰 R$ 95.000 | 📐 288 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1533103683
+
+- **Vendo terreno no parque Luiz tiscoski**
+  - 💰 R$ 90.000 | 📐 364 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-parque-luiz-tiscoski-1533105000
+
