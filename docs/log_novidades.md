@@ -138986,3 +138986,6 @@
   - 📍  — Içara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-lindo-lote-amplo-e-com-excelente-localizacao-na-icara-1533188996
 
+
+## ✅ Sem novidades — 07/09/2026 19:08
+
