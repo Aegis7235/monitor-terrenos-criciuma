@@ -138978,3 +138978,11 @@
   - 📍  — Forquilhinha
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-no-parque-luiz-tiscoski-1533105000
 
+
+## 🆕 1 novos anúncios — 07/09/2026 14:58
+
+- **Vende se lindo lote amplo e com excelente localização na icara**
+  - 💰 R$ 175.000 | 📐 420 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-lindo-lote-amplo-e-com-excelente-localizacao-na-icara-1533188996
+
