@@ -138989,3 +138989,11 @@
 
 ## ✅ Sem novidades — 07/09/2026 19:08
 
+
+## 🆕 1 novos anúncios — 07/09/2026 23:25
+
+- **Terreno a venda em Torres/RS**
+  - 💰 R$ 55.000 | 📐 ? m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-torres-rs-1533371914
+
