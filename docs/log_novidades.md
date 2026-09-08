@@ -138997,3 +138997,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-torres-rs-1533371914
 
+
+## 🆕 1 novos anúncios — 08/09/2026 08:00
+
+- **Terreno bairro Primeira Linha**
+  - 💰 R$ 180.000 | 📐 354 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-primeira-linha-1533397078
+
