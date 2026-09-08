@@ -139005,3 +139005,11 @@
   - 📍 Primeira Linha — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-primeira-linha-1533397078
 
+
+## 🆕 1 novos anúncios — 08/09/2026 13:29
+
+- **vendo troco terreno**
+  - 💰 R$ 77.000 | 📐 364 m²
+  - 📍 Presidente Vargas — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-troco-terreno-1533447321
+
