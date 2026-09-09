@@ -139019,3 +139019,51 @@
 
 ## ✅ Sem novidades — 08/09/2026 23:14
 
+
+## 🆕 9 novos anúncios — 09/09/2026 08:02
+
+- **Terreno à venda em São Simão, Criciúma**
+  - 💰 R$ 599.900 | 📐 601 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-simao-criciuma-1533740055
+
+- **Terreno para Venda em Balneário Gaivota, Balneário das Furnas**
+  - 💰 R$ 195.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-balneario-das-furnas-1533739900
+
+- **Vendo ou troco terreno em Jaguaruna, 600mts praia , escriturado**
+  - 💰 R$ 58.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-ou-troco-terreno-em-jaguaruna-600mts-praia-escriturado-1533681856
+
+- **VENDO SÍTIO CIRENÁICA TREVISO SC**
+  - 💰 R$ 387.000 | 📐 15000 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-sitio-cirenaica-treviso-sc-1533676961
+
+- **Oportunidade terreno no Bairro Bela Vista cocal do Sul**
+  - 💰 R$ 189.000 | 📐 375 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-terreno-no-bairro-bela-vista-cocal-do-sul-1533650119
+
+- **Imóvel para venda possui 1000 metros quadrados com 2 quartos em Centro**
+  - 💰 R$ 880.000 | 📐 1000 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-possui-1000-metros-quadrados-com-2-quartos-em-centro-urussanga-sc-1533619538
+
+- **Terreno 12x25 parcelado em 60x em Araranguá-SC  - Solicite sua simulaç**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍 Jardim das Avenidas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-12x25-parcelado-em-60x-em-ararangua-sc-solicite-sua-simulacao-de-parcela-1533609501
+
+- **Terreno em Dunas do Sul em Jaguaruna**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-dunas-do-sul-em-jaguaruna-1533510320
+
+- **Terreno Loteamento Novo Horizonte**
+  - 💰 R$ 115.000 | 📐 400 m²
+  - 📍 Linha Anta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-novo-horizonte-1533461242
+
