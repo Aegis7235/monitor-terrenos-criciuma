@@ -139073,3 +139073,51 @@
 
 ## ✅ Sem novidades — 09/09/2026 18:22
 
+
+## 🆕 9 novos anúncios — 09/09/2026 23:08
+
+- **2 terrenos lado a lado na praia de Bella Torres**
+  - 💰 R$ 299.000 | 📐 600 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/2-terrenos-lado-a-lado-na-praia-de-bella-torres-1533827946
+
+- **TERRENO RESIDENCIAL COLINA DOS AÇORES | CAVERAZINHO  Araranguá/SC**
+  - 💰 R$ 295.516 | 📐 330 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-colina-dos-acores-caverazinho-ararangua-sc-1533775467
+
+- **TERRENO PARA CONSTRUÇÃO | ARAPONGAS  Araranguá/SC**
+  - 💰 R$ 137.732 | 📐 360 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-construcao-arapongas-ararangua-sc-1533775128
+
+- **TERRENO LOTEAMENTO UNIVERSITÁRIO | LAGOÃO  Araranguá/SC**
+  - 💰 R$ 199.728 | 📐 351 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-universitario-lagoao-ararangua-sc-1533775025
+
+- **TERRENO LOTEAMENTO ALTO FELIZ | ALTO FELIZ  Araranguá/SC**
+  - 💰 R$ 204.759 | 📐 360 m²
+  - 📍 Alto Feliz — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-alto-feliz-alto-feliz-ararangua-sc-1533774112
+
+- **TERRENO PARA CONSTRUÇÃO | ARAPONGAS  Araranguá/SC**
+  - 💰 R$ 194.575 | 📐 324 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-construcao-arapongas-ararangua-sc-1533774076
+
+- **Terreno próximo ao mar em Balneário Gaivota | Parcelamento direto**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-proximo-ao-mar-em-balneario-gaivota-parcelamento-direto-1533882301
+
+- **Terrenos parcelados no Loteamento Capão Bonito em Balneário Gaivota-SC**
+  - 💰 R$ 19.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-parcelados-no-loteamento-capao-bonito-em-balneario-gaivota-sc-1533872895
+
+- **Fazenda com 3 dormitórios à venda, 3300000 m² por R$ 35.000.000,00 - T**
+  - 💰 R$ 35.000.000 | 📐 120 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-com-3-dormitorios-a-venda-3300000-m-por-r-35-000-000-00-tres-coqueiros-sao-1487297309
+
