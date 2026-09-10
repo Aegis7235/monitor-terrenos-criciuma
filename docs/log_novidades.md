@@ -139180,3 +139180,26 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-10x30-a-300m-da-praia-torres-rs-terreno-de-300m-ao-lado-de-itapeva-1534253749
 
+
+## 🆕 4 novos anúncios — 10/09/2026 23:07
+
+- **LOTE - Nº 08, Quadra 25, Praia Valverde, Balneário Gaivota/SC, Área de**
+  - 💰 R$ 40.000 | 📐 10 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-n-08-quadra-25-praia-valverde-balneario-gaivota-sc-area-de-264-00m-balneari-1534315484
+
+- **LOTE - Nº 07, Quadra 25, Praia Valverde, Balneário Gaivota/SC, Área de**
+  - 💰 R$ 40.000 | 📐 10 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-n-07-quadra-25-praia-valverde-balneario-gaivota-sc-area-de-264-00m-balneari-1534315448
+
+- **LOTE - Nº 20, Quadra 08, Praia Valverde, Balneário Gaivota/SC, Área de**
+  - 💰 R$ 37.500 | 📐 10 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-n-20-quadra-08-praia-valverde-balneario-gaivota-sc-area-de-264-00m-balneari-1534315358
+
+- **Terreno em Torres RS - próximo Av Castelo Branco**
+  - 💰 R$ 140.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-proximo-av-castelo-branco-1534304551
+
