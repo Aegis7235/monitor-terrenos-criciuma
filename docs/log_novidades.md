@@ -139121,3 +139121,6 @@
   - 📍  — São João do Sul
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-com-3-dormitorios-a-venda-3300000-m-por-r-35-000-000-00-tres-coqueiros-sao-1487297309
 
+
+## ✅ Sem novidades — 10/09/2026 07:56
+
