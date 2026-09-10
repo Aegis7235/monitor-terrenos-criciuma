@@ -139124,3 +139124,46 @@
 
 ## ✅ Sem novidades — 10/09/2026 07:56
 
+
+## 🆕 8 novos anúncios — 10/09/2026 13:28
+
+- **Terreno (Em condomínio) à Venda, 597m² - Bairro Caravággio em Nova Ven**
+  - 💰 R$ 450.000 | 📐 597 m²
+  - 📍 Nossa Senhora de Caravaggio — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-a-venda-597m-bairro-caravaggio-em-nova-veneza-1534055262
+
+- **TERRENO URBANO | SANTO ANTÔNIO  Criciúma/SC**
+  - 💰 R$ 383.780 | 📐 401 m²
+  - 📍 Santo Antônio — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-santo-antonio-criciuma-sc-1534154648
+
+- **Terreno de 300m² a 200m da Praia no melhor bairro de Balneário Gaivota**
+  - 💰 R$ 250.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-300m-a-200m-da-praia-no-melhor-bairro-de-balneario-gaivota-village-dunas-nort-1534144911
+
+- **Lote na região do Balneário Rincão**
+  - 💰 R$ 90.000 | 📐 363 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-na-regiao-do-balneario-rincao-1534119644
+
+- **Terreno no Rio Maina, Criciúma**
+  - 💰 R$ 170.000 | 📐 420 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-rio-maina-criciuma-1534093525
+
+- **TERRENO NO LOTEAMENTO NOVA PRÓSPERA II**
+  - 💰 R$ 450.000 | 📐 371 m²
+  - 📍 Ceará — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-loteamento-nova-prospera-ii-1534093530
+
+- **PREÇO DE OPORTUNIDADE! 507m² com Vista para os Cânions Catarinenses po**
+  - 💰 R$ 90.000 | 📐 507 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/preco-de-oportunidade-507m-com-vista-para-os-canions-catarinenses-por-apenas-r-90-mil-1534030044
+
+- **Venda - Terrenos em Condomínio - Condomínio Reserva das Águas - Torres**
+  - 💰 R$ 422.000 | 📐 429 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-terrenos-em-condominio-condominio-reserva-das-aguas-torres-rs-1534080026
+
