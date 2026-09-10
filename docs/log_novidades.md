@@ -139167,3 +139167,16 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/venda-terrenos-em-condominio-condominio-reserva-das-aguas-torres-rs-1534080026
 
+
+## 🆕 2 novos anúncios — 10/09/2026 18:19
+
+- **Vendo terreno na Jaguaruna**
+  - 💰 R$ 60.000 | 📐 ? m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-jaguaruna-1534178561
+
+- **Terreno 10x30 a 300m da praia - Torres/RS Terreno de 300m² ao lado de **
+  - 💰 R$ 70.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-10x30-a-300m-da-praia-torres-rs-terreno-de-300m-ao-lado-de-itapeva-1534253749
+
