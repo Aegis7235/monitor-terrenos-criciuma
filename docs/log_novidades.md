@@ -139239,3 +139239,21 @@
   - 📍 Rio Maina — Criciúma
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-distrito-rio-maina-criciuma-1534428648
 
+
+## 🆕 3 novos anúncios — 11/09/2026 18:23
+
+- **Terreno em Balneário Gaivota Para Investimento**
+  - 💰 R$ 39.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-balneario-gaivota-para-investimento-1534580193
+
+- **Entre o Mar e a Lagoa sua Felicidade está completa!**
+  - 💰 R$ 150.000 | 📐 360 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/entre-o-mar-e-a-lagoa-sua-felicidade-esta-completa-1534545228
+
+- **Amplo terreno aterrado e pronto para construir!**
+  - 💰 R$ 100.000 | 📐 444 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-terreno-aterrado-e-pronto-para-construir-1534538620
+
