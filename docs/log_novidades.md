@@ -139203,3 +139203,31 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-torres-rs-proximo-av-castelo-branco-1534304551
 
+
+## 🆕 5 novos anúncios — 11/09/2026 07:57
+
+- **Terreno Urbano Excelente Opção para Construção de Kit net em Araranguá**
+  - 💰 R$ 275.000 | 📐 435 m²
+  - 📍 Jardim das Avenidas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-urbano-excelente-opcao-para-construcao-de-kit-net-em-ararangua-1534370535
+
+- **TERRENO 300M2 PRÓXIMO A PRAIA**
+  - 💰 R$ 109.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-300m2-proximo-a-praia-1534374687
+
+- **LOTE DE ESQUINA NO LOTEAMENTO SANTA ELISA**
+  - 💰 R$ 120.000 | 📐 454 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-de-esquina-no-loteamento-santa-elisa-1534422131
+
+- **LOTE NO LOTEAMENTO SANTANELISA**
+  - 💰 R$ 100.000 | 📐 404 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-no-loteamento-santanelisa-1534422128
+
+- **Terreno Residencial em Praia Itapeva**
+  - 💰 R$ 4.000.000 | 📐 112 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-praia-itapeva-1534397623
+
