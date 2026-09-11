@@ -139231,3 +139231,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-residencial-em-praia-itapeva-1534397623
 
+
+## 🆕 1 novos anúncios — 11/09/2026 13:26
+
+- **Terreno à venda no Distrito Rio Maina - Criciúma**
+  - 💰 R$ 210.000 | 📐 506 m²
+  - 📍 Rio Maina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-distrito-rio-maina-criciuma-1534428648
+
