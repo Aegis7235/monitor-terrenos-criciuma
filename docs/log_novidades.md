@@ -139257,3 +139257,26 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/amplo-terreno-aterrado-e-pronto-para-construir-1534538620
 
+
+## 🆕 4 novos anúncios — 11/09/2026 23:08
+
+- **Lote 368m2 a poucos metros da BR-101**
+  - 💰 R$ 150.000 | 📐 368 m²
+  - 📍 Aurora — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-368m2-a-poucos-metros-da-br-101-1534661060
+
+- **Terrenos pé na área paraíso na praia de campo bom jaguaruna**
+  - 💰 R$ 500.000 | 📐 625 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-pe-na-area-paraiso-na-praia-de-campo-bom-jaguaruna-1534652475
+
+- **Terreno com localização privilegiada, pronto para construir em Bella T**
+  - 💰 R$ 280.000 | 📐 375 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-localizacao-privilegiada-pronto-para-construir-em-bella-torres-1534638972
+
+- **Terreno com Ótima localização e segurança na quadra A1 em Bella Torres**
+  - 💰 R$ 350.000 | 📐 528 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-otima-localizacao-e-seguranca-na-quadra-a1-em-bella-torres-1534638941
+
