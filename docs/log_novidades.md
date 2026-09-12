@@ -139314,3 +139314,11 @@
 
 ## ✅ Sem novidades — 12/09/2026 17:42
 
+
+## 🆕 1 novos anúncios — 12/09/2026 22:59
+
+- **Dois lindos terrenos de esquina, frente norte na Praia Paraíso em Torr**
+  - 💰 R$ 220.000 | 📐 660 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-lindos-terrenos-de-esquina-frente-norte-na-praia-paraiso-em-torres-rs-1534837325
+
