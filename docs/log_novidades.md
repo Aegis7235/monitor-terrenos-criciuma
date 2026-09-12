@@ -139283,3 +139283,31 @@
 
 ## ✅ Sem novidades — 12/09/2026 07:46
 
+
+## 🆕 5 novos anúncios — 12/09/2026 12:51
+
+- **Terreno à venda em Criciúma**
+  - 💰 R$ 295.000 | 📐 450 m²
+  - 📍 Operária Nova — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-criciuma-1534734629
+
+- **Terreno à venda, 2006 m² por R$ 525.000,00 - Cidade Alta - Araranguá/S**
+  - 💰 R$ 525.000 | 📐 2006 m²
+  - 📍 Cidade Alta — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-2006-m-por-r-525-000-00-cidade-alta-ararangua-sc-1439525497
+
+- **Terreno de esquina á Venda-Loteamento Diamante Branco-Santa Rosa do Su**
+  - 💰 R$ 100.000 | 📐 319 m²
+  - 📍  — Santa Rosa do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-a-venda-loteamento-diamante-branco-santa-rosa-do-sul-santa-catarina-1534788099
+
+- **Terreno à venda no Condomínio Reserva das Águas em Torres/RS**
+  - 💰 R$ 380.000 | 📐 500 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-condominio-reserva-das-aguas-em-torres-rs-1534712817
+
+- **Terreno no Reserva das Águas Torres RS**
+  - 💰 R$ 422.000 | 📐 429 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1534708290
+
