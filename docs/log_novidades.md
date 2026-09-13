@@ -139336,3 +139336,21 @@
 
 ## ✅ Sem novidades — 13/09/2026 17:59
 
+
+## 🆕 3 novos anúncios — 13/09/2026 23:02
+
+- **Terreno Loteamento Luiz Tiscoski Forquilhinha SC**
+  - 💰 R$ 85.000 | 📐 364 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-luiz-tiscoski-forquilhinha-sc-1535171210
+
+- **Terreno no Village Dunas Norte em Balneário Gaivota SC**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-village-dunas-norte-em-balneario-gaivota-sc-1535111522
+
+- **Terreno 340m2**
+  - 💰 R$ 100.000 | 📐 340 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-340m2-1535079724
+
