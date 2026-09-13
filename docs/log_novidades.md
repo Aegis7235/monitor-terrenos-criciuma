@@ -139322,3 +139322,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/dois-lindos-terrenos-de-esquina-frente-norte-na-praia-paraiso-em-torres-rs-1534837325
 
+
+## 🆕 1 novos anúncios — 13/09/2026 08:09
+
+- **Terreno escriturado com açude por 58 mil**
+  - 💰 R$ 58.000 | 📐 300 m²
+  - 📍 Santa Cruz — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-com-acude-por-58-mil-1534980677
+
