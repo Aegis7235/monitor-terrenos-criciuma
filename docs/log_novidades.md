@@ -139330,3 +139330,6 @@
   - 📍 Santa Cruz — Içara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-com-acude-por-58-mil-1534980677
 
+
+## ✅ Sem novidades — 13/09/2026 13:46
+
