@@ -139375,3 +139375,41 @@
 
 ## ✅ Sem novidades — 14/09/2026 15:45
 
+
+## 🆕 7 novos anúncios — 14/09/2026 23:44
+
+- **LOTE - Nº 20, Quadra 08, Praia Valverde, Balneário Gaivota/SC, Área de**
+  - 💰 R$ 37.500 | 📐 10 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-n-20-quadra-08-praia-valverde-balneario-gaivota-sc-area-de-264-00m-balneari-1535448930
+
+- **LOTE - Nº 08, Quadra 25, Praia Valverde, Balneário Gaivota/SC, Área de**
+  - 💰 R$ 40.000 | 📐 10 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-n-08-quadra-25-praia-valverde-balneario-gaivota-sc-area-de-264-00m-balneari-1535448520
+
+- **LOTE - Lote 16, Quadra C, Loteamento Jardim Dal Pont, Rua Projetada A,**
+  - 💰 R$ 262.500 | 📐 50 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-lote-16-quadra-c-loteamento-jardim-dal-pont-rua-projetada-a-esquina-com-rua-pro-1535448260
+
+- **LOTE - Lote 14, Quadra C, Loteamento Jardim Dal Pont, Rua Projetada A,**
+  - 💰 R$ 262.500 | 📐 50 m²
+  - 📍 Comerciário — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-lote-14-quadra-c-loteamento-jardim-dal-pont-rua-projetada-a-criciuma-sc-area-d-1535447672
+
+- **Terreno Bairro São Camilo**
+  - 💰 R$ 98.000 | 📐 ? m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-sao-camilo-1535435024
+
+- **Terreno no bairro Jardim Ultramar em Balneário Gaivota, SC**
+  - 💰 R$ 150.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-no-bairro-jardim-ultramar-em-balneario-gaivota-sc-1535507273
+
+- **LOTE - Nº 07, Quadra 25, Praia Valverde, Balneário Gaivota/SC, Área de**
+  - 💰 R$ 40.000 | 📐 10 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-n-07-quadra-25-praia-valverde-balneario-gaivota-sc-area-de-264-00m-balneari-1535449163
+
