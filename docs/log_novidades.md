@@ -139354,3 +139354,21 @@
   - 📍  — Jaguaruna
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-340m2-1535079724
 
+
+## 🆕 3 novos anúncios — 14/09/2026 08:43
+
+- **EXCELENTE TERRENO À VENDA EM TORRES/RS - Aceito Permuta em Criciúma**
+  - 💰 R$ 715.000 | 📐 414 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-venda-em-torres-rs-aceito-permuta-em-criciuma-1535187121
+
+- **Terreno, PASSO DE TORRES, SC**
+  - 💰 R$ 85.000 | 📐 420 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-passo-de-torres-sc-1535185328
+
+- **LANÇAMENTO EM TORRES**
+  - 💰 R$ 209.000 | 📐 250 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lancamento-em-torres-1535210203
+
