@@ -139413,3 +139413,41 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-n-07-quadra-25-praia-valverde-balneario-gaivota-sc-area-de-264-00m-balneari-1535449163
 
+
+## 🆕 7 novos anúncios — 15/09/2026 08:31
+
+- **VENDE-SE TERRENO  PRAÇA PARIS**
+  - 💰 R$ 135.000 | 📐 306 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-praca-paris-1535533357
+
+- **VENDE-SE TERRENO  PRAÇA PARIS**
+  - 💰 R$ 135.000 | 📐 309 m²
+  - 📍 Arapongas — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-praca-paris-1535533309
+
+- **Terreno Residencial**
+  - 💰 R$ 250.000 | 📐 364 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-residencial-1535573219
+
+- **Terreno em Condomínio de alto padrão com heliponto, Montebello, Cocal **
+  - 💰 R$ 520.000 | 📐 514 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-condominio-de-alto-padrao-com-heliponto-montebello-cocal-do-sul-sc-1535544451
+
+- **Lotes com Preço Especial em Área em Crescimento**
+  - 💰 R$ 59.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-com-preco-especial-em-area-em-crescimento-1535533577
+
+- **4 terrenos juntos  Frente Mar**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/4-terrenos-juntos-frente-mar-1535533544
+
+- **Terreno no Reserva das Águas Torres RS**
+  - 💰 R$ 290.000 | 📐 499 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1535546974
+
