@@ -139459,3 +139459,21 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/capao-bonito-o-melhor-loteamento-para-investir-em-balneario-gaivota-hoje-1535599880
 
+
+## 🆕 3 novos anúncios — 15/09/2026 18:45
+
+- **LINDO SITIO COM 120 mil m2**
+  - 💰 R$ 785.000 | 📐 120000 m²
+  - 📍  — Jacinto Machado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-com-120-mil-m2-1535684230
+
+- **Vendo terreno de 400m com casa em Jaguaruna.**
+  - 💰 R$ 270.000 | 📐 400 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-de-400m-com-casa-em-jaguaruna-1535677076
+
+- **Dois terrenos em São João do Sul à venda**
+  - 💰 R$ 320.000 | 📐 669 m²
+  - 📍  — São João do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-em-sao-joao-do-sul-a-venda-1535670355
+
