@@ -139451,3 +139451,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-reserva-das-aguas-torres-rs-1535546974
 
+
+## 🆕 1 novos anúncios — 15/09/2026 14:18
+
+- **Capão Bonito: o melhor loteamento para investir em Balneário Gaivota h**
+  - 💰 R$ 95.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/capao-bonito-o-melhor-loteamento-para-investir-em-balneario-gaivota-hoje-1535599880
+
