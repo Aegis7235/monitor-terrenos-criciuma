@@ -139477,3 +139477,26 @@
   - 📍  — São João do Sul
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-em-sao-joao-do-sul-a-venda-1535670355
 
+
+## 🆕 4 novos anúncios — 15/09/2026 23:34
+
+- **Loteamento Varsóvia - Bairro Linha Batista, em Criciúma/SC**
+  - 💰 R$ 99.000 | 📐 360 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-varsovia-bairro-linha-batista-em-criciuma-sc-1535766018
+
+- **Loteamento Vitória - Avenida Luiz Lazzarin, Criciúma**
+  - 💰 R$ 193.800 | 📐 300 m²
+  - 📍 Vila Floresta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-vitoria-avenida-luiz-lazzarin-criciuma-1535758165
+
+- **TERRENO PASSO DE TORRES JARDIM AMÉRICA**
+  - 💰 R$ 100.000 | 📐 209 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-passo-de-torres-jardim-america-1535725028
+
+- **Vendo terreno na Praia Real em Torres**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-na-praia-real-em-torres-1535746322
+
