@@ -139519,3 +139519,26 @@
 
 ## ✅ Sem novidades — 16/09/2026 18:44
 
+
+## 🆕 4 novos anúncios — 16/09/2026 23:35
+
+- **Terreno morro dos conventos**
+  - 💰 R$ 810.000 | 📐 600 m²
+  - 📍 Morro dos Conventos — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-morro-dos-conventos-1536127816
+
+- **Vendo terreno pronto para construir ou para investimento**
+  - 💰 R$ 99.000 | 📐 378 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-pronto-para-construir-ou-para-investimento-1536194961
+
+- **Terrenos comerciais de frente para Avenida Santa Catarina em Balneário**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-comerciais-de-frente-para-avenida-santa-catarina-em-balneario-arroio-do-silva-1536104462
+
+- **Terreno Itapeva - Com Luz**
+  - 💰 R$ 49.000 | 📐 ? m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-itapeva-com-luz-1536038871
+
