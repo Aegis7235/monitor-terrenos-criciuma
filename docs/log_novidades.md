@@ -139513,3 +139513,6 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-de-esquina-perto-da-lagoa-e-do-mar-1535839079
 
+
+## ✅ Sem novidades — 16/09/2026 14:06
+
