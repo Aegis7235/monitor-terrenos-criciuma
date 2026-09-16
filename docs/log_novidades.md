@@ -139500,3 +139500,16 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vendo-terreno-na-praia-real-em-torres-1535746322
 
+
+## 🆕 2 novos anúncios — 16/09/2026 08:22
+
+- **Terreno com 2.580m² a venda Cidade Alta  Araranguá SC**
+  - 💰 R$ 2.500.000 | 📐 2581 m²
+  - 📍 Cidade Alta — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-2-580m-a-venda-cidade-alta-ararangua-sc-1535838279
+
+- **TERRENOS DE ESQUINA PERTO DA LAGOA E DO MAR**
+  - 💰 R$ 140.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-de-esquina-perto-da-lagoa-e-do-mar-1535839079
+
