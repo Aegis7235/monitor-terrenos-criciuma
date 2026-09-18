@@ -139615,3 +139615,11 @@
   - 📍  — Passo de Torres
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-na-praia-do-caravelle-proximo-ao-condominio-jardim-america-120-mil-1536361563
 
+
+## 🆕 1 novos anúncios — 18/09/2026 18:08
+
+- **TERRENO ESQUINA AVENIDA**
+  - 💰 R$ 2.500.000 | 📐 420 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-esquina-avenida-1536673468
+
