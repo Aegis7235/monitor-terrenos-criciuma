@@ -139554,3 +139554,51 @@
 
 ## ✅ Sem novidades — 17/09/2026 23:26
 
+
+## 🆕 9 novos anúncios — 18/09/2026 08:03
+
+- **Vendo lote loteamento Pie Monte lll**
+  - 💰 R$ 148.000 | 📐 365 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-lote-loteamento-pie-monte-lll-1536478983
+
+- **Dois lotes à venda Bairro Ângelo Guollo 95.000,00 cada lote**
+  - 💰 R$ 95.000 | 📐 365 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-lotes-a-venda-bairro-angelo-guollo-95-000-00-cada-lote-1536322587
+
+- **Imóvel para venda com 364 metros quadrados em Lagoa dos Freitas - Baln**
+  - 💰 R$ 120.000 | 📐 364 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-para-venda-com-364-metros-quadrados-em-lagoa-dos-freitas-balneario-rincao-sc-1536474453
+
+- **Terreno balneário rincão**
+  - 💰 R$ 80.000 | 📐 600 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-balneario-rincao-1536374544
+
+- **Terreno à venda, 330 m² por R$ 245.000,00 - Caverazinho - Araranguá/SC**
+  - 💰 R$ 245.000 | 📐 330 m²
+  - 📍 Caverazinho — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-330-m-por-r-245-000-00-caverazinho-ararangua-sc-1487012264
+
+- **Terreno bairro Rosa do Mar a 200m do mar**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-bairro-rosa-do-mar-a-200m-do-mar-1536552970
+
+- **Terreno a 100 metros do mar no Condomínio Aberto Areias Claras - Balne**
+  - 💰 R$ 130.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-100-metros-do-mar-no-condominio-aberto-areias-claras-balneario-gaivota-sc-1536478882
+
+- **terrenos à venda em Balneário Gaivota SC**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-em-balneario-gaivota-sc-1536454953
+
+- **Terreno a Venda Bairro Balneário Gaivotas**
+  - 💰 R$ 90.000 | 📐 375 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-balneario-gaivotas-1536248263
+
