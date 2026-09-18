@@ -139602,3 +139602,16 @@
   - 📍  — Balneário Gaivota
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-balneario-gaivotas-1536248263
 
+
+## 🆕 2 novos anúncios — 18/09/2026 13:29
+
+- **Terreno de Esquina em Balneário Gaivota**
+  - 💰 R$ 47.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-em-balneario-gaivota-1536647508
+
+- **Barbada terreno na praia do Caravelle , próximo ao condomínio Jardim A**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/barbada-terreno-na-praia-do-caravelle-proximo-ao-condominio-jardim-america-120-mil-1536361563
+
