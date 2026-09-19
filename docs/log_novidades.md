@@ -139629,3 +139629,36 @@
 
 ## ✅ Sem novidades — 19/09/2026 07:53
 
+
+## 🆕 6 novos anúncios — 19/09/2026 12:58
+
+- **Terreno à venda, 360 m² por R$ 132.821,81 - Santa Cruz - Forquilhinha/**
+  - 💰 R$ 132.822 | 📐 360 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-132-821-81-santa-cruz-forquilhinha-sc-1536892383
+
+- **Terreno à venda, 17154 m² por R$ 2.300.000,00 - Santa Isabel - Forquil**
+  - 💰 R$ 2.300.000 | 📐 17154 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-17154-m-por-r-2-300-000-00-santa-isabel-forquilhinha-sc-1536892335
+
+- **Terreno à venda, 800 m² por R$ 572.000,00 - Argentina - Criciúma/SC**
+  - 💰 R$ 572.000 | 📐 800 m²
+  - 📍 Argentina — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-800-m-por-r-572-000-00-argentina-criciuma-sc-1536892386
+
+- **Terreno à venda, 1012 m² por R$ 709.000,00 - São Simão - Criciúma/SC**
+  - 💰 R$ 709.000 | 📐 1012 m²
+  - 📍 São Simão — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1012-m-por-r-709-000-00-sao-simao-criciuma-sc-1536892349
+
+- **Terreno à venda, 300 m² por R$ 80.000,00 - Porto do Sol - Passo de Tor**
+  - 💰 R$ 80.000 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-80-000-00-porto-do-sol-passo-de-torres-sc-1536849796
+
+- **Terreno em Jaguaruna/SC - ACEITO NEGÓCIO**
+  - 💰 R$ 55.000 | 📐 324 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-em-jaguaruna-sc-aceito-negocio-1478464562
+
