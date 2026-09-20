@@ -139668,3 +139668,16 @@
 
 ## ✅ Sem novidades — 19/09/2026 22:44
 
+
+## 🆕 2 novos anúncios — 20/09/2026 08:27
+
+- **Terreno de esquina e escriturado na praia do Camacho em Jaguaruna**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-esquina-e-escriturado-na-praia-do-camacho-em-jaguaruna-1536509799
+
+- **Terreno**
+  - 💰 R$ 130.000 | 📐 ? m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-1536460080
+
