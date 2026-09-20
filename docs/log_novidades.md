@@ -139687,3 +139687,11 @@
 
 ## ✅ Sem novidades — 20/09/2026 18:04
 
+
+## 🆕 1 novos anúncios — 20/09/2026 23:11
+
+- **SÍTIO RURAL À VENDA - COCAL DO SUL/SC**
+  - 💰 R$ 2.800.000 | 📐 44000 m²
+  - 📍  — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-rural-venda-cocal-do-sul-sc-1537307230
+
