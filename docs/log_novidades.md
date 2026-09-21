@@ -139711,3 +139711,11 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-jacare-torres-rs-1537363558
 
+
+## 🆕 1 novos anúncios — 21/09/2026 23:54
+
+- **Oportunidade para moradia  Terreno no Centro, Meleiro - SC, N. SN LT 1**
+  - 💰 R$ 63.999 | 📐 375 m²
+  - 📍  — Meleiro
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-moradia-terreno-no-centro-meleiro-sc-n-sn-lt-13-qd-02-375m-lic-1537635009
+
