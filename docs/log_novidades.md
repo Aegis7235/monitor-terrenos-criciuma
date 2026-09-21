@@ -139695,3 +139695,6 @@
   - 📍  — Morro da Fumaça
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-rural-venda-cocal-do-sul-sc-1537307230
 
+
+## ✅ Sem novidades — 21/09/2026 08:44
+
