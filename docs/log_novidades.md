@@ -139698,3 +139698,16 @@
 
 ## ✅ Sem novidades — 21/09/2026 08:44
 
+
+## 🆕 2 novos anúncios — 21/09/2026 15:52
+
+- **VENDE-SE TERRENO RURAL (sem Eucalipto) EM URUSSANGA/SC!!**
+  - 💰 R$ 100.000 | 📐 21428 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vende-se-terreno-rural-sem-eucalipto-em-urussanga-sc-1537494497
+
+- **TERRENO À VENDA - JACARÉ | TORRES/RS**
+  - 💰 R$ 85.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-venda-jacare-torres-rs-1537363558
+
