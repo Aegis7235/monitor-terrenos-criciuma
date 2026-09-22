@@ -139719,3 +139719,41 @@
   - 📍  — Meleiro
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-moradia-terreno-no-centro-meleiro-sc-n-sn-lt-13-qd-02-375m-lic-1537635009
 
+
+## 🆕 7 novos anúncios — 22/09/2026 08:27
+
+- **LOTE - Nº 01, Quadra N, Rua Luiz Frassetto esquina Rua Francisco Procó**
+  - 💰 R$ 50.000 | 📐 10 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-n-01-quadra-n-rua-luiz-frassetto-esquina-rua-francisco-procopio-da-silva-zona-s-1537651381
+
+- **Residencial  Lote/Terreno - Venda - 300,00 (M²) de Área Total - 300,00**
+  - 💰 R$ 475.000 | 📐 300 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/residencial-lote-terreno-venda-300-00-m-de-area-total-300-00-m-de-area-privat-1537669457
+
+- **OPORTUNIDADE DE INVESTIMENTO EM ARARANGUÁ/SC!**
+  - 💰 R$ 1.500.000 | 📐 440 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-de-investimento-em-ararangua-sc-1537653515
+
+- **Terreno na Lagoa em Balneário Gaivota | Entrada a partir de R$ 9.495**
+  - 💰 R$ 189.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-lagoa-em-balneario-gaivota-entrada-a-partir-de-r-9-495-1537557637
+
+- **Terreno à 400 metros do mar na Praia da Cal em Torres/RS**
+  - 💰 R$ 630.000 | 📐 414 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-400-metros-do-mar-na-praia-da-cal-em-torres-rs-1537718340
+
+- **Terreno Vila São João - Torres**
+  - 💰 R$ 120.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-vila-sao-joao-torres-1537682447
+
+- **TERRENO NO MORADA DAS PALMEIRAS EM TORRES - LOTEAMENTO PLANEJADO QUE M**
+  - 💰 R$ 340.000 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-morada-das-palmeiras-em-torres-loteamento-planejado-que-mais-cresce-proximo-d-1537669619
+
