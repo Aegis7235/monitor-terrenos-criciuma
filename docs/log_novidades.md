@@ -139772,3 +139772,76 @@
 
 ## ✅ Sem novidades — 23/09/2026 14:07
 
+
+## 🆕 14 novos anúncios — 23/09/2026 18:55
+
+- **Terreno 5.742 m² na SC-443 - Linha Anta - Criciúma/SC**
+  - 💰 R$ 650.000 | 📐 574265 m²
+  - 📍 Linha Anta — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-5-742-m-na-sc-443-linha-anta-criciuma-sc-1537896909
+
+- **Terreno Praia do Camacho - Jaguaruna/SC - Escriturado**
+  - 💰 R$ 110.000 | 📐 300 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-do-camacho-jaguaruna-sc-escriturado-1538054320
+
+- **Terreno balneário gaivota areias claras**
+  - 💰 R$ 110.000 | 📐 ? m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-balneario-gaivota-areias-claras-1538200119
+
+- *****OPORTUNIDADE*** - 2 Terrenos Juntos - 720 m² - Cristo Rei V, Jaguar**
+  - 💰 R$ 259.000 | 📐 720 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-2-terrenos-juntos-720-m-cristo-rei-v-jaguaruna-sc-1538091657
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas Norte**
+  - 💰 R$ 180.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-norte-1538091432
+
+- **Terreno para Venda em Balneário Gaivota, Village Dunas**
+  - 💰 R$ 85.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-village-dunas-1538091409
+
+- **Terreno à venda em Metropol, Criciúma**
+  - 💰 R$ 80.000 | 📐 562 m²
+  - 📍 Metropol — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-metropol-criciuma-1538091194
+
+- **Terreno à venda em Metropol, Criciúma**
+  - 💰 R$ 70.000 | 📐 362 m²
+  - 📍 Metropol — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-metropol-criciuma-1538091167
+
+- **Terreno à venda**
+  - 💰 R$ 90.000 | 📐 360 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1538091145
+
+- **Terreno à venda em Vila Floresta II, Criciúma**
+  - 💰 R$ 145.000 | 📐 360 m²
+  - 📍 Vila Floresta II — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-vila-floresta-ii-criciuma-1538091108
+
+- **Terreno à venda em Metropol, Criciúma**
+  - 💰 R$ 70.000 | 📐 439 m²
+  - 📍 Metropol — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-metropol-criciuma-1538091111
+
+- **Terreno proximo ao Bistek com 330 metros quadrados em Igra sul - Torre**
+  - 💰 R$ 250.000 | 📐 330 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-proximo-ao-bistek-com-330-metros-quadrados-em-igra-sul-torres-rs-1538126757
+
+- **Terreno à venda próximo ao Loteamento Morada das Palmeiras em Torres R**
+  - 💰 R$ 250.000 | 📐 330 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-proximo-ao-loteamento-morada-das-palmeiras-em-torres-rs-1538060624
+
+- **TERRENO PRAIA ITAPEVA - TORRES RS**
+  - 💰 R$ 150.000 | 📐 262 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-praia-itapeva-torres-rs-1538034006
+
