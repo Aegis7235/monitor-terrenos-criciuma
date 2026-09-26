@@ -139872,3 +139872,11 @@
 
 ## ✅ Sem novidades — 25/09/2026 23:53
 
+
+## 🆕 1 novos anúncios — 26/09/2026 08:24
+
+- **FAZENDA À VENDA NO SUL DE SANTA CATARINA**
+  - 💰 R$ 26.000.000 | 📐 5270 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/fazenda-venda-no-sul-de-santa-catarina-1538961254
+
