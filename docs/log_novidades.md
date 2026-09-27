@@ -139889,3 +139889,81 @@
 
 ## ✅ Sem novidades — 26/09/2026 23:24
 
+
+## 🆕 15 novos anúncios — 27/09/2026 09:07
+
+- **LOTE EM NOVA VENEZA**
+  - 💰 R$ 100.000 | 📐 397 m²
+  - 📍  — Nova Veneza
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-em-nova-veneza-1538851439
+
+- **Terreno à venda, 360 m² por R$ 165.000,00 - Bellatorres - Passo de Tor**
+  - 💰 R$ 165.000 | 📐 360 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-360-m-por-r-165-000-00-bellatorres-passo-de-torres-sc-1538680373
+
+- **DOIS TERRENOS À VENDA  LAGOA CORTADA**
+  - 💰 R$ 235.000 | 📐 600 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/dois-terrenos-venda-lagoa-cortada-1538608448
+
+- **PRAIA GRANDE - SC/LOTE**
+  - 💰 R$ 250.000 | 📐 420 m²
+  - 📍  — Praia Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/praia-grande-sc-lote-1539009269
+
+- **Terreno amplo em Condomínio para Chalés! Um refúgio raro em meio a nat**
+  - 💰 R$ 105.000 | 📐 1500 m²
+  - 📍  — Treviso
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-amplo-em-condominio-para-chales-um-refugio-raro-em-meio-a-natureza-1539208268
+
+- **Terreno à venda em São Domingos, Criciúma**
+  - 💰 R$ 116.900 | 📐 367 m²
+  - 📍 Vila Maria — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-sao-domingos-criciuma-1538384984
+
+- **TERRENO À VENDA  VILLAGE DUNAS**
+  - 💰 R$ 90.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-venda-village-dunas-1538384003
+
+- **Venda - Terrenos - Centro - Passo de Torres - SC**
+  - 💰 R$ 195.525 | 📐 296 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terrenos-centro-passo-de-torres-sc-1538371771
+
+- **Venda - Terrenos - Centro - Passo de Torres - SC**
+  - 💰 R$ 168.213 | 📐 219 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terrenos-centro-passo-de-torres-sc-1538371773
+
+- **Venda - Terrenos - Centro - Passo de Torres - SC**
+  - 💰 R$ 234.409 | 📐 303 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terrenos-centro-passo-de-torres-sc-1538371752
+
+- **Venda - Terrenos - Centro - Passo de Torres - SC**
+  - 💰 R$ 211.838 | 📐 328 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/venda-terrenos-centro-passo-de-torres-sc-1538371755
+
+- **Terreno a venda**
+  - 💰 R$ 70.000 | 📐 450 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1536904734
+
+- **Terreno | Condomínio Lake Village|Itapeva - Torres REF: TE0013**
+  - 💰 R$ 270.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-condominio-lake-village-itapeva-torres-ref-te0013-1538930591
+
+- **Terreno Comercial para locação, próximo ao Sesc de Torres**
+  - 💰 R$ 5.000 | 📐 204 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-comercial-para-locacao-proximo-ao-sesc-de-torres-1538770690
+
+- **Vende-se terreno em torres ou troco por carro**
+  - 💰 R$ 25.000 | 📐 ? m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/vende-se-terreno-em-torres-ou-troco-por-carro-1538722967
+
