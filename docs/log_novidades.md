@@ -139982,3 +139982,131 @@
 
 ## ✅ Sem novidades — 29/09/2026 09:33
 
+
+## 🆕 25 novos anúncios — 29/09/2026 19:57
+
+- **Terreno Praia Nova Torres, 500m da Beira Mar**
+  - 💰 R$ 65.000 | 📐 288 m²
+  - 📍  — Jacinto Machado
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-praia-nova-torres-500m-da-beira-mar-1539703603
+
+- **Terreno à Venda  Bairro Nova Torres | Balneário Gaivota/SC**
+  - 💰 R$ 65.000 | 📐 288 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-bairro-nova-torres-balneario-gaivota-sc-1539703601
+
+- **Casa no torneiro**
+  - 💰 R$ 40.000 | 📐 ? m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-no-torneiro-1539698125
+
+- **Lotes com parcelamento sem juros em até 120 meses, Loteamento Villagio**
+  - 💰 R$ 175.500 | 📐 300 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lotes-com-parcelamento-sem-juros-em-ate-120-meses-loteamento-villagio-mampituba-1539679086
+
+- **Lindo Sítio em Morro Chato - Turvo/SC**
+  - 💰 R$ 650.000 | 📐 7876 m²
+  - 📍  — Turvo
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lindo-sitio-em-morro-chato-turvo-sc-1539659179
+
+- **Pousada à venda - OPORTUNIDADE ÚNICA!!!!**
+  - 💰 R$ 490.000 | 📐 270 m²
+  - 📍 Santa Bárbara — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/pousada-a-venda-oportunidade-unica-1539434175
+
+- **Terreno Loteamento Viva Verde - Linha Batista Criciúma**
+  - 💰 R$ 125.000 | 📐 360 m²
+  - 📍 Linha Batista — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-viva-verde-linha-batista-criciuma-1539402750
+
+- **Terreno Loteamento Alliance**
+  - 💰 R$ 77.000 | 📐 300 m²
+  - 📍 Centro — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-loteamento-alliance-1539326984
+
+- **Terrenos 450,00m2 e 335,00m2**
+  - 💰 R$ 100.000 | 📐 450 m²
+  - 📍  — Sombrio
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-450-00m2-e-335-00m2-1539296058
+
+- **Terrenos - loteamento Oásis da Lagoa**
+  - 💰 R$ 119.900 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-loteamento-oasis-da-lagoa-1539282389
+
+- **Terreno Comercial localizado APENAS 160m Hospital UNIMED criciúma ACEI**
+  - 💰 R$ 480.000 | 📐 371 m²
+  - 📍 Ceará — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-comercial-localizado-apenas-160m-hospital-unimed-criciuma-aceita-parcelamento-dire-1539272559
+
+- **Terrenos à venda Maya Bay Private Lake à beira da Lagoa dos Esteves/SC**
+  - 💰 R$ 499.000 | 📐 604 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-a-venda-maya-bay-private-lake-a-beira-da-lagoa-dos-esteves-sc-1539917025
+
+- **Terreno à venda, 351 m² por R$ 230.000 - Mato Alto - Araranguá/SC**
+  - 💰 R$ 230.000 | 📐 351 m²
+  - 📍 Mato Alto — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-351-m-por-r-230-000-mato-alto-ararangua-sc-1539795150
+
+- **Vista privilegiada,a 5 minutos do centro de Criciúma. Área  verde lind**
+  - 💰 R$ 195.000 | 📐 450 m²
+  - 📍  — Forquilhinha
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vista-privilegiada-a-5-minutos-do-centro-de-criciuma-area-verde-linda-1539562037
+
+- **Terreno de praia**
+  - 💰 R$ 130.000 | 📐 325 m²
+  - 📍  — Passo de Torres
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-praia-1539928486
+
+- **Terreno escriturado de frente para a Avenida Atlântica no Balneário Ca**
+  - 💰 R$ 240.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-escriturado-de-frente-para-a-avenida-atlantica-no-balneario-camacho-1537986972
+
+- **Vendo terreno na Praia do Camacho - Jaguaruna**
+  - 💰 R$ 120.000 | 📐 300 m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/vendo-terreno-na-praia-do-camacho-jaguaruna-1522957339
+
+- **Raro terreno de esquina a venda na Praia Paraíso em Torres/RS.**
+  - 💰 R$ 189.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/raro-terreno-de-esquina-a-venda-na-praia-paraiso-em-torres-rs-1539808271
+
+- **Terreno no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1539797486
+
+- **Terreno no Lake Torres: Construa Seu Refúgio no Litoral**
+  - 💰 R$ 350.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-lake-torres-construa-seu-refugio-no-litoral-1539675386
+
+- **Terreno no Morada das Palmeiras em Torres RS**
+  - 💰 R$ 349.000 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-morada-das-palmeiras-em-torres-rs-1539341291
+
+- **Imóvel para venda possui 420 metros quadrados em Reserva das Águas - T**
+  - 💰 R$ 369.000 | 📐 420 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/imovel-para-venda-possui-420-metros-quadrados-em-reserva-das-aguas-torres-rs-1539338115
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 329.000 | 📐 445 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1539335650
+
+- **Terreno à venda em condomínio fechado | Itapeva, Torres - RS**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-itapeva-torres-rs-1538537706
+
+- **Terreno à venda em condomínio fechado | Itapeva, Torres - RS**
+  - 💰 R$ 400.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-em-condominio-fechado-itapeva-torres-rs-1538537587
+
