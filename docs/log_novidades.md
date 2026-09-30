@@ -140113,3 +140113,91 @@
 
 ## ✅ Sem novidades — 30/09/2026 00:07
 
+
+## 🆕 17 novos anúncios — 30/09/2026 09:30
+
+- **Terrenos com vista para o mar à venda no Noble Club Residence, Balneár**
+  - 💰 R$ 352.000 | 📐 550 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-com-vista-para-o-mar-a-venda-no-noble-club-residence-balneario-rincao-1540138175
+
+- **Terreno com 699m² à venda Maya Bay Private Lake à beira da Lagoa dos E**
+  - 💰 R$ 540.000 | 📐 699 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-699m-a-venda-maya-bay-private-lake-a-beira-da-lagoa-dos-esteves-sc-1540138171
+
+- **Terreno com 600m² à venda Maya Bay Private Lake à beira da Lagoa dos E**
+  - 💰 R$ 520.000 | 📐 600 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-600m-a-venda-maya-bay-private-lake-a-beira-da-lagoa-dos-esteves-sc-1540138170
+
+- **Terreno com 700m² à venda no Noble Club Residence | Balneário Rincão S**
+  - 💰 R$ 467.500 | 📐 700 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-com-700m-a-venda-no-noble-club-residence-balneario-rincao-sc-1540138142
+
+- **Terrenos com vista para o mar à venda no Noble Club Residence, Balneár**
+  - 💰 R$ 385.000 | 📐 576 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-com-vista-para-o-mar-a-venda-no-noble-club-residence-balneario-rincao-1540138144
+
+- **Terreno à venda de frente para a Lagoa dos Esteves, no Maya Bay Privat**
+  - 💰 R$ 1.734.000 | 📐 600 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-de-frente-para-a-lagoa-dos-esteves-no-maya-bay-private-lake-1540138153
+
+- **Terreno Lote à Venda com 400m² - Morro da Fumaça - SC**
+  - 💰 R$ 110.000 | 📐 400 m²
+  - 📍 Distrito Estação Cocal — Morro da Fumaça
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-lote-a-venda-com-400m-morro-da-fumaca-sc-1539985375
+
+- **Terreno à venda, 300 m² por R$ 130.000,00 - Lagoão - Araranguá/SC**
+  - 💰 R$ 130.000 | 📐 300 m²
+  - 📍 Lagoão — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-300-m-por-r-130-000-00-lagoao-ararangua-sc-1540138288
+
+- **Terreno à venda, 700 m² por R$ 270.000,00 - Operária - Araranguá/SC**
+  - 💰 R$ 270.000 | 📐 700 m²
+  - 📍 Jardim Cibeli — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-700-m-por-r-270-000-00-operaria-ararangua-sc-1538983113
+
+- **`Terreno 600 m2, Bairro Santa Bárbara, Criciúma**
+  - 💰 R$ 799.000 | 📐 600 m²
+  - 📍 Santa Bárbara — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-600-m2-bairro-santa-barbara-criciuma-1540151440
+
+- **Terreno para Venda em Balneário Gaivota, Lagoinha**
+  - 💰 R$ 50.000 | 📐 300 m²
+  - 📍  — Balneário Gaivota
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-venda-em-balneario-gaivota-lagoinha-1540136721
+
+- **Terreno de esquina com 525m² no bairro Centenário em Torres RS**
+  - 💰 R$ 250.000 | 📐 525 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-com-525m-no-bairro-centenario-em-torres-rs-1540143545
+
+- **Terreno em loteamento planejado em Torres RS**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-loteamento-planejado-em-torres-rs-1540143520
+
+- **Terreno em loteamento planejado em Torres RS**
+  - 💰 R$ 135.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-loteamento-planejado-em-torres-rs-1540143490
+
+- **Lote no Reserva das Águas em Torres RS**
+  - 💰 R$ 299.000 | 📐 422 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/lote-no-reserva-das-aguas-em-torres-rs-1540143477
+
+- **Terreno no Lake / Torres**
+  - 💰 R$ 330.000 | 📐 400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-lake-torres-1540033900
+
+- **Terreno de esquina com 525m² no bairro residencial Centenário, Torres **
+  - 💰 R$ 250.000 | 📐 525 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-com-525m-no-bairro-residencial-centenario-torres-rs-1540007681
+
