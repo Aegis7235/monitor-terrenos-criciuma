@@ -140246,3 +140246,61 @@
 
 ## ✅ Sem novidades — 04/10/2026 23:51
 
+
+## 🆕 11 novos anúncios — 05/10/2026 10:08
+
+- **Excelente Terreno Plano com 2.613m² (39x67m) no Bairro Santa Rosa de L**
+  - 💰 R$ 600.000 | 📐 2613 m²
+  - 📍 Coloninha — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/excelente-terreno-plano-com-2-613m-39x67m-no-bairro-santa-rosa-de-lima-ararangua-sc-1541018819
+
+- **Terreno de 2 hectares**
+  - 💰 R$ 750.000 | 📐 30000000 m²
+  - 📍 Centro — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-de-2-hectares-1540998613
+
+- **Terreno à venda com 769m² no Blue Lagoon, Balneário Rincão, Lagoa dos **
+  - 💰 R$ 631.000 | 📐 769 m²
+  - 📍 Distrito Estação Cocal — Balneário Rincão
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-com-769m-no-blue-lagoon-balneario-rincao-lagoa-dos-esteves-1540898758
+
+- **Terreno alto, pronto para construir ou investir**
+  - 💰 R$ 160.000 | 📐 360 m²
+  - 📍 Archimedes Naspolini — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-alto-pronto-para-construir-ou-investir-1540800760
+
+- **Terreno à Venda  Excelente Localização e Ótimo Potencial de Valorizaçã**
+  - 💰 R$ 179.900 | 📐 432 m²
+  - 📍 Centro Cívico — Araranguá
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-excelente-localizacao-e-otimo-potencial-de-valorizacao-1540768208
+
+- **Terreno à venda no Metropol, Criciúma**
+  - 💰 R$ 70.000 | 📐 362 m²
+  - 📍 Metropol — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-metropol-criciuma-1540752446
+
+- **Terreno à venda no Metropol, Criciúma**
+  - 💰 R$ 80.000 | 📐 562 m²
+  - 📍 Metropol — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-metropol-criciuma-1540752438
+
+- **Terreno à venda no Metropol, Criciúma**
+  - 💰 R$ 70.000 | 📐 439 m²
+  - 📍 Metropol — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-metropol-criciuma-1540752431
+
+- **Loteamento Portal Primeira Linha, Rodovia Alexandre Beloli, Criciúma**
+  - 💰 R$ 193.000 | 📐 364 m²
+  - 📍 Primeira Linha — Criciúma
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/loteamento-portal-primeira-linha-rodovia-alexandre-beloli-criciuma-1540657989
+
+- **Terreno na praia balneário figuerinha cidade jaguaruna**
+  - 💰 R$ 60.000 | 📐 ? m²
+  - 📍  — Jaguaruna
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-na-praia-balneario-figuerinha-cidade-jaguaruna-1540607973
+
+- **Terreno para sítio em içara próximo às lagoas e praia**
+  - 💰 R$ 180.000 | 📐 4000 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-em-icara-proximo-as-lagoas-e-praia-1541162173
+
