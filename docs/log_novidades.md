@@ -140304,3 +140304,6 @@
   - 📍  — Içara
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-para-sitio-em-icara-proximo-as-lagoas-e-praia-1541162173
 
+
+## ✅ Sem novidades — 05/10/2026 21:52
+
