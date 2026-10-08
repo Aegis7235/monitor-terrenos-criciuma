@@ -140335,3 +140335,11 @@
   - 📍  — Cocal do Sul
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-563-m-por-r-527-532-96-jardim-palmeiras-cocal-do-sul-sc-1541417919
 
+
+## 🆕 1 novos anúncios — 08/10/2026 10:11
+
+- **Terreno a venda Loteamento Tramontin em Urussanga Últimos Lotes Dispon**
+  - 💰 R$ 198.000 | 📐 360 m²
+  - 📍  — Urussanga
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-tramontin-em-urussanga-ultimos-lotes-disponiveis-1542031622
+
