@@ -140322,3 +140322,16 @@
 
 ## ✅ Sem novidades — 07/10/2026 20:28
 
+
+## 🆕 2 novos anúncios — 08/10/2026 00:47
+
+- **Terreno à venda, 606 m² por R$ 546.486,24 - Jardim Palmeiras - Cocal d**
+  - 💰 R$ 546.486 | 📐 606 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-606-m-por-r-546-486-24-jardim-palmeiras-cocal-do-sul-sc-1541418004
+
+- **Terreno à venda, 563 m² por R$ 527.532,96 - Jardim Palmeiras - Cocal d**
+  - 💰 R$ 527.533 | 📐 564 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-563-m-por-r-527-532-96-jardim-palmeiras-cocal-do-sul-sc-1541417919
+
