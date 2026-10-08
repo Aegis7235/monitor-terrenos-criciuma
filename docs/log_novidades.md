@@ -140343,3 +140343,6 @@
   - 📍  — Urussanga
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-loteamento-tramontin-em-urussanga-ultimos-lotes-disponiveis-1542031622
 
+
+## ✅ Sem novidades — 08/10/2026 20:33
+
