@@ -140370,3 +140370,141 @@
 
 ## ✅ Sem novidades — 11/10/2026 09:46
 
+
+## 🆕 27 novos anúncios — 11/10/2026 19:24
+
+- **Terreno Balneário Rincão Acqua Village**
+  - 💰 R$ 400.000 | 📐 425 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-balneario-rincao-acqua-village-1543297610
+
+- **TERRENO A VENDA EM BALNEÁRIO RINCÃO/SC**
+  - 💰 R$ 110.000 | 📐 386 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-em-balneario-rincao-sc-1542933718
+
+- **SÍTIO - Bairro Nossa Senhora de Fátima, Içara/SC**
+  - 💰 R$ 320.000 | 📐 4500 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/sitio-bairro-nossa-senhora-de-fatima-icara-sc-1542851744
+
+- **Casa de condomínio para venda tem 236 metros quadrados em Centro - Bal**
+  - 💰 R$ 290.000 | 📐 236 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/casa-de-condominio-para-venda-tem-236-metros-quadrados-em-centro-balneario-rincao-sc-1542173394
+
+- **Terreno a venda no Condomínio das Palmeiras em Içara com 800 m2**
+  - 💰 R$ 980.000 | 📐 800 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-no-condominio-das-palmeiras-em-icara-com-800-m2-1542031733
+
+- **Blue Lagoon condomínio fechado na Lagoa dos Esteves - Balneário Rincão**
+  - 💰 R$ 650.000 | 📐 556 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/blue-lagoon-condominio-fechado-na-lagoa-dos-esteves-balneario-rincao-sc-1542031660
+
+- **Terreno Condomínio Águas do Atlântico Balneário Rincão - SC**
+  - 💰 R$ 390.000 | 📐 480 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-condominio-aguas-do-atlantico-balneario-rincao-sc-1542031666
+
+- **Acqua Village Condomínio fechado no Balneario Rincão**
+  - 💰 R$ 415.000 | 📐 432 m²
+  - 📍 Centro — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/acqua-village-condominio-fechado-no-balneario-rincao-1542031621
+
+- **Terreno à venda, 1111 m² por R$ 514.897,44 - Zona Sul - Balneário Rinc**
+  - 💰 R$ 514.897 | 📐 1112 m²
+  - 📍  — Içara
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terreno-a-venda-1111-m-por-r-514-897-44-zona-sul-balneario-rincao-sc-1541417890
+
+- **Área na Estrada do Mar**
+  - 💰 R$ 1.500.000 | 📐 30400 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/area-na-estrada-do-mar-1542204208
+
+- **TERRENO COM 300M² R$ 135.000,00 NA RUA IRAI , PRAIA DE ITAPEVA - TORRE**
+  - 💰 R$ 135.000 | 📐 300 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-com-300m-r-135-000-00-na-rua-irai-praia-de-itapeva-torres-rs--1542188798
+
+- **Grande oportunidade  Terreno no Salinas, Torres - RS | Venda Direta On**
+  - 💰 R$ 226.246 | 📐 10 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/grande-oportunidade-terreno-no-salinas-torres-rs-venda-direta-online-1542043435
+
+- **Grande oportunidade  Terreno no Salinas, Torres - RS | Venda Direta On**
+  - 💰 R$ 226.246 | 📐 10 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/grande-oportunidade-terreno-no-salinas-torres-rs-venda-direta-online-1542037531
+
+- **Terreno no Condomínio Lake na Praia da Itapeva**
+  - 💰 R$ 300.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lake-na-praia-da-itapeva-1541824035
+
+- **Terreno de esquina no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 459 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-de-esquina-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541706140
+
+- **Terreno Fundos Lago no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541700448
+
+- **Terreno Fundos Lago no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541700475
+
+- **Terreno Fundos Lago no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 372 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541700409
+
+- **Terreno Fundos Lago no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 372 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541700440
+
+- **Terreno Fundos Lago no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541700454
+
+- **Terreno no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541700424
+
+- **Terreno no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541700400
+
+- **Terreno Fundos Lago no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 372 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541700399
+
+- **Terreno no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 467 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541700404
+
+- **Terreno Fundos Lago no condomínio Lake fechado na Itapeva em Torres RS**
+  - 💰 R$ 471.450 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-fundos-lago-no-condominio-lake-fechado-na-itapeva-em-torres-rs-1541700418
+
+- **Òtimo terreno em localização estratégica no Morada das Palmeiras em To**
+  - 💰 R$ 330.000 | 📐 312 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/timo-terreno-em-localizacao-estrategica-no-morada-das-palmeiras-em-torres-rs-1540358708
+
+- **Raro terreno de esquina a venda na Praia Paraíso em Torres/RS.**
+  - 💰 R$ 199.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/raro-terreno-de-esquina-a-venda-na-praia-paraiso-em-torres-rs-1540358253
+
