@@ -140544,3 +140544,6 @@
   - 📍  — Cocal do Sul
   - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-bem-posicionado-terreno-no-centro-cocal-do-sul-sc-n-482-600m-venda-direta-1542552681
 
+
+## ✅ Sem novidades — 14/10/2026 14:23
+
