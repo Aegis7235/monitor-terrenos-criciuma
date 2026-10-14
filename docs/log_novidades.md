@@ -140526,3 +140526,21 @@
 
 ## ✅ Sem novidades — 14/10/2026 00:11
 
+
+## 🆕 3 novos anúncios — 14/10/2026 08:29
+
+- **Terrenos de 365 a 570m² em Cocal do Sul, Criciúma/SC | Lucia Giassi II**
+  - 💰 R$ 125.444 | 📐 384 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/terrenos-de-365-a-570m-em-cocal-do-sul-criciuma-sc-lucia-giassi-ii-1542930687
+
+- **Imóvel bem posicionado  Terreno no Centro, Cocal do Sul - SC, Nº 482, **
+  - 💰 R$ 188.902 | 📐 600 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-bem-posicionado-terreno-no-centro-cocal-do-sul-sc-n-482-600m-venda-direta-1542586407
+
+- **Imóvel bem posicionado  Terreno no Centro, Cocal do Sul - SC, Nº 482, **
+  - 💰 R$ 188.902 | 📐 600 m²
+  - 📍  — Cocal do Sul
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-bem-posicionado-terreno-no-centro-cocal-do-sul-sc-n-482-600m-venda-direta-1542552681
+
