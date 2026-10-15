@@ -140559,3 +140559,11 @@
 
 ## ✅ Sem novidades — 15/10/2026 14:01
 
+
+## 🆕 1 novos anúncios — 15/10/2026 18:56
+
+- **LOTE À VENDA - LOTEAMENTO RESIDENCIAL FLORIZA, PRAIA GRANDE/SC**
+  - 💰 R$ 137.800 | 📐 360 m²
+  - 📍  — Praia Grande
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/lote-venda-loteamento-residencial-floriza-praia-grande-sc-1463918783
+
