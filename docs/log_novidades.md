@@ -140573,3 +140573,16 @@
 
 ## ✅ Sem novidades — 16/10/2026 07:58
 
+
+## 🆕 2 novos anúncios — 16/10/2026 13:47
+
+- **Terreno em loteamento aberto - Vila São João**
+  - 💰 R$ 110.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-em-loteamento-aberto-vila-sao-joao-1544603243
+
+- **Terreno à venda no Lake em Torres/RS**
+  - 💰 R$ 292.000 | 📐 360 m²
+  - 📍  — Torres
+  - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-lake-em-torres-rs-1544474212
+
