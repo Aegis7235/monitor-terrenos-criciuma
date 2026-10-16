@@ -140586,3 +140586,21 @@
   - 📍  — Torres
   - 🔗 https://rs.olx.com.br/regioes-de-porto-alegre-torres-e-santa-cruz-do-sul/terrenos/terreno-a-venda-no-lake-em-torres-rs-1544474212
 
+
+## 🆕 3 novos anúncios — 16/10/2026 18:40
+
+- **Oportunidade para moradia  Terreno no Centro, Meleiro - SC, N. SN LT 1**
+  - 💰 R$ 63.999 | 📐 375 m²
+  - 📍  — Meleiro
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-moradia-terreno-no-centro-meleiro-sc-n-sn-lt-13-qd-02-375m-ven-1542586237
+
+- **Oportunidade para moradia  Terreno no Centro, Meleiro - SC, N. SN LT 1**
+  - 💰 R$ 63.999 | 📐 375 m²
+  - 📍  — Meleiro
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/oportunidade-para-moradia-terreno-no-centro-meleiro-sc-n-sn-lt-13-qd-02-375m-ven-1542552587
+
+- **Imóvel**LEILÃO CAIXA** Terreno 375m² em Centro - Meleiro - SC**
+  - 💰 R$ 63.999 | 📐 375 m²
+  - 📍  — Meleiro
+  - 🔗 https://sc.olx.com.br/florianopolis-e-regiao/terrenos/imovel-leilao-caixa-terreno-375m-em-centro-meleiro-sc-1542192661
+
